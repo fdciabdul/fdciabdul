@@ -1,0 +1,23 @@
+<% _.each(timelineArticle, function(value) { %>
+    <div class="app-index-card shadow-l1">
+        <div class="card-description">
+            <div class="card-title">
+                <%= value.title %>
+            </div>
+            <div class="card-note">
+                <span class="card-author">
+                    <%= value.user.name %>
+                </span>
+                <span class="card-published">
+                    <%= jt.timeSince(value.published) %>
+                </span>
+            </div>
+        </div>
+        <div class="card-image">
+            <img src="<%= value.image.baseUrl %>120/120<%= value.image.file %>" alt="<%= value.title %>" />
+        </div>
+        <a href="javascript:void(0)" class="card-link">
+            <div class="ripple"></div>
+        </a>
+    </div>
+<% }) %>
