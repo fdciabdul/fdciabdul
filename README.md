@@ -3,10 +3,10 @@
 ```javascript
 
 console.log(` Hello my name is 
-**Abdul Muttaqin**
+Abdul Muttaqin
 `)
-console.log(` You can call me Abdul or A
-qin or whatever '-'`)
+console.log(` You can call me Abdul or 
+Aqin or whatever '-'`)
 ```
 ___
 
@@ -19,3 +19,7 @@ ___
 ___
 # More about me 
 
+I was born in religious family , but
+i didn't even know more abouy ma religion
+so sad , but i will try to find the truth about
+my religion
