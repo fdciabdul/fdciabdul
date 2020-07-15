@@ -15,7 +15,7 @@ ___
 - Age : 20y.o
 - Skills : PHP , Javascript , Rust , And Golang
 - School : National Islamic Institute of Religion 
-           IAIN LAA ROIBA 
+           LAA ROIBA 
 ___
 # More about me 
 
