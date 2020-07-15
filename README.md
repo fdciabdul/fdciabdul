@@ -1,9 +1,12 @@
 ![Image](https://raw.githubusercontent.com/fdciabdul/fdciabdul/master/tenor.gif)
 
-```php
+```javascript
 
-echo " Hello my name is Abdul Muttaqin ";
-echo " You can call me Abdul or Aqin or whatever '-'";
+console.log(` Hello my name is 
+**Abdul Muttaqin**
+`)
+console.log(` You can call me Abdul or A
+qin or whatever '-'`)
 ```
 ___
 
