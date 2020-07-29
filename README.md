@@ -11,10 +11,7 @@ ___
 
 **About Me**
 
-- Age : 20y.o
-- Skills : PHP , Javascript , Rust , And Golang
-- School : National Islamic Institute of Religion 
-           LAA ROIBA 
+nothing  
 ___
 **Stats**
 ![fdciabdul github stats](https://github-readme-stats.vercel.app/api?username=fdciabdul&show_icons=true&title_color=000&icon_color=79ff97&text_color=000)
