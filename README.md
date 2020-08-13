@@ -9,9 +9,9 @@
 
 ___
 
-**About Me**
+## **About Me**
 
-nothing  
+**_nothing_**  
 ___
-**Stats**
+## **Stats**
 ![fdciabdul github stats](https://github-readme-stats.vercel.app/api?username=fdciabdul&show_icons=true&title_color=000&icon_color=79ff97&text_color=000)
