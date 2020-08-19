@@ -18,6 +18,7 @@ ___
 
 ## **Just Language**
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=fdciabdul)](https://github.com/fdciabdul/)
+<font size="5">
                                                           ████████████████                    
                                               ████▓▓▓▓░░▓▓▒▒▒▒░░▒▒▒▒▒▒▒▒░░██                  
                                       ████████░░░░░░░░░░░░░░░░▒▒░░░░░░░░░░░░██                
@@ -69,3 +70,4 @@ ___
   ░░░░                      ░░                                ░░                              
   ░░░░  ░░░░░░  ░░                                                    ░░  ░░                  
   ░░░░░░░░░░░░░░░░░░                                                                          
+</font>
