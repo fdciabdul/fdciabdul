@@ -1,4 +1,4 @@
-<img src="https://telegra.ph/file/d31d8af9ae7cf3d0978d5.png" width="120" height="120" align="right">
+<img src="" width="120" height="120" align="right">
 
 <center>
 <a href="https://fb.me/fdciabdul"><img src="https://image.flaticon.com/icons/svg/174/174848.svg" alt="alt text" width="20" height="20"></a>      &nbsp;&nbsp;   <a href="https://instagram.com/fdciabdul"><img src="https://image.flaticon.com/icons/svg/174/174855.svg" alt="alt text" width="20" height="20"></a>
