@@ -18,7 +18,5 @@ ___
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=fdciabdul&layout=compact)](https://github.com/fdciabdul)
 
-<p align="center"> 
-  Visitor count<br>
   <img src="https://profile-counter.glitch.me/fdciabdul/count.svg" />
-</p>
+
