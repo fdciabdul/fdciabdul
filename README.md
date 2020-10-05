@@ -3,7 +3,7 @@
 <center>
 <a href="https://fb.me/fdciabdul"><img src="https://image.flaticon.com/icons/svg/174/174848.svg" alt="alt text" width="20" height="20"></a>      &nbsp;&nbsp;   <a href="https://instagram.com/fdciabdul"><img src="https://image.flaticon.com/icons/svg/174/174855.svg" alt="alt text" width="20" height="20"></a>
  &nbsp;&nbsp; 
-<a href="https://pinterest.com/fdciabdul"><img src="https://image.flaticon.com/icons/svg/174/174863.svg" alt="alt text" width="20" height="20"></a>
+<a href="https://twitter.com/fdciabdul"><img src="https://www.flaticon.com/svg/static/icons/svg/124/124021.svg" alt="alt text" width="20" height="20"></a>
 
 
 
