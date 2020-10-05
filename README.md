@@ -11,9 +11,6 @@ Connect with me :
 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;   &nbsp;&nbsp;   
 ___
-
-## 
-
 _just people who love all about IoT_
 ___
 ## **Stats**
