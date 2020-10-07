@@ -14,6 +14,4 @@ ___
 _just people who love all about IoT_
 ___
 ## **Stats**
-![fdciabdul github stats](https://github-readme-stats.vercel.app/api?username=fdciabdul&show_icons=true&title_color=000&icon_color=79ff97&text_color=000)
-
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=fdciabdul&layout=compact)](https://github.com/fdciabdul)
+<img src="https://github-readme-stats.vercel.app/api?username=fdciabdul&show_icons=true&title_color=000&icon_color=79ff97&text_color=000" width="150" height="50"/><img src="https://github-readme-stats.vercel.app/api/top-langs/?username=fdciabdul&layout=compact" width="150" align="right" height="50"/>
