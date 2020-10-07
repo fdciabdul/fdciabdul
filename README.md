@@ -14,4 +14,4 @@ ___
 _just people who love all about IoT_
 ___
 ## **Stats**
-<img src="https://github-readme-stats.vercel.app/api?username=fdciabdul&theme=nightowl&show_icons=true" width="130" height="100"/><img src="https://github-readme-stats.vercel.app/api/top-langs/?username=fdciabdul&layout=compact&theme=nightowl&show_icons=true" width="130" align="right" height="70"/>
+<img src="https://github-readme-stats.vercel.app/api?username=fdciabdul&theme=nightowl&show_icons=true" width="450" height="100"/><img src="https://github-readme-stats.vercel.app/api/top-langs/?username=fdciabdul&layout=compact&theme=nightowl&show_icons=true" width="450" align="right" height="100"/>
