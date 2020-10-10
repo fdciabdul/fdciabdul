@@ -17,4 +17,4 @@ ___
 <img src="https://github-readme-stats.vercel.app/api?username=fdciabdul&theme=nightowl&show_icons=true" width="450" height="100"/><img src="https://github-readme-stats.vercel.app/api/top-langs/?username=fdciabdul&layout=compact&theme=nightowl&show_icons=true" width="450" align="right" height="100"/>
 
 #### 🏆 Trophy
-[![trophy](https://github-profile-trophy.vercel.app/?username=fdciabdul)](https://github.com/ryo-ma/github-profile-trophy)
+[![trophy](https://github-profile-trophy.vercel.app/?username=ryo-ma&row=2&column=3&theme=monokai)](https://github.com/ryo-ma/github-profile-trophy)
