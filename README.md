@@ -14,5 +14,3 @@ ___
 _just people who love all about IoT_
 ___
 
-### 🏆 Trophy :v
-[![trophy](https://github-profile-trophy.vercel.app/?username=ryo-ma&row=2&column=3&theme=monokai)](https://github.com/ryo-ma/github-profile-trophy)
