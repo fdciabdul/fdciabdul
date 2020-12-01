@@ -15,7 +15,6 @@ _night and coffe_
 ___
 
 
-### Spotify Playing 🎧
-[<img src="https://open.spotify.com/artist/3AQRLZ9PuTAozP28Skbq8V?si=Vr-wVYQDTrqzDB7iZWvEJw)
+Wanna Hire Me ? 
 
----
+Contact : abdulmuttaqin456@gmail.com
