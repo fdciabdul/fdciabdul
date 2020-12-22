@@ -18,3 +18,6 @@ ___
 Wanna Hire Me ? 
 
 Contact : abdulmuttaqin456@gmail.com
+
+# Scan for buy me coffe 
+<img src="https://saweria.co/overlays/qr?streamKey=434d3434a62a09a97197e309c40c0b81&bottomLabel=Scan+dong+buat+beli+kopi&backgroundColor=%23bd10e0FF&barcodeColor=%23000&username=fdciabdul" width="50" height="50">
