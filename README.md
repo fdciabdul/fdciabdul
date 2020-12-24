@@ -21,7 +21,7 @@ Contact : abdulmuttaqin456@gmail.com
 
 
 # Donate 
-Donate me on  <a href="https://saweria.com/fdciabdul">HERE!</a>
+Donate me on  <a href="https://saweria.co/donate/fdciabdul">HERE!</a>
 , or i will jump like nishimiya >:(
 
 <img src="https://i.pinimg.com/originals/45/4b/cd/454bcd079b1a4285819b7b2b4a4b78ef.gif">
