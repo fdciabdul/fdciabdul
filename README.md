@@ -19,7 +19,8 @@ Wanna Hire Me ?
 
 Contact : abdulmuttaqin456@gmail.com
 
-# click for buy me a coffe 
+
+# Donate 
 Donate me on  <a href="https://saweria.com/fdciabdul">HERE!</a>
 here , or i will jump like nishimiya >:(
 
