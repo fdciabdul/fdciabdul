@@ -50,6 +50,5 @@ Wanna Hire Me ?
 Contact : abdulmuttaqin456@gmail.com
 
 
-# Codewars
-<img src="https://www.codewars.com/users/fdciabdul/badges/large"/>
- 
+[![](https://chat.getloli.com/room/@journey-ad.github/svg?width=600&height=280&limit=20&theme=light&title=journey-ad@github:%20~&fontSize=13)](https://chat.getloli.com/room/@journey-ad.github?title=JAD%E7%9A%84Github%E7%95%99%E8%A8%80%E6%9D%BF)
+
