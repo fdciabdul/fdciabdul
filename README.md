@@ -29,4 +29,4 @@ Wanna Hire Me ?
 
 Contact : abdulmuttaqin456@gmail.com
 
-[![fdciabdul stats](https://github-readme-stats.vercel.app/api/?username=fdciabdul&theme=blue-green&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
+[![willianrod's wakatime stats](https://github-readme-stats.vercel.app/api/wakatime?username=fdciabdul)](https://github.com/anuraghazra/github-readme-stats)
