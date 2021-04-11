@@ -1,6 +1,6 @@
 #### Counting My Viewers 
 <p>
-  <a href="https://count.getloli.com/"><img src="https://count.getloli.com/get/@fdciabdul?theme=rule34"></a>
+  <a href="https://count.getloli.com/"><img src="https://count.getloli.com/get/@fdciabdul?theme=gelbooru-h"></a>
 </p>
 
 #### Platform&Tools
