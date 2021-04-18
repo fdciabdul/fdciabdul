@@ -1,4 +1,4 @@
-#### Counting My Viewers 
+#### Counting My Viewers Trinity Nguyen 👩🏻‍💻
 <p>
   <a href="https://count.getloli.com/"><img src="https://count.getloli.com/get/@fdciabdul?theme=gelbooru-h"></a>
 </p>
