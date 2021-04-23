@@ -26,7 +26,7 @@ Hi hi , i'm Abdul Muttaqin , who are you ? and why you are here ?
 ___
 
 
-Wanna Hire Me ? 
+Wanna talk to Me ? 
 
 Contact : abdulmuttaqin456@gmail.com
 
