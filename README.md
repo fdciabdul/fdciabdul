@@ -19,7 +19,41 @@ Connect with me :
 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;   &nbsp;&nbsp;   
 ___
-Hi hi , i'm Abdul Muttaqin , who are you ? and why you are here ?
+```javascript
+const name = 'Abdul Muttaqin';
+document.write("Hello, fellas");
+
+var status = 
+{ 
+  learning : [JavaScript,Python,Blockchain],
+  interests: [Research, Open Source Contribution, Business Analytics]
+}
+
+const skills = 
+{
+  languages :[ReactJS, Bash, Html, Css, JavaScript, BootStrap, Java, Git, Markdown, VueJS, Material Ui],
+  
+  ide       :[Vs Code, GitHub Codespace, GitPod],
+  
+  frameworks:[Bootstrap, Sharepoint Framework, NodeJs],
+  
+  platforms :[Google Cloud Platform, Buildkite, Heroku, Netlify, Firebase, Cloudflare],
+  
+  cicd      :[Github Workflows, Jenkins, Gerrit Code Review],
+
+  softwares :[Microsoft PowerBi, Microsoft Access, Rapid Miner, Vegas Pro]
+}
+
+Developer dev = new Developer(garett_09);
+
+while(dev.isCoding() && dev.isStuck())  
+{
+  dev.openBrowser();
+  dev.openStackOverFlow();
+  dev.pasteCodeInIde();
+  dev.feelProfessional();
+}
+```
 ___
 
 
