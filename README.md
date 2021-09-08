@@ -44,7 +44,7 @@ const skills =
   softwares :[Microsoft PowerBi, Microsoft Access, Rapid Miner, Vegas Pro]
 }
 
-Developer dev = new Developer(garett_09);
+Developer dev = new Developer(fdciabdul);
 
 while(dev.isCoding() && dev.isStuck())  
 {
