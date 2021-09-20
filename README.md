@@ -12,7 +12,7 @@ Connect with me :
 
 <a href="https://fb.me/fdciabdul"><img src="https://image.flaticon.com/icons/svg/174/174848.svg" alt="alt text" width="20" height="20"></a>      &nbsp;&nbsp;   <a href="https://instagram.com/fdciabdul"><img src="https://image.flaticon.com/icons/svg/174/174855.svg" alt="alt text" width="20" height="20"></a>
  &nbsp;&nbsp; 
-<a href="https://twitter.com/fdciabdul"><img src="https://cliply.co/wp-content/uploads/2019/07/371907030_TWITTER_ICON_1080.png" alt="alt text" width="20" height="20"></a>
+<a href="https://twitter.com/fdciabdul"><img src="https://www.createchallenge.org/images/logo-twitter.png/@@images/image.png" alt="alt text" width="20" height="20"></a>
 
 
 
