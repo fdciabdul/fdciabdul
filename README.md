@@ -19,41 +19,7 @@ Connect with me :
 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;   &nbsp;&nbsp;   
 ___
-```javascript
-const name = 'Abdul Muttaqin';
-document.write("Hello, fellas");
-
-var status = 
-{ 
-  learning : [JavaScript,Python,Blockchain],
-  interests: [Research, Open Source Contribution, Business Analytics]
-}
-
-const skills = 
-{
-  languages :[Svelte, Bash, Aurelia, PHP, JavaScript, Julia, Rust, Git, Markdown, VB],
-  
-  ide       :[Vs Code, GitHub Codespace, GitPod],
-  
-  frameworks:[Bootstrap, Sharepoint Framework, NodeJs],
-  
-  platforms :[Google Cloud Platform, Buildkite, Heroku, Netlify, Firebase, Cloudflare],
-  
-  cicd      :[Github Workflows, Jenkins, Gerrit Code Review],
-
-  softwares :[Microsoft PowerBi, Microsoft Access, Rapid Miner, Vegas Pro]
-}
-
-Developer dev = new Developer(fdciabdul);
-
-while(dev.isCoding() && dev.isStuck())  
-{
-  dev.openBrowser();
-  dev.openStackOverFlow();
-  dev.pasteCodeInIde();
-  dev.feelProfessional();
-}
-```
+<img alt="GitHub stats" src="https://github-readme-stats.vercel.app/api?username=fdciabdul&bg_color=30,e96443,904e95&title_color=fff&text_color=fff&count_private=true&hide_border=true" width="500">
 ___
 
 
