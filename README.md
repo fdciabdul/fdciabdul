@@ -19,12 +19,11 @@ Connect with me :
 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;   &nbsp;&nbsp;   
 ___
+
+[![fdciabdul's github stats](https://saweria.co/overlays/milestone?streamKey=434d3434a62a09a97197e309c40c0b81&backgroundColor=%23faae2b&color=%23333&fontWeight=800&title=Pengumpulan+dana+untuk+pergi+ke+bulan&startDate=15-11-2021)](https://github.com/anuraghazra/github-readme-stats)
+
 ___
 
-
-Wanna talk to Me ? 
-
-Contact : abdulmuttaqin456@gmail.com
 
 [![fdciabdul's github stats](https://github-readme-stats.vercel.app/api?username=fdciabdul&bg_color=30,e96443,904e95&title_color=fff&text_color=fff&count_private=true&hide_border=true)](https://github.com/anuraghazra/github-readme-stats)
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=fdciabdul&layout=compact&langs_count=7&hide=html&bg_color=30,e96443,904e95&text_color=fff&icon_color=fff&title_color=fff&hide_border=true)](https://github.com/anuraghazra/github-readme-stats)
