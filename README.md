@@ -17,12 +17,8 @@ Connect with me :
 
 
 
-&nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;   &nbsp;&nbsp;   
-___
-
-[![fdciabdul's github stats](https://saweria.co/overlays/milestone?streamKey=434d3434a62a09a97197e309c40c0b81&backgroundColor=%23faae2b&color=%23333&fontWeight=800&title=Pengumpulan+dana+untuk+pergi+ke+bulan&startDate=15-11-2021)](https://github.com/anuraghazra/github-readme-stats)
-
-___
+&nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
+<img src="https://saweria.co/overlays/qr?streamKey=434d3434a62a09a97197e309c40c0b81&backgroundColor=%23faae2b&barcodeColor=%23000&username=fdciabdul">
 
 
 [![fdciabdul's github stats](https://github-readme-stats.vercel.app/api?username=fdciabdul&bg_color=30,e96443,904e95&title_color=fff&text_color=fff&count_private=true&hide_border=true)](https://github.com/anuraghazra/github-readme-stats)
