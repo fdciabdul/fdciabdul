@@ -19,7 +19,24 @@ Connect with me :
 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
 ____
-that lit
+<details>
+<summary>Want to know me ?...</summary>
+<p>
 
-[![fdciabdul's github stats](https://github-readme-stats.vercel.app/api?username=fdciabdul&bg_color=30,e96443,904e95&title_color=fff&text_color=fff&count_private=true&hide_border=true)](https://github.com/anuraghazra/github-readme-stats)
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=fdciabdul&layout=compact&langs_count=7&hide=html&bg_color=30,e96443,904e95&text_color=fff&icon_color=fff&title_color=fff&hide_border=true)](https://github.com/anuraghazra/github-readme-stats)
+```javascript
+class AboutMe
+{
+    constructor(me) { 
+    this.firstname= "Abdul";
+    this.lastname= "Muttaqin";
+    this.age="22";
+    this.hobby="Coding , music , travel , reading book";
+  }
+
+}
+
+```
+</details>
+
+____
+
