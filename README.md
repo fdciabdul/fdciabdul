@@ -27,10 +27,10 @@ ____
 class AboutMe
 {
     constructor(me) { 
-    this.firstname= "Abdul";
-    this.lastname= "Muttaqin";
-    this.age="22";
-    this.hobby= ["Coding" , "music", "travel" , "reading book"];
+    this.firstname = "Abdul";
+    this.lastname = "Muttaqin";
+    this.age ="22";
+    this.hobby = ["Coding" , "music", "travel" , "reading book"];
   }
     codingSkill(me){
     let skill = ["Javascript","PHP","NodeJS","Rust"];
