@@ -37,3 +37,8 @@ class AboutMe
     let IDE = ["VS Code","Vim","Nano","Sublime","JetBrain","Atom"];
    }
 }
+```
+</details>
+
+<img src="https://www.codewars.com/users/fdciabdul/badges/small"/>
+
