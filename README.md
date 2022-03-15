@@ -18,9 +18,12 @@ Connect with me :
 
 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
->PGP
 
 <details>
+<summary>PGP ...</summary>
+<p>
+
+```bash
 -----BEGIN PGP PUBLIC KEY BLOCK-----
 Version: Keybase OpenPGP v1.0.0
 Comment: https://keybase.io/crypto
@@ -55,4 +58,6 @@ FZH4xpQmxe0utD7a2JGgSDtJfun5M/IWBZhXmfputhtHgCbf+wFdVBI2cW73pF9O
 lDeKnc8MbOisNu+1RY4mPOgU+tHr0Hg=
 =UN/2
 -----END PGP PUBLIC KEY BLOCK-----
-</details
+```
+
+</details>
