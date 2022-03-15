@@ -20,5 +20,5 @@ Connect with me :
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
 
 
-<img src="https://www.codewars.com/users/fdciabdul/badges/small"/>
+<img src="http://svg-wow.org/audio/animated-lyrics.svg"/>
 
