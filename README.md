@@ -63,5 +63,4 @@ lDeKnc8MbOisNu+1RY4mPOgU+tHr0Hg=
 </details>
 
 
-<!--START_SECTION:waka-->
-<!--END_SECTION:waka-->
+[![willianrod's wakatime stats](https://github-readme-stats.vercel.app/api/wakatime?username=fdciabdul)](https://github.com/anuraghazra/github-readme-stats)
