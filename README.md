@@ -20,5 +20,15 @@ Connect with me :
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
 
 <!--START_SECTION:waka-->
+
+```text
+JavaScript   8 hrs 20 mins   ██████████████████▒░░░░░░   72.93 %
+Python       42 mins         █▓░░░░░░░░░░░░░░░░░░░░░░░   06.23 %
+EJS          38 mins         █▒░░░░░░░░░░░░░░░░░░░░░░░   05.65 %
+Dart         36 mins         █▒░░░░░░░░░░░░░░░░░░░░░░░   05.33 %
+PHP          24 mins         █░░░░░░░░░░░░░░░░░░░░░░░░   03.55 %
+INI          22 mins         ▓░░░░░░░░░░░░░░░░░░░░░░░░   03.27 %
+```
+
 <!--END_SECTION:waka-->
 
