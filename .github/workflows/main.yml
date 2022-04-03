@@ -1,16 +1,16 @@
-name: Release
+name: Waka Readme
 
 on:
-  push:
-    tags:
-      - 'v3.*.*'
+  workflow_dispatch:
+  schedule:
+    # Runs at every 12AM UTC
+    - cron: "* * * * *"
 
 jobs:
-  release:
-    runs-on: ubuntu-18.04
+  update-readme:
+    name: Update this repo's README
+    runs-on: ubuntu-latest
     steps:
-      - uses: actions/checkout@v2.3.4
-      # https://github.com/peaceiris/workflows/blob/main/create-release-npm/action.yml
-      - uses: peaceiris/workflows/create-release-npm@v0.10.0
-        env:
-          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+      - uses: athul/waka-readme@master
+        with:
+          WAKATIME_API_KEY: ${{ secrets.WAKATIME_API_KEY }}
