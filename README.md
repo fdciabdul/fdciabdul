@@ -23,10 +23,7 @@ CODINGTIME ⛱️
 <!--START_SECTION:waka-->
 
 ```text
-PHP          25 mins         ███████████████████▓░░░░░   78.80 %
-JavaScript   6 mins          █████▒░░░░░░░░░░░░░░░░░░░   20.79 %
-XML          0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.22 %
-Other        0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.13 %
+No activity tracked
 ```
 
 <!--END_SECTION:waka-->
