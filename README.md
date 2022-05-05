@@ -24,9 +24,7 @@ CODINGTIME ⛱️
 <!--START_SECTION:waka-->
 
 ```text
-JavaScript   1 hr 45 mins    ███████████████████████░░   91.54 %
-JSON         8 mins          █▓░░░░░░░░░░░░░░░░░░░░░░░   07.01 %
-INI          1 min           ▒░░░░░░░░░░░░░░░░░░░░░░░░   01.45 %
+No activity tracked
 ```
 
 <!--END_SECTION:waka-->
