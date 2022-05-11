@@ -24,7 +24,10 @@ CODINGTIME ⛱️
 <!--START_SECTION:waka-->
 
 ```text
-JavaScript   8 mins          █████████████████████████   100.00 %
+JavaScript   8 mins          ███████████████████████░░   92.18 %
+TypeScript   0 secs          █▓░░░░░░░░░░░░░░░░░░░░░░░   06.32 %
+JSON         0 secs          ▒░░░░░░░░░░░░░░░░░░░░░░░░   01.36 %
+LESS         0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.14 %
 ```
 
 <!--END_SECTION:waka-->
