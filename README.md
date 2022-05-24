@@ -18,9 +18,7 @@ Connect with me :
 
 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
-
-CODINGTIME ⛱️
-![Code Time](https://img.shields.io/endpoint?style=for-the-badge&url=https://codetime-api.datreks.com/badge/3948?logoColor=white%26project=%26recentMS=2592000000%26showProject=true)
+Wakatime code stats!
 <!--START_SECTION:waka-->
 
 ```text
