@@ -18,6 +18,10 @@ Connect with me :
 
 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
+ 
+![](https://raw.githubusercontent.com/fdciabdul/upgraded-happiness/master/generated/overview.svg#gh-dark-mode-only)
+ ![](https://raw.githubusercontent.com/fdciabdul/upgraded-happiness/master/generated/languages.svg#gh-dark-mode-only)
+
 Wakatime code stats!
 <!--START_SECTION:waka-->
 
