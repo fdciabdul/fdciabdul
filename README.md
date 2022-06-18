@@ -26,9 +26,11 @@ Wakatime code stats!
 <!--START_SECTION:waka-->
 
 ```text
-JavaScript   46 mins         ██████████████████████░░░   88.56 %
-EJS          5 mins          ██▓░░░░░░░░░░░░░░░░░░░░░░   10.86 %
-Git Config   0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.58 %
+JavaScript   1 hr 29 mins    █████████████████░░░░░░░░   68.42 %
+Dart         20 mins         ███▓░░░░░░░░░░░░░░░░░░░░░   15.32 %
+Kotlin       6 mins          █░░░░░░░░░░░░░░░░░░░░░░░░   04.60 %
+EJS          5 mins          █░░░░░░░░░░░░░░░░░░░░░░░░   04.35 %
+Other        4 mins          █░░░░░░░░░░░░░░░░░░░░░░░░   03.36 %
 ```
 
 <!--END_SECTION:waka-->
