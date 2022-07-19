@@ -26,12 +26,11 @@ Wakatime code stats!
 <!--START_SECTION:waka-->
 
 ```text
-JavaScript   1 hr 49 mins    ███████████▓░░░░░░░░░░░░░   46.84 %
-TypeScript   56 mins         ██████░░░░░░░░░░░░░░░░░░░   24.28 %
-JSON         29 mins         ███▒░░░░░░░░░░░░░░░░░░░░░   12.76 %
-HTML         27 mins         ███░░░░░░░░░░░░░░░░░░░░░░   11.72 %
-Markdown     6 mins          ▓░░░░░░░░░░░░░░░░░░░░░░░░   02.67 %
-Dart         4 mins          ▒░░░░░░░░░░░░░░░░░░░░░░░░   01.73 %
+JavaScript   1 hr 44 mins    █████████████▒░░░░░░░░░░░   53.06 %
+TypeScript   56 mins         ███████▒░░░░░░░░░░░░░░░░░   28.79 %
+JSON         29 mins         ███▓░░░░░░░░░░░░░░░░░░░░░   14.98 %
+Markdown     6 mins          ▓░░░░░░░░░░░░░░░░░░░░░░░░   03.16 %
+Batchfile    0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.00 %
 ```
 
 <!--END_SECTION:waka-->
