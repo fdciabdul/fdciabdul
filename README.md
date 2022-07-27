@@ -1,26 +1,29 @@
-#### Platform&Tools
+```css
+C:\Users\fdciabdul>winfetch
 
-[![](https://img.shields.io/badge/-NPM-cb3837?style=flat-square&logo=npm&logoColor=white)](https://npmjs.com/)
-[![](https://img.shields.io/badge/-Linux-fcc624?style=flat-square&logo=linux&logoColor=white)](https://www.linuxfoundation.org/)
-[![](https://img.shields.io/badge/-Node.js-43853d?style=flat-square&logo=node.js&logoColor=ffffff)](https://nodejs.org/)
-[![](https://img.shields.io/badge/Visual_Studio_Code-0078D4?style=flat-square&logo=visual%20studio%20code&logoColor=white)](https://nodejs.org/)
-[![](https://img.shields.io/badge/PHP-777BB4?style=flat-square&logo=php&logoColor=white)](https://nodejs.org/)
-[![](https://img.shields.io/badge/Julia-9558B2?style=flat-square&logo=julia&logoColor=white)](https://nodejs.org/)
-<img src="https://avatars0.githubusercontent.com/u/31664438?s=460&u=251f36d7ab0fb4a74b162be7b18f6cdca8a74f8c&v=4" width="120" height="120" align="left">
-<center>
-Connect with me :
+ lllllllllllllll   lllllllllllllll  fdciabdul@WIN-2HF6EL53JTC
+ lllllllllllllll   lllllllllllllll  -----------------------------
+ lllllllllllllll   lllllllllllllll  OS: Windows 11 Pro [64-bit]
+ lllllllllllllll   lllllllllllllll  Username: fdciabdul
+ lllllllllllllll   lllllllllllllll  Skill: Javascript , PHP , Rust , Python
+ lllllllllllllll   lllllllllllllll  Hobbies: Gaming , Music-ing , Coding
+ lllllllllllllll   lllllllllllllll  Game :
+                                    Packages: 23 (choco)
+ lllllllllllllll   lllllllllllllll  Shell: PowerShell v5.1.22621.169
+ lllllllllllllll   lllllllllllllll  Resolution: 1920x1080
+ lllllllllllllll   lllllllllllllll  Terminal: Windows Console
+ lllllllllllllll   lllllllllllllll  CPU: Intel(R) Core(TM) i5-1035G1 CPU @ 1.00GHz
+ lllllllllllllll   lllllllllllllll  GPU: Intel(R) UHD Graphics
+ lllllllllllllll   lllllllllllllll  Memory: 2.7 GiB / 11.74 GiB (23%)
+ lllllllllllllll   lllllllllllllll  Disk (C:): 70 GiB / 1337 GiB (29%)
 
-<a href="https://fb.me/fdciabdul"><img src="https://cdn-icons-png.flaticon.com/512/145/145802.png" alt="alt text" width="30" height="30"></a>      &nbsp;&nbsp;   <a href="https://instagram.com/fdciabdul"><img src="https://cdn-icons-png.flaticon.com/512/174/174855.png" alt="alt text" width="30" height="30"></a>
- &nbsp;&nbsp; 
-<a href="https://twitter.com/fdciabdul"><img src="https://user-images.githubusercontent.com/31664438/134009546-a0b29d09-a883-435e-9581-3c2692f0ac6e.png" alt="alt text" width="30" height="30"></a>
 
 
 
 
-&nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
- 
-![](https://raw.githubusercontent.com/fdciabdul/upgraded-happiness/master/generated/overview.svg#gh-dark-mode-only)
- ![](https://raw.githubusercontent.com/fdciabdul/upgraded-happiness/master/generated/languages.svg#gh-dark-mode-only)
+```
+
+
 
 Wakatime code stats!
 <!--START_SECTION:waka-->
