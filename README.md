@@ -18,9 +18,6 @@ C:\Users\fdciabdul>winfetch
  lllllllllllllll   lllllllllllllll  
 
 
-
-
-
 ```
 
 
