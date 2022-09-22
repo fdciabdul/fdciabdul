@@ -1,1 +1,1 @@
-you and me didn't wanna talk to much , i know it 
+you and me didn't want talk to much , i know it 
