@@ -22,18 +22,19 @@ Connect with me :
 ![](https://raw.githubusercontent.com/fdciabdul/upgraded-happiness/master/generated/overview.svg#gh-dark-mode-only)
  ![](https://raw.githubusercontent.com/fdciabdul/upgraded-happiness/master/generated/languages.svg#gh-dark-mode-only)
 
-Wakatime code stats!
+Skills
 <!--START_SECTION:waka-->
 
 ```text
-JavaScript    17 hrs 45 mins  ████████████████▓░░░░░░░░   66.13 %
+
+JavaScript    17 hrs 45 mins  ██████████████████████▓░░   76.13 %
 TypeScript    2 hrs 51 mins   ██▓░░░░░░░░░░░░░░░░░░░░░░   10.66 %
 JSON          2 hrs 16 mins   ██░░░░░░░░░░░░░░░░░░░░░░░   08.47 %
-EJS           1 hr 30 mins    █▒░░░░░░░░░░░░░░░░░░░░░░░   05.62 %
-PHP           32 mins         ▓░░░░░░░░░░░░░░░░░░░░░░░░   02.04 %
+EJS           1 hr 30 mins    █████████████████████░░░░   65.62 %
+PHP           32 mins         █████████████░░░░░░░░░░░░   42.04 %
 Java          27 mins         ▒░░░░░░░░░░░░░░░░░░░░░░░░   01.68 %
 ```
 
 <!--END_SECTION:waka-->
 
-  <img src="https://spotify-github-profile.vercel.app/api/view.svg?uid=31fxueisurbioqiey3dphqlbp5ke&cover_image=true&theme=default&show_offline=true&background_color=2c2a2a&bar_color=00ff00&bar_color_cover=true"/>
+  <img src="https://spotify-github-profile.vercel.app/api/view.svg?uid=31fxueisurbioqiey3dphqlbp5ke&cover_image=true&theme=default&show_offline=true&background_color=2c2a2a&bar_color=00ff00&bar_color_cover=true" width="120" height="120"/>
