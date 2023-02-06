@@ -19,7 +19,7 @@ Connect with me :
                        
                        
                                              
-<img src="https://spotify-github-profile.vercel.app/api/view.svg?uid=31fxueisurbioqiey3dphqlbp5ke&cover_image=true&theme=default&show_offline=true&background_color=2c2a2a&bar_color=00ff00&bar_color_cover=true" width="120" height="140"/>
+<img src="https://spotify-github-profile.vercel.app/api/view.svg?uid=31fxueisurbioqiey3dphqlbp5ke&cover_image=true&theme=default&show_offline=true&background_color=2c2a2a&bar_color=00ff00&bar_color_cover=true" width="120"/>
 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
  
