@@ -24,4 +24,13 @@ Connect with me :
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
  
 <!--START_SECTION:waka-->
+
+```text
+JavaScript      17 hrs 19 mins  ██████████████████▒░░░░░░   72.84 %
+PHP             3 hrs 13 mins   ███▒░░░░░░░░░░░░░░░░░░░░░   13.53 %
+TypeScript      42 mins         ▓░░░░░░░░░░░░░░░░░░░░░░░░   02.98 %
+JSON            26 mins         ▒░░░░░░░░░░░░░░░░░░░░░░░░   01.89 %
+Other           26 mins         ▒░░░░░░░░░░░░░░░░░░░░░░░░   01.82 %
+```
+
 <!--END_SECTION:waka-->
