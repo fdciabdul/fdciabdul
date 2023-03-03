@@ -8,12 +8,8 @@
 [![](https://img.shields.io/badge/Julia-9558B2?style=flat-square&logo=julia&logoColor=white)](https://nodejs.org/)
 <img src="https://spotify-github-profile.vercel.app/api/view.svg?uid=31fxueisurbioqiey3dphqlbp5ke&cover_image=true&theme=default&show_offline=true&background_color=2c2a2a&bar_color=00ff00&bar_color_cover=true" width="120" align="left">
 <center>
-Connect with me :
 
-
-   Spotify Activity <3 
-                       
-                       
+               
                        
                                              
 
