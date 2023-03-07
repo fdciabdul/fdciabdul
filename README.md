@@ -6,7 +6,7 @@
 [![](https://img.shields.io/badge/Visual_Studio_Code-0078D4?style=flat-square&logo=visual%20studio%20code&logoColor=white)](https://nodejs.org/)
 [![](https://img.shields.io/badge/PHP-777BB4?style=flat-square&logo=php&logoColor=white)](https://nodejs.org/)
 [![](https://img.shields.io/badge/Julia-9558B2?style=flat-square&logo=julia&logoColor=white)](https://nodejs.org/)
-<img src="https://spotify-github-profile.vercel.app/api/view.svg?uid=31fxueisurbioqiey3dphqlbp5ke&cover_image=true&theme=default&show_offline=true&background_color=2c2a2a&bar_color=00ff00&bar_color_cover=true" width="120" align="left">
+<img src="https://spotify-github-profile.vercel.app/api/view.svg?uid=31gh2voaydydd766elhm6h35d6iy&cover_image=true&theme=default&show_offline=true&background_color=2c2a2a&bar_color=00ff00&bar_color_cover=true" width="120" align="left">
 <center>
 
                
