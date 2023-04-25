@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ الجُمُعَةِ (Al-Jumu'a)**
+**Surah 3: سُورَةُ اللَّيۡلِ (Al-Lail)**
 
-THE PARABLE of those who were graced with the burden of the Torah, and thereafter failed to bear this burden, is that of an ass that carries a load of books [but cannot benefit from them]. Calamitous is the parable of people who are bent on giving the lie to God's messages - for God does not bestow His guidance upon such evildoing folk!
+Consider the creation of the male and the female!
 <!--END_SECTION:quran-->
 
   
