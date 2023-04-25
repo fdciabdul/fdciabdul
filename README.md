@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ إِبۡرَاهِيمَ (Ibrahim)**
+**Surah 9: سُورَةُ الفَجۡرِ (Al-Fajr)**
 
-For on that Day thou wilt see all who were lost in sin linked together in fetters,
+and with [the tribe of] Thamud, who hollowed out rocks in the valley? –
 <!--END_SECTION:quran-->
 
   
