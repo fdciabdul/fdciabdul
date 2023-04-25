@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الشَّرۡحِ (Ash-Sharh)**
+**Surah 48: سُورَةُ النُّورِ (An-Noor)**
 
-and unto thy Sustainer turn with love.
+And [so it is that] whenever they are summoned unto God and His Apostle in order that [the divine writ] might judge between them, lo! some of them turn away;
 <!--END_SECTION:quran-->
 
   
