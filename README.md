@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الشُّورَىٰ (Ash-Shura)**
+**Surah 78: سُورَةُ النَّمۡلِ (An-Naml)**
 
-NOW AS FOR those who take aught beside Him for their protectors - God watches them, and thou art not responsible for their conduct.
+Verily, [O believer,] thy Sustainer will judge between them in His wisdom - for He alone is almighty, all-knowing.
 <!--END_SECTION:quran-->
 
   
