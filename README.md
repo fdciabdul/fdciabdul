@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ يُونُسَ (Yunus)**
+**Surah 16: سُورَةُ الحَشۡرِ (Al-Hashr)**
 
-Will you, then, believe in it [only] after it has come to pass -[on the Day when you will be asked, `Do you believe in it] now, after having [contemptuously] called for its speedy advent?'
+the like of [what happens] when Satan says unto man, “Deny the truth!” - but as soon as [man] has denied the truth, [Satan] says, “Behold, I am not responsible for thee: behold, I fear God, the Sustainer of all the worlds!”
 <!--END_SECTION:quran-->
 
   
