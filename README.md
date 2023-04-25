@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ الصَّفِّ (As-Saff)**
+**Surah 19: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa)**
 
-O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?
+for, unto Him belong all [beings] that are in the heavens and on earth; and those that are with Him are never too proud to worship Him and never grow weary [thereof]:
 <!--END_SECTION:quran-->
 
   
