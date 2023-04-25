@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ التَّكۡوِيرِ (At-Takwir)**
+**Surah 3: سُورَةُ العَصۡرِ (Al-Asr)**
 
-[on that Day] every human being will come to know what he has prepared [for himself].
+unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
 <!--END_SECTION:quran-->
 
   
