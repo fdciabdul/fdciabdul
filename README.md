@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّمۡلِ (An-Naml)**
+**Surah 12: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana)**
 
-Verily, [O believer,] thy Sustainer will judge between them in His wisdom - for He alone is almighty, all-knowing.
+O Prophet! Whenever believing women come unto thee to pledge their allegiance to thee, [pledging] that [henceforth] they would not ascribe divinity, in any way, to aught but God, and would not steal, and would not commit adultery, and would not kill their children, and would not indulge in slander, falsely devising it out of nothingness: and would not disobey thee in anything [that thou declarest to be] right - then accept their pledge of allegiance, and pray to God to forgive them their [past] sins: for, behold, God is much-forgiving, a dispenser of grace.
 <!--END_SECTION:quran-->
 
   
