@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ التَّكَاثُرِ (At-Takaathur)**
+**Surah 6: سُورَةُ التِّينِ (At-Tin)**
 
-you would indeed, most surely, behold the blazing fire [of hell]!
+excepting only such as attain to faith and do good works: and theirs shall be a reward unending!
 <!--END_SECTION:quran-->
 
   
