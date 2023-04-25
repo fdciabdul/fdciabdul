@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ الجِنِّ (Al-Jinn)**
+**Surah 3: سُورَةُ النَّصۡرِ (An-Nasr)**
 
-"'And, withal, we have come to know that we can never elude God [while we live] on earth, and that we can never elude Him by escaping [from life].
+extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
 <!--END_SECTION:quran-->
 
   
