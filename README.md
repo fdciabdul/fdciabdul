@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الوَاقِعَةِ (Al-Waaqia)**
+**Surah 22: سُورَةُ المُلۡكِ (Al-Mulk)**
 
-with goblets, and ewers, and cups filled with water from unsullied springs
+But then, is he that goes along with his face close to the ground better guided than he that walks upright on a straight way?
 <!--END_SECTION:quran-->
 
   
