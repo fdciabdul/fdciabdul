@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ الطُّورِ (At-Tur)**
+**Surah 76: سُورَةُ يُونُسَ (Yunus)**
 
-[It will come to pass] on the Day when the skies will be convulsed in [a great] convulsion,
+And so, when the truth came to them from Us, they said, "Behold, this is clearly nothing but sorcery!"
 <!--END_SECTION:quran-->
 
   
