@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ الحَشۡرِ (Al-Hashr)**
+**Surah 3: سُورَةُ الشَّرۡحِ (Ash-Sharh)**
 
-the like of [what happens] when Satan says unto man, “Deny the truth!” - but as soon as [man] has denied the truth, [Satan] says, “Behold, I am not responsible for thee: behold, I fear God, the Sustainer of all the worlds!”
+that had weighed so heavily on thy back?
 <!--END_SECTION:quran-->
 
   
