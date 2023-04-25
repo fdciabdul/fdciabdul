@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ يُونُسَ (Yunus)**
+**Surah 13: سُورَةُ النُّورِ (An-Noor)**
 
-He it is who has made the sun a [source of] radiant light and the moon a light [reflected], and has determined for it phases so that you might know how to compute the years and to measure [time]. None of this has God created without [an inner] truth. Clearly does He spell out these messages unto people of [innate] knowledge:
+why do they not [demand of the accusers that they] their allegation? for, if they do not produce such wit­nesses, it is those [accusers] who, in the sight of God, are liars indeed!
 <!--END_SECTION:quran-->
 
   
