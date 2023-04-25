@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ الكَوۡثَرِ (Al-Kawthar)**
+**Surah 180: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa)**
 
-BEHOLD, We have bestowed upon thee good in abundance:
+“And no reward whatever do I ask of you for it: my reward rests with none but the Sustainer of all the worlds.
 <!--END_SECTION:quran-->
 
   
