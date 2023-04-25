@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ التَّكۡوِيرِ (At-Takwir)**
+**Surah 10: سُورَةُ الصَّفِّ (As-Saff)**
 
-he truly beheld [the angel - beheld] him on the clear horizon;
+O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?
 <!--END_SECTION:quran-->
 
   
