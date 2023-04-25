@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ المُلۡكِ (Al-Mulk)**
+**Surah 16: سُورَةُ السَّجۡدَةِ (As-Sajda)**
 
-But then, is he that goes along with his face close to the ground better guided than he that walks upright on a straight way?
+[and] who are im­pelled to rise from their beds [at night] to call out to their Sustainer in fear and hope; and who spend on others out of what We provide for them as sus­tenance.
 <!--END_SECTION:quran-->
 
   
