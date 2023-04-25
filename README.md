@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ النَّصۡرِ (An-Nasr)**
+**Surah 4: سُورَةُ قٓ (Qaaf)**
 
-and thou seest people enter God's religion in hosts,
+Well do We know how the earth consumes their bodies, for with Us is a record unfailing.
 <!--END_SECTION:quran-->
 
   
