@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ المَسَدِ (Al-Masad)**
+**Surah 43: سُورَةُ الرُّومِ (Ar-Room)**
 
-What will his wealth avail him, and all that he has gained?
+Set, then, thy face steadfastly towards the one ever-true faith, ere there come from God a Day [of reckoning - the Day] which cannot be averted. On that Day all will be sundered:
 <!--END_SECTION:quran-->
 
   
