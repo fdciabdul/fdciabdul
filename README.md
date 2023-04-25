@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الطُّورِ (At-Tur)**
+**Surah 5: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha)**
 
-And they [who are thus blest] will turn to one another, asking each other [about their past lives].
+Thee alone do we worship; and unto Thee alone do we turn for aid.
 <!--END_SECTION:quran-->
 
   
