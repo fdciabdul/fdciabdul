@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ الأَحۡقَافِ (Al-Ahqaf)**
+**Surah 8: سُورَةُ الطَّارِقِ (At-Taariq)**
 
-But he who does not respond to God’s call can never elude [Him] on earth, nor can he has any protector against Him [in the life to come]: all such are most obviously lost in error.”
+Now, verily, He [who thus creates man in the first instance] is well able to bring him back [to life]
 <!--END_SECTION:quran-->
 
   
