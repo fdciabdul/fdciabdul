@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ عَبَسَ (Abasa)**
+**Surah 61: سُورَةُ الأَنفَالِ (Al-Anfaal)**
 
-lofty and pure,
+But if they incline to peace, incline thou to it as well, and place thy trust in God: verily, He alone is all-hearing, all-knowing!
 <!--END_SECTION:quran-->
 
   
