@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ يُوسُفَ (Yusuf)**
+**Surah 8: سُورَةُ القَارِعَةِ (Al-Qaari'a)**
 
-Indeed, in [the story of] Joseph and his brothers there are messages for all who search [after truth].
+whereas he whose weight is light in the balance
 <!--END_SECTION:quran-->
 
   
