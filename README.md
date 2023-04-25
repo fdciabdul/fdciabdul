@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ النَّصۡرِ (An-Nasr)**
+**Surah 26: سُورَةُ السَّجۡدَةِ (As-Sajda)**
 
-extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
+[But] can, then, they [who deny the truth] learn no lesson by recalling how many a generation We have destroyed before their time? [people] in whose dwelling-places they [themselves now] walk about? In this, behold, there are messages indeed: will they not, then, listen?
 <!--END_SECTION:quran-->
 
   
