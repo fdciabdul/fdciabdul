@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ النَّمۡلِ (An-Naml)**
+**Surah 12: سُورَةُ لُقۡمَانَ (Luqman)**
 
-She added: “O you nobles! Give me your opinion on the problem with which I am now faced; I would never make a [weighty] decision unless you are present with me.”
+and, indeed, we granted this wisdom unto Luq­man: “Be grateful unto God - for he who is grateful [unto Him] is but grateful for the good of his own self; whereas he who chooses to be ungrateful [ought to know that], verily, God is self-sufficient, ever to be praised!”
 <!--END_SECTION:quran-->
 
   
