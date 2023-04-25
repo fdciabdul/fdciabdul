@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ الحَجِّ (Al-Hajj)**
+**Surah 1: سُورَةُ العَادِيَاتِ (Al-Aadiyaat)**
 
-causing all that is within their bodies, as well as the skins, to melt away.
+Oh, the chargers that run panting,
 <!--END_SECTION:quran-->
 
   
