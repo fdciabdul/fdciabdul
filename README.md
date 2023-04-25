@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ المُدَّثِّرِ (Al-Muddaththir)**
+**Surah 5: سُورَةُ المَاعُونِ (Al-Maa'un)**
 
-But they [who do not believe in the life to come] will not take it to heart unless God so wills: [for] He is the Fount of all God-consciousness, and the Fount of all forgiveness.
+whose hearts from their prayer are remote
 <!--END_SECTION:quran-->
 
   
