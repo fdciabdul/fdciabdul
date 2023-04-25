@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ سَبَإٍ (Saba)**
+**Surah 3: سُورَةُ الكَافِرُونَ (Al-Kaafiroon)**
 
-and so they ask, “When is this promise [of resurrection and judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!”
+and neither do you worship that which I worship!
 <!--END_SECTION:quran-->
 
   
