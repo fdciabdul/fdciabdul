@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ النُّورِ (An-Noor)**
+**Surah 60: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf)**
 
-And [so it is that] whenever they are summoned unto God and His Apostle in order that [the divine writ] might judge between them, lo! some of them turn away;
+And had We so willed, [O you who worship angels,] We could indeed have made you into angels succeeding one another on earth!
 <!--END_SECTION:quran-->
 
   
