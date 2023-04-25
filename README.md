@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ المُلۡكِ (Al-Mulk)**
+**Surah 21: سُورَةُ الحِجۡرِ (Al-Hijr)**
 
-AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.
+For, no single thing exists that does not have its source with Us; and nought do We bestow from on high unless it be in accordance with a measure well-defined.
 <!--END_SECTION:quran-->
 
   
