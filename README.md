@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ عَبَسَ (Abasa)**
+**Surah 13: سُورَةُ الجِنِّ (Al-Jinn)**
 
-but as for him who came unto thee full of eagerness
+Hence, as soon as we heard this [call to His] guidance, we came to believe in it: and he who believes in his Sustainer need never have fear of loss or injustice.
 <!--END_SECTION:quran-->
 
   
