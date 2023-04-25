@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ العَنكَبُوتِ (Al-Ankaboot)**
+**Surah 15: سُورَةُ العَلَقِ (Al-Alaq)**
 
-Thereupon [his brother’s son] Lot came to believe in him and said: “Verily, I [too] shall forsake the domain of evil [and turn] to my Sustainer: for, verily, He alone is almighty, truly wise!”
+Nay, if he desist not, We shall most surely drag him down upon his forehead
 <!--END_SECTION:quran-->
 
   
