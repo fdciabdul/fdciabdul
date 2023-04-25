@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha)**
+**Surah 36: سُورَةُ الوَاقِعَةِ (Al-Waaqia)**
 
-All praise is due to God alone, the Sustainer of all the worlds,
+having resurrected them as virgins,
 <!--END_SECTION:quran-->
 
   
