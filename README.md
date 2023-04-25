@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 132: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa)**
+**Surah 12: سُورَةُ الإِنسَانِ (Al-Insaan)**
 
-and [thus] be conscious of Him who has [so] amply provided you with all [the good] that you might think of
+and will reward them for all their patience in adversity with a garden [of bliss] and with [garments of] silk.
 <!--END_SECTION:quran-->
 
   
