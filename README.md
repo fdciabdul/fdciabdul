@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ السَّجۡدَةِ (As-Sajda)**
+**Surah 14: سُورَةُ التَّكۡوِيرِ (At-Takwir)**
 
-[But] can, then, they [who deny the truth] learn no lesson by recalling how many a generation We have destroyed before their time? [people] in whose dwelling-places they [themselves now] walk about? In this, behold, there are messages indeed: will they not, then, listen?
+[on that Day] every human being will come to know what he has prepared [for himself].
 <!--END_SECTION:quran-->
 
   
