@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala)**
+**Surah 35: سُورَةُ عَبَسَ (Abasa)**
 
-and [when] the earth yields up her burdens,
+and from his mother and father,
 <!--END_SECTION:quran-->
 
   
