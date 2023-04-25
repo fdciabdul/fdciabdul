@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ يُونُسَ (Yunus)**
+**Surah 39: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat)**
 
-and neither be among those who are bent on giving the lie to God's messages, lest thou find thyself among the lost.
+and if you [think that you] have a subterfuge left, try to outwit Me!"
 <!--END_SECTION:quran-->
 
   
