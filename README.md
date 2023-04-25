@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ الفَجۡرِ (Al-Fajr)**
+**Surah 18: سُورَةُ القِيَامَةِ (Al-Qiyaama)**
 
-and with [the tribe of] Thamud, who hollowed out rocks in the valley? –
+Thus, when We recite it, follow thou its wording [with all thy mind]:
 <!--END_SECTION:quran-->
 
   
