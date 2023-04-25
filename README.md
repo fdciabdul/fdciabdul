@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الرَّعۡدِ (Ar-Ra'd)**
+**Surah 23: سُورَةُ الرُّومِ (Ar-Room)**
 
-God annuls or confirms whatever He wills [of His earlier messages] -for with Him is the source of all revelation.
+And among His wonders is your sleep, at night or in daytime, as well as your [ability to go about in] quest of some of His bounties: in this, behold, there are messages indeed for people who [are willing to] listen!
 <!--END_SECTION:quran-->
 
   
