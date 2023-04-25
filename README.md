@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ التَّوۡبَةِ (At-Tawba)**
+**Surah 9: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat)**
 
-They were well-pleased to remain with those who were left behind - where for their hearts have been sealed, so that they cannot grasp the truth.
+perverted in his views thereon is he who would deceive himself!
 <!--END_SECTION:quran-->
 
   
