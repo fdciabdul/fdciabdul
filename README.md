@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الأَعۡلَىٰ (Al-A'laa)**
+**Surah 11: سُورَةُ الشُّورَىٰ (Ash-Shura)**
 
-Verily, [all] this has indeed been [said] in the earlier revelations –
+The Originator [is He] of the heavens and the earth. He has given you mates of your own kind just as [He has willed that] among the beasts [there be] mates - to multiply you thereby: [but] there is nothing like unto Him, and He alone is all-hearing, all-seeing.
 <!--END_SECTION:quran-->
 
   
