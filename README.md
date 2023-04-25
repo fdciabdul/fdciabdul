@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ النَّجۡمِ (An-Najm)**
+**Surah 39: سُورَةُ الرَّعۡدِ (Ar-Ra'd)**
 
-HAVE YOU, then, ever considered [what you are worshipping in] Al-Lat and Al-Uzza,
+God annuls or confirms whatever He wills [of His earlier messages] -for with Him is the source of all revelation.
 <!--END_SECTION:quran-->
 
   
