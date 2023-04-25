@@ -4,10 +4,16 @@ const axios = require('axios');
 async function getRandomAyah() {
   const apiUrl = 'https://api.alquran.cloud/v1/quran/en.asad';
   const response = await axios.get(apiUrl);
-  const ayahs = response.data.data.ayahs;
-  const randomAyah = ayahs[Math.floor(Math.random() * ayahs.length)];
-  return randomAyah;
+
+  if (response.data.status === 'OK' && response.data.data) {
+    const ayahs = response.data.data.ayahs;
+    const randomAyah = ayahs[Math.floor(Math.random() * ayahs.length)];
+    return randomAyah;
+  } else {
+    throw new Error('Unable to fetch Ayahs from the API.');
+  }
 }
+
 
 
 async function updateReadme(ayah) {
