@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ الوَاقِعَةِ (Al-Waaqia)**
+**Surah 12: سُورَةُ الجِنِّ (Al-Jinn)**
 
-and acacias flower-clad,
+"'And, withal, we have come to know that we can never elude God [while we live] on earth, and that we can never elude Him by escaping [from life].
 <!--END_SECTION:quran-->
 
   
