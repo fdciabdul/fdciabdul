@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ النَّبَإِ (An-Naba)**
+**Surah 7: سُورَةُ يُوسُفَ (Yusuf)**
 
-And We have created you in pairs;
+Indeed, in [the story of] Joseph and his brothers there are messages for all who search [after truth].
 <!--END_SECTION:quran-->
 
   
