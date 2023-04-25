@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الأَحۡزَابِ (Al-Ahzaab)**
+**Surah 48: سُورَةُ الدُّخَانِ (Ad-Dukhaan)**
 
-[However,] it is no sin for them [to appear freely] before their fathers, or their sons, or their brothers, or their brothers’ sons, or their sisters’ sons, or their womenfolk, or such [male slaves] as their right hands may possess. But [always, O wives of the Prophet,] remain con­scious of God - for, behold, God is witness unto everything.
+then pour over his head the anguish of burning despair!
 <!--END_SECTION:quran-->
 
   
