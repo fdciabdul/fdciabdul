@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa)**
+**Surah 13: سُورَةُ المُلۡكِ (Al-Mulk)**
 
-for, unto Him belong all [beings] that are in the heavens and on earth; and those that are with Him are never too proud to worship Him and never grow weary [thereof]:
+AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.
 <!--END_SECTION:quran-->
 
   
