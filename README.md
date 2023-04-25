@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ الصَّفِّ (As-Saff)**
+**Surah 4: سُورَةُ النَّازِعَاتِ (An-Naazi'aat)**
 
-Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.
+and yet overtake [one another] with swift overtaking:
 <!--END_SECTION:quran-->
 
   
