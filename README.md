@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الدُّخَانِ (Ad-Dukhaan)**
+**Surah 4: سُورَةُ الصَّفِّ (As-Saff)**
 
-So wait thou [for what the future will bring]: behold, they, too, are waiting.
+Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.
 <!--END_SECTION:quran-->
 
   
