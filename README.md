@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ القَمَرِ (Al-Qamar)**
+**Surah 6: سُورَةُ التَّكَاثُرِ (At-Takaathur)**
 
-Now surely, unto Pharaoh’s folk [too] came such warnings;
+you would indeed, most surely, behold the blazing fire [of hell]!
 <!--END_SECTION:quran-->
 
   
