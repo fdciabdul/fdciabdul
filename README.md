@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ الحَجِّ (Al-Hajj)**
+**Surah 34: سُورَةُ النَّبَإِ (An-Naba)**
 
-Dost thou not know that God knows all that occurs in heaven as well as on earth? All this, behold, is in [God’s] record: verily, [to know] all this is easy for God.
+and a cup [of happiness] overflowing.
 <!--END_SECTION:quran-->
 
   
