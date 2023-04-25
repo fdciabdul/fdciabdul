@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ الجَاثِيَةِ (Al-Jaathiya)**
+**Surah 29: سُورَةُ الرَّعۡدِ (Ar-Ra'd)**
 
-And yet they say: “There is nothing beyond our life in this world. We die as we come to life, and nothing but time destroys us.” But of this they have no knowledge whatever: they do nothing but guess.
+[and so it is that] they who attain to faith and do righteous deeds are destined for happiness [in this world] and the most beauteous of all goals [in the life to come]!"
 <!--END_SECTION:quran-->
 
   
