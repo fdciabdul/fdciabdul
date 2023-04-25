@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ العَادِيَاتِ (Al-Aadiyaat)**
+**Surah 6: سُورَةُ البَيِّنَةِ (Al-Bayyina)**
 
-But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,
+Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.
 <!--END_SECTION:quran-->
 
   
