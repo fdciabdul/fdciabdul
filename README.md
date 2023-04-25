@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ القَارِعَةِ (Al-Qaari'a)**
+**Surah 24: سُورَةُ القَصَصِ (Al-Qasas)**
 
-whereas he whose weight is light in the balance
+So he watered [their flock] for them: and when he withdrew into the shade and prayed: “O my Sus­tainer! Verily, in dire need am I of any good which Thou mayest bestow upon me!”
 <!--END_SECTION:quran-->
 
   
