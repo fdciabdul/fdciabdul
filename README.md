@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana)**
+**Surah 112: سُورَةُ التَّوۡبَةِ (At-Tawba)**
 
-O Prophet! Whenever believing women come unto thee to pledge their allegiance to thee, [pledging] that [henceforth] they would not ascribe divinity, in any way, to aught but God, and would not steal, and would not commit adultery, and would not kill their children, and would not indulge in slander, falsely devising it out of nothingness: and would not disobey thee in anything [that thou declarest to be] right - then accept their pledge of allegiance, and pray to God to forgive them their [past] sins: for, behold, God is much-forgiving, a dispenser of grace.
+[It is a triumph of] those who turn [unto God] in repentance [whenever they have sinned], and who worship and praise [Him], and go on and on [seeking His goodly acceptance], and bow down [before Him] and prostrate themselves in adoration, and enjoin the doing of what is right and forbid the doing of what is wrong, and keep to the bounds set by God. And give thou [O Prophet] the glad tiding [of God's promise] to all believers.
 <!--END_SECTION:quran-->
 
   
