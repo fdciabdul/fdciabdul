@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ الجَاثِيَةِ (Al-Jaathiya)**
+**Surah 12: سُورَةُ الفَجۡرِ (Al-Fajr)**
 
-And [the word] will be spoken: “Today We shall be oblivious of you as you were oblivious of the coming of this your Day [of Judgment]; and so your goal is the fire, and you shall have none to succour you:
+and brought about great corruption therein:
 <!--END_SECTION:quran-->
 
   
