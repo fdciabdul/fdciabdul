@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha)**
+**Surah 23: سُورَةُ التَّكۡوِيرِ (At-Takwir)**
 
-Thee alone do we worship; and unto Thee alone do we turn for aid.
+he truly beheld [the angel - beheld] him on the clear horizon;
 <!--END_SECTION:quran-->
 
   
