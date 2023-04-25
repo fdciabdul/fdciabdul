@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana)**
+**Surah 32: سُورَةُ النَّمۡلِ (An-Naml)**
 
-If they could but overcome you, they would [still] remain your foes, and would stretch forth their hands and tongues against you with evil intent: for they desire that you [too] should deny the truth.
+She added: “O you nobles! Give me your opinion on the problem with which I am now faced; I would never make a [weighty] decision unless you are present with me.”
 <!--END_SECTION:quran-->
 
   
