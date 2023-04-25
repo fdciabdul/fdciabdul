@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ قٓ (Qaaf)**
+**Surah 6: سُورَةُ الشُّورَىٰ (Ash-Shura)**
 
-Well do We know how the earth consumes their bodies, for with Us is a record unfailing.
+NOW AS FOR those who take aught beside Him for their protectors - God watches them, and thou art not responsible for their conduct.
 <!--END_SECTION:quran-->
 
   
