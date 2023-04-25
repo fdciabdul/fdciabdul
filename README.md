@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الرُّومِ (Ar-Room)**
+**Surah 2: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala)**
 
-Set, then, thy face steadfastly towards the one ever-true faith, ere there come from God a Day [of reckoning - the Day] which cannot be averted. On that Day all will be sundered:
+and [when] the earth yields up her burdens,
 <!--END_SECTION:quran-->
 
   
