@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الأَعۡلَىٰ (Al-A'laa)**
+**Surah 5: سُورَةُ القَدۡرِ (Al-Qadr)**
 
-wherein he will neither die nor remain alive.
+does it make secure, until the rise of dawn.
 <!--END_SECTION:quran-->
 
   
