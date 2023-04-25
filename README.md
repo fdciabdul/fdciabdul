@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الجِنِّ (Al-Jinn)**
+**Surah 9: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon)**
 
-Hence, as soon as we heard this [call to His] guidance, we came to believe in it: and he who believes in his Sustainer need never have fear of loss or injustice.
+O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!
 <!--END_SECTION:quran-->
 
   
