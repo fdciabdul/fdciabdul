@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ الإِنسَانِ (Al-Insaan)**
+**Surah 6: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa)**
 
-[whereas,] behold, the truly virtuous shall drink from a cup flavoured with the calyx of sweet-smelling flowers:
+Not one of the communities that We destroyed in bygone times would ever believe [their prophets]: will these, then, [be more willing to] believe?
 <!--END_SECTION:quran-->
 
   
