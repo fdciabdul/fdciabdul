@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ قٓ (Qaaf)**
+**Surah 26: سُورَةُ العَنكَبُوتِ (Al-Ankaboot)**
 
-who has set up another deity beside God: cast him, then, cast him into suffering severe!”
+Thereupon [his brother’s son] Lot came to believe in him and said: “Verily, I [too] shall forsake the domain of evil [and turn] to my Sustainer: for, verily, He alone is almighty, truly wise!”
 <!--END_SECTION:quran-->
 
   
