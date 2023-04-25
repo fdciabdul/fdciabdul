@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الأَنفَالِ (Al-Anfaal)**
+**Surah 26: سُورَةُ قٓ (Qaaf)**
 
-But if they incline to peace, incline thou to it as well, and place thy trust in God: verily, He alone is all-hearing, all-knowing!
+who has set up another deity beside God: cast him, then, cast him into suffering severe!”
 <!--END_SECTION:quran-->
 
   
