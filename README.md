@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ النَّصۡرِ (An-Nasr)**
+**Surah 32: سُورَةُ الأَحۡقَافِ (Al-Ahqaf)**
 
-WHEN GOD'S SUCCOUR comes, and victory,
+But he who does not respond to God’s call can never elude [Him] on earth, nor can he has any protector against Him [in the life to come]: all such are most obviously lost in error.”
 <!--END_SECTION:quran-->
 
   
