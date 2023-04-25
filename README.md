@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرُّومِ (Ar-Room)**
+**Surah 30: سُورَةُ الجَاثِيَةِ (Al-Jaathiya)**
 
-for they will have no intercessors in the beings to whom they were wont to ascribe a share in God’s divinity, seeing that [by then] they themselves will have ceased to believe in their erstwhile blasphemous fancies.
+Now as for those who have attained to faith and done righteous deeds, their Sustainer will admit them to His grace: that will be [their] manifest triumph!
 <!--END_SECTION:quran-->
 
   
