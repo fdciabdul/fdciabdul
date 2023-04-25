@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ المَعَارِجِ (Al-Ma'aarij)**
+**Surah 5: سُورَةُ القَدۡرِ (Al-Qadr)**
 
-and of whoever [else] lives on earth, all of them - so that he could but save himself.
+does it make secure, until the rise of dawn.
 <!--END_SECTION:quran-->
 
   
