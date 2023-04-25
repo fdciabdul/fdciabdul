@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ العَادِيَاتِ (Al-Aadiyaat)**
+**Surah 1: سُورَةُ النَّصۡرِ (An-Nasr)**
 
-rushing to assault at morn,
+WHEN GOD'S SUCCOUR comes, and victory,
 <!--END_SECTION:quran-->
 
   
