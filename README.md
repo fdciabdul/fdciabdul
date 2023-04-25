@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَاعُونِ (Al-Maa'un)**
+**Surah 5: سُورَةُ المَسَدِ (Al-Masad)**
 
-whose hearts from their prayer are remote
+[who bears] around her neck a rope of twisted strands!
 <!--END_SECTION:quran-->
 
   
