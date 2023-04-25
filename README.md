@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّازِعَاتِ (An-Naazi'aat)**
+**Surah 3: سُورَةُ اللَّيۡلِ (Al-Lail)**
 
-[O MEN!] Are you more difficult to create than the heaven which He has built?
+Consider the creation of the male and the female!
 <!--END_SECTION:quran-->
 
   
