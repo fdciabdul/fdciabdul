@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الطَّارِقِ (At-Taariq)**
+**Surah 17: سُورَةُ النَّبَإِ (An-Naba)**
 
-Now, verily, He [who thus creates man in the first instance] is well able to bring him back [to life]
+VERILY, the Day of Distinction [between the true and the false] has indeed its appointed time:
 <!--END_SECTION:quran-->
 
   
