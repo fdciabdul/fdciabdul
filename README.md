@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ اللَّيۡلِ (Al-Lail)**
+**Surah 3: سُورَةُ العَادِيَاتِ (Al-Aadiyaat)**
 
-Consider the creation of the male and the female!
+rushing to assault at morn,
 <!--END_SECTION:quran-->
 
   
