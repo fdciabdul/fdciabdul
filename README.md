@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ اللَّيۡلِ (Al-Lail)**
+**Surah 8: سُورَةُ عَبَسَ (Abasa)**
 
-Consider the creation of the male and the female!
+but as for him who came unto thee full of eagerness
 <!--END_SECTION:quran-->
 
   
