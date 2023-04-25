@@ -6,8 +6,10 @@ async function getRandomAyah() {
   const response = await axios.get(apiUrl);
 
   if (response.data.status === 'OK' && response.data.data) {
-    const ayahs = response.data.data.ayahs;
-    const randomAyah = ayahs[Math.floor(Math.random() * ayahs.length)];
+    const surahlength = response.data.data.surah;
+    const randomsurah = response.data.data.surah[Math.floor(Math.random() * surahlength.length)];
+    const ayahlength = randomsurah.ayahs;
+    const randomAyah = ayahlength[Math.floor(Math.random() * surahlength.ayahlength)].text;
     return randomAyah;
   } else {
     throw new Error('Unable to fetch Ayahs from the API.');
