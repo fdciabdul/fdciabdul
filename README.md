@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الدُّخَانِ (Ad-Dukhaan)**
+**Surah 9: سُورَةُ العَادِيَاتِ (Al-Aadiyaat)**
 
-Are they, then, better than the people of Tubba and those before them, whom We destroyed because they were truly lost in [the same] sin?
+But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,
 <!--END_SECTION:quran-->
 
   
