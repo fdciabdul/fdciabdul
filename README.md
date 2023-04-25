@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon)**
+**Surah 2: سُورَةُ النَّصۡرِ (An-Nasr)**
 
-O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!
+and thou seest people enter God's religion in hosts,
 <!--END_SECTION:quran-->
 
   
