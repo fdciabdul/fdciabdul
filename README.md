@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf)**
+**Surah 60: سُورَةُ مَرۡيَمَ (Maryam)**
 
-And had We so willed, [O you who worship angels,] We could indeed have made you into angels succeeding one another on earth!
+Excepted, however, shall be those who repent and attain to faith and do righteous deeds: for it is they who will enter paradise and will not be wronged in any way:
 <!--END_SECTION:quran-->
 
   
