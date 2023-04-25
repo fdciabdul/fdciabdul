@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ فَاطِرٍ (Faatir)**
+**Surah 8: سُورَةُ النَّبَإِ (An-Naba)**
 
-But as for those who are bent on denying the truth - the fire of hell awaits them: no end shall be put to their lives so that they could die, nor shall aught of the suffering caused by that [fire] be lightened for them: thus shall We requite all who are bereft of gratitude.
+And We have created you in pairs;
 <!--END_SECTION:quran-->
 
   
