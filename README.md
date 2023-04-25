@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ المُلۡكِ (Al-Mulk)**
+**Surah 4: سُورَةُ القَدۡرِ (Al-Qadr)**
 
-[Hallowed be] He who has created seven heavens in full harmony with one another: no fault will thou see in the creation of the Most Gracious. And turn thy vision [upon it] once more: canst thou see any flaw?
+in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
 <!--END_SECTION:quran-->
 
   
