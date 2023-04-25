@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ الرَّعۡدِ (Ar-Ra'd)**
+**Surah 132: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa)**
 
-"Peace be upon you, because you have persevered!" How excellent, then, this fulfilment in the hereafter!
+and [thus] be conscious of Him who has [so] amply provided you with all [the good] that you might think of
 <!--END_SECTION:quran-->
 
   
