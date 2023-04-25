@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الحِجۡرِ (Al-Hijr)**
+**Surah 36: سُورَةُ فَاطِرٍ (Faatir)**
 
-For, no single thing exists that does not have its source with Us; and nought do We bestow from on high unless it be in accordance with a measure well-defined.
+But as for those who are bent on denying the truth - the fire of hell awaits them: no end shall be put to their lives so that they could die, nor shall aught of the suffering caused by that [fire] be lightened for them: thus shall We requite all who are bereft of gratitude.
 <!--END_SECTION:quran-->
 
   
