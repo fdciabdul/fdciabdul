@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala)**
+**Surah 25: سُورَةُ الطُّورِ (At-Tur)**
 
-on that Day will she recount all her tidings,
+And they [who are thus blest] will turn to one another, asking each other [about their past lives].
 <!--END_SECTION:quran-->
 
   
