@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ القَارِعَةِ (Al-Qaari'a)**
+**Surah 8: سُورَةُ الشَّرۡحِ (Ash-Sharh)**
 
-And what could make thee conceive what that sudden calamity will be?
+and unto thy Sustainer turn with love.
 <!--END_SECTION:quran-->
 
   
