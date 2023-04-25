@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ القِيَامَةِ (Al-Qiyaama)**
+**Surah 2: سُورَةُ النَّاسِ (An-Naas)**
 
-Thus, when We recite it, follow thou its wording [with all thy mind]:
+"the Sovereign of men,
 <!--END_SECTION:quran-->
 
   
