@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ البَيِّنَةِ (Al-Bayyina)**
+**Surah 4: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala)**
 
-Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.
+on that Day will she recount all her tidings,
 <!--END_SECTION:quran-->
 
   
