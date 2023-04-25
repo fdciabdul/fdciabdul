@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ الرَّعۡدِ (Ar-Ra'd)**
+**Surah 5: سُورَةُ التَّغَابُنِ (At-Taghaabun)**
 
-[and so it is that] they who attain to faith and do righteous deeds are destined for happiness [in this world] and the most beauteous of all goals [in the life to come]!"
+HAVE THE STORIES of those who, in earlier times, refused to acknowledge the truth never yet come within your ken? [They denied it -] and so they had to taste the evil outcome of their own doings, with [more] grievous suffering awaiting them [in the life to come]:
 <!--END_SECTION:quran-->
 
   
