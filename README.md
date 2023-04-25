@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الإِنسَانِ (Al-Insaan)**
+**Surah 2: سُورَةُ النَّصۡرِ (An-Nasr)**
 
-And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –
+and thou seest people enter God's religion in hosts,
 <!--END_SECTION:quran-->
 
   
