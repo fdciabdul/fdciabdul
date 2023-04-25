@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ العَلَقِ (Al-Alaq)**
+**Surah 70: سُورَةُ الحَجِّ (Al-Hajj)**
 
-Nay, if he desist not, We shall most surely drag him down upon his forehead
+Dost thou not know that God knows all that occurs in heaven as well as on earth? All this, behold, is in [God’s] record: verily, [to know] all this is easy for God.
 <!--END_SECTION:quran-->
 
   
