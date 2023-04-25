@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المُزَّمِّلِ (Al-Muzzammil)**
+**Surah 2: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha)**
 
-Behold, We shall bestow upon thee a weighty message –
+All praise is due to God alone, the Sustainer of all the worlds,
 <!--END_SECTION:quran-->
 
   
