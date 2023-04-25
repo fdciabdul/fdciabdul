@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ الحَدِيدِ (Al-Hadid)**
+**Surah 12: سُورَةُ قٓ (Qaaf)**
 
-O YOU who have attained to faith! Remain con­scious of God, and believe in His Apostle, [and] He will grant you doubly of His grace, and will light for you a light wherein you shall walk, and will forgive you [your past sins]: for God is much-forgiving, a dispenser of grace.
+[Long] before those [who now deny resur­rection] did Noah’s people give the lie to this truth, and [so did] the folk of Ar-Rass, and [the tribes of] Thamud
 <!--END_SECTION:quran-->
 
   
