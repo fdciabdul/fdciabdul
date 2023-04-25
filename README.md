@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ الفَجۡرِ (Al-Fajr)**
+**Surah 1: سُورَةُ الكَوۡثَرِ (Al-Kawthar)**
 
-and brought about great corruption therein:
+BEHOLD, We have bestowed upon thee good in abundance:
 <!--END_SECTION:quran-->
 
   
