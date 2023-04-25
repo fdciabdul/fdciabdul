@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ الوَاقِعَةِ (Al-Waaqia)**
+**Surah 2: سُورَةُ التَّوۡبَةِ (At-Tawba)**
 
-having resurrected them as virgins,
+[Announce unto them:] "Go, then, [freely] about the earth for four months -but know that you can never elude God, and that, verily, God shall bring disgrace upon all who refuse to acknowledge the truth!"
 <!--END_SECTION:quran-->
 
   
