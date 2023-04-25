@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ الحَجِّ (Al-Hajj)**
+**Surah 2: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana)**
 
-seeing that it is He who gave you life, and then will cause you to die, and then will bring you back to life: [but,] verily, bereft of all gratitude is man!
+If they could but overcome you, they would [still] remain your foes, and would stretch forth their hands and tongues against you with evil intent: for they desire that you [too] should deny the truth.
 <!--END_SECTION:quran-->
 
   
