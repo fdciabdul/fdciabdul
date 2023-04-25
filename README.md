@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ المُجَادلَةِ (Al-Mujaadila)**
+**Surah 8: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon)**
 
-As for those of you who [henceforth] separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, [let them bear in mind that] they can never be [as] their mothers: none are their mothers save those who gave them birth: and so, behold, they but utter a saying that runs counter to reason, and is [therefore] false. But, behold, God is indeed an absolver of sins, much-forgiving:
+[And] they say, "Indeed, when we return to the City [we,] the ones most worthy of honour will surely drive out therefrom those most contemptible ones!" However, all honour belongs to God, and [thus] to His Apostle and those who believe [in God]: but of this the hypocrites are not aware.
 <!--END_SECTION:quran-->
 
   
