@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ التَّغَابُنِ (At-Taghaabun)**
+**Surah 24: سُورَةُ الرَّعۡدِ (Ar-Ra'd)**
 
-Pay heed, then, unto God, and pay heed unto the Apostle; and if you turn away, [know that] Our Apostle's only duty is a clear delivery of this message:
+"Peace be upon you, because you have persevered!" How excellent, then, this fulfilment in the hereafter!
 <!--END_SECTION:quran-->
 
   
