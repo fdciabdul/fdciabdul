@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ التِّينِ (At-Tin)**
+**Surah 4: سُورَةُ العَادِيَاتِ (Al-Aadiyaat)**
 
-excepting only such as attain to faith and do good works: and theirs shall be a reward unending!
+thereby raising clouds of dust,
 <!--END_SECTION:quran-->
 
   
