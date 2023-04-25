@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ السَّجۡدَةِ (As-Sajda)**
+**Surah 3: سُورَةُ لُقۡمَانَ (Luqman)**
 
-[and] who are im­pelled to rise from their beds [at night] to call out to their Sustainer in fear and hope; and who spend on others out of what We provide for them as sus­tenance.
+providing guidance and grace unto the doers of good
 <!--END_SECTION:quran-->
 
   
