@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ الإِنسَانِ (Al-Insaan)**
+**Surah 87: سُورَةُ التَّوۡبَةِ (At-Tawba)**
 
-and will reward them for all their patience in adversity with a garden [of bliss] and with [garments of] silk.
+They were well-pleased to remain with those who were left behind - where for their hearts have been sealed, so that they cannot grasp the truth.
 <!--END_SECTION:quran-->
 
   
