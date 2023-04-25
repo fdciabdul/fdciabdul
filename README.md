@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ لُقۡمَانَ (Luqman)**
+**Surah 9: سُورَةُ الطُّورِ (At-Tur)**
 
-and, indeed, we granted this wisdom unto Luq­man: “Be grateful unto God - for he who is grateful [unto Him] is but grateful for the good of his own self; whereas he who chooses to be ungrateful [ought to know that], verily, God is self-sufficient, ever to be praised!”
+[It will come to pass] on the Day when the skies will be convulsed in [a great] convulsion,
 <!--END_SECTION:quran-->
 
   
