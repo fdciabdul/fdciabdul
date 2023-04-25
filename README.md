@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ الحِجۡرِ (Al-Hijr)**
+**Surah 14: سُورَةُ المَعَارِجِ (Al-Ma'aarij)**
 
-Verily, herein lies a message indeed for all who believe [in God].
+and of whoever [else] lives on earth, all of them - so that he could but save himself.
 <!--END_SECTION:quran-->
 
   
