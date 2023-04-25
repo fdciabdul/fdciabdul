@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ العَادِيَاتِ (Al-Aadiyaat)**
+**Surah 50: سُورَةُ مَرۡيَمَ (Maryam)**
 
-Oh, the chargers that run panting,
+and We bestowed upon them [manifold] gifts out of Our grace, and granted them a lofty power to convey the truth [unto others].
 <!--END_SECTION:quran-->
 
   
