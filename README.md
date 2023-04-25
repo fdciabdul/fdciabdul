@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ العَنكَبُوتِ (Al-Ankaboot)**
+**Surah 34: سُورَةُ عَبَسَ (Abasa)**
 
-And [Abraham] said: “You have chosen to worship idols instead of God for no other reason than to have a bond of love in the life of this world, between yourselves [and your forebears]: but then, on Resurrection Day, you shall disown one another and curse one another - for the goal of you all will be the fire, and you will have none to succour you.
+on a Day when everyone will [want to] flee from his brother,
 <!--END_SECTION:quran-->
 
   
