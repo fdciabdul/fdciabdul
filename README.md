@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ عَبَسَ (Abasa)**
+**Surah 2: سُورَةُ المَسَدِ (Al-Masad)**
 
-on a Day when everyone will [want to] flee from his brother,
+What will his wealth avail him, and all that he has gained?
 <!--END_SECTION:quran-->
 
   
