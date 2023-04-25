@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَعۡرَافِ (Al-A'raaf)**
+**Surah 8: سُورَةُ الحَدِيدِ (Al-Hadid)**
 
-Thus, [on Judgment Day] We shall most certainly call to account all those unto whom a [divine] message was sent, and We shall most certainly call to account the message-bearers [themselves];
+And why should you not believe in God, seeing that the Apostle calls you to believe in [Him who is] your Sustainer, and [seeing that] He has taken a pledge from you? [Why should you not believe in Him] if you are able to believe [in anything]?
 <!--END_SECTION:quran-->
 
   
