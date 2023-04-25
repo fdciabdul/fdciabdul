@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ القَدۡرِ (Al-Qadr)**
+**Surah 38: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa)**
 
-does it make secure, until the rise of dawn.
+But they [who reject My messages are wont to] ask, “When is that promise [of God’s judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!”
 <!--END_SECTION:quran-->
 
   
