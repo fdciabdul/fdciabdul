@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ القَصَصِ (Al-Qasas)**
+**Surah 20: سُورَةُ الزُّمَرِ (Az-Zumar)**
 
-So he watered [their flock] for them: and when he withdrew into the shade and prayed: “O my Sus­tainer! Verily, in dire need am I of any good which Thou mayest bestow upon me!”
+As against this they who of their Sustainer are conscious shall [in the life to come] have man­sions raised upon mansions high, beneath which run­ning waters flow: [this is] God’s promise - [and] never does God fail to fulfill His promise.
 <!--END_SECTION:quran-->
 
   
