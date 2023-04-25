@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ النُّورِ (An-Noor)**
+**Surah 37: سُورَةُ الدُّخَانِ (Ad-Dukhaan)**
 
-[ALL OF YOU, O believers, are brethren: hence.] no blame attaches to the blind, nor does blame attach to the lame, nor does blame attach to the sick [for accepting charity from the hale], and neither to your­selves for eating [whatever is offered to you by others, whether it be food obtained] from your [chil­dren’s] houses, or your fathers’ houses, or your mothers’ houses, or your brothers’ houses, or your sisters’ houses, or your paternal uncles’ houses, or your paternal aunts’ houses, or your maternal uncles’ houses, or your maternal aunts’ houses, or [houses] the keys whereof are in your charge! or [the house] of any of your friends; nor will you incur any sin by eating in company or separately. But whenever you enter [any of these] houses, greet one another with a blessed, goodly greeting, as enjoined by God. In this way God makes clear unto you His mes­sages, so that you might [learn to] use your reason.
+Are they, then, better than the people of Tubba and those before them, whom We destroyed because they were truly lost in [the same] sin?
 <!--END_SECTION:quran-->
 
   
