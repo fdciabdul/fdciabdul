@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ التَّحۡرِيمِ (At-Tahrim)**
+**Surah 54: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan)**
 
-And [We have propounded yet another parable of God-consciousness in the story of] Mary, the daughter of Imran, who guarded her chastity, whereupon We breathed of Our spirit into that [which was in her womb], and who accepted the truth of her Sustainer’s words - and [thus,] of His revelations - and was one of the truly devout.
+And the unbelievers schemed [against Jesus]; but God brought their scheming to nought: for God is above all schemers.
 <!--END_SECTION:quran-->
 
   
