@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ الزُّمَرِ (Az-Zumar)**
+**Surah 2: سُورَةُ المُجَادلَةِ (Al-Mujaadila)**
 
-As against this they who of their Sustainer are conscious shall [in the life to come] have man­sions raised upon mansions high, beneath which run­ning waters flow: [this is] God’s promise - [and] never does God fail to fulfill His promise.
+As for those of you who [henceforth] separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, [let them bear in mind that] they can never be [as] their mothers: none are their mothers save those who gave them birth: and so, behold, they but utter a saying that runs counter to reason, and is [therefore] false. But, behold, God is indeed an absolver of sins, much-forgiving:
 <!--END_SECTION:quran-->
 
   
