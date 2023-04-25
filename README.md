@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ القَدۡرِ (Al-Qadr)**
+**Surah 56: سُورَةُ المُدَّثِّرِ (Al-Muddaththir)**
 
-does it make secure, until the rise of dawn.
+But they [who do not believe in the life to come] will not take it to heart unless God so wills: [for] He is the Fount of all God-consciousness, and the Fount of all forgiveness.
 <!--END_SECTION:quran-->
 
   
