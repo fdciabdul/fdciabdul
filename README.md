@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ التَّوۡبَةِ (At-Tawba)**
+**Surah 4: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala)**
 
-They were well-pleased to remain with those who were left behind - where for their hearts have been sealed, so that they cannot grasp the truth.
+on that Day will she recount all her tidings,
 <!--END_SECTION:quran-->
 
   
