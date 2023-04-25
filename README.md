@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ التَّوۡبَةِ (At-Tawba)**
+**Surah 3: سُورَةُ الأَحۡقَافِ (Al-Ahqaf)**
 
-[Announce unto them:] "Go, then, [freely] about the earth for four months -but know that you can never elude God, and that, verily, God shall bring disgrace upon all who refuse to acknowledge the truth!"
+We have not created the heavens and the earth and all that is between them otherwise than in accord­ance with [an inner] truth, and for a term set [by Us]: and yet, they who are bent on denying the truth turn aside from the warning which has been conveyed unto them.
 <!--END_SECTION:quran-->
 
   
