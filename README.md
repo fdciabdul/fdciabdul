@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala)**
+**Surah 18: سُورَةُ الأَعۡلَىٰ (Al-A'laa)**
 
-on that Day will she recount all her tidings,
+Verily, [all] this has indeed been [said] in the earlier revelations –
 <!--END_SECTION:quran-->
 
   
