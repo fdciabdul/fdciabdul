@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 180: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa)**
+**Surah 13: سُورَةُ الأَعۡلَىٰ (Al-A'laa)**
 
-“And no reward whatever do I ask of you for it: my reward rests with none but the Sustainer of all the worlds.
+wherein he will neither die nor remain alive.
 <!--END_SECTION:quran-->
 
   
