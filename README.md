@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa)**
+**Surah 51: سُورَةُ يُونُسَ (Yunus)**
 
-But they [who reject My messages are wont to] ask, “When is that promise [of God’s judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!”
+Will you, then, believe in it [only] after it has come to pass -[on the Day when you will be asked, `Do you believe in it] now, after having [contemptuously] called for its speedy advent?'
 <!--END_SECTION:quran-->
 
   
