@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ فَاطِرٍ (Faatir)**
+**Surah 3: سُورَةُ المُلۡكِ (Al-Mulk)**
 
-As it is, they [who are averse to the truth often] swear by God with their most solemn oaths that if a warner should ever come to them, they would follow his guidance better than any of the communities [of old had followed the warner sent to them]: but now that a warner has come unto them, [his call] but increases their aversion,
+[Hallowed be] He who has created seven heavens in full harmony with one another: no fault will thou see in the creation of the Most Gracious. And turn thy vision [upon it] once more: canst thou see any flaw?
 <!--END_SECTION:quran-->
 
   
