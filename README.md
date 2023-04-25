@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ قٓ (Qaaf)**
+**Surah 27: سُورَةُ النَّازِعَاتِ (An-Naazi'aat)**
 
-[Long] before those [who now deny resur­rection] did Noah’s people give the lie to this truth, and [so did] the folk of Ar-Rass, and [the tribes of] Thamud
+[O MEN!] Are you more difficult to create than the heaven which He has built?
 <!--END_SECTION:quran-->
 
   
