@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ مَرۡيَمَ (Maryam)**
+**Surah 5: سُورَةُ المُزَّمِّلِ (Al-Muzzammil)**
 
-and We bestowed upon them [manifold] gifts out of Our grace, and granted them a lofty power to convey the truth [unto others].
+Behold, We shall bestow upon thee a weighty message –
 <!--END_SECTION:quran-->
 
   
