@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ الرُّومِ (Ar-Room)**
+**Surah 87: سُورَةُ التَّوۡبَةِ (At-Tawba)**
 
-And among His wonders is your sleep, at night or in daytime, as well as your [ability to go about in] quest of some of His bounties: in this, behold, there are messages indeed for people who [are willing to] listen!
+They were well-pleased to remain with those who were left behind - where for their hearts have been sealed, so that they cannot grasp the truth.
 <!--END_SECTION:quran-->
 
   
