@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الشَّرۡحِ (Ash-Sharh)**
+**Surah 5: سُورَةُ الإِنسَانِ (Al-Insaan)**
 
-verily, with every hardship comes ease!
+[whereas,] behold, the truly virtuous shall drink from a cup flavoured with the calyx of sweet-smelling flowers:
 <!--END_SECTION:quran-->
 
   
