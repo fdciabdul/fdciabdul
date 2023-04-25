@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الحَدِيدِ (Al-Hadid)**
+**Surah 21: سُورَةُ الجِنِّ (Al-Jinn)**
 
-And why should you not believe in God, seeing that the Apostle calls you to believe in [Him who is] your Sustainer, and [seeing that] He has taken a pledge from you? [Why should you not believe in Him] if you are able to believe [in anything]?
+Say: "Verily, it is not in my power to cause you harm or to endow you with consciousness of what is right."
 <!--END_SECTION:quran-->
 
   
