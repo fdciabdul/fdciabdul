@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan)**
+**Surah 49: سُورَةُ إِبۡرَاهِيمَ (Ibrahim)**
 
-And the unbelievers schemed [against Jesus]; but God brought their scheming to nought: for God is above all schemers.
+For on that Day thou wilt see all who were lost in sin linked together in fetters,
 <!--END_SECTION:quran-->
 
   
