@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ الجِنِّ (Al-Jinn)**
+**Surah 15: سُورَةُ الإِنسَانِ (Al-Insaan)**
 
-unless it be to an apostle whom He has been pleased to elect [there for]: and then He sends forth [the forces of heaven] to watch over him in whatever lies open before him and in what is beyond his ken –
+And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –
 <!--END_SECTION:quran-->
 
   
