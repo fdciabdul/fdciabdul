@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ الصَّفِّ (As-Saff)**
+**Surah 5: سُورَةُ يُونُسَ (Yunus)**
 
-O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?
+He it is who has made the sun a [source of] radiant light and the moon a light [reflected], and has determined for it phases so that you might know how to compute the years and to measure [time]. None of this has God created without [an inner] truth. Clearly does He spell out these messages unto people of [innate] knowledge:
 <!--END_SECTION:quran-->
 
   
