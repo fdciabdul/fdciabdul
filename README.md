@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ المَائـِدَةِ (Al-Maaida)**
+**Surah 12: سُورَةُ التَّحۡرِيمِ (At-Tahrim)**
 
-THOSE of the children of Israel who were bent on denying the truth have [already] been cursed by the tongue of David and of Jesus, the son of Mary? this, because they rebelled [against God] and persisted in transgressing the bounds of what is right.
+And [We have propounded yet another parable of God-consciousness in the story of] Mary, the daughter of Imran, who guarded her chastity, whereupon We breathed of Our spirit into that [which was in her womb], and who accepted the truth of her Sustainer’s words - and [thus,] of His revelations - and was one of the truly devout.
 <!--END_SECTION:quran-->
 
   
