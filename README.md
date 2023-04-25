@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ الأَحۡقَافِ (Al-Ahqaf)**
+**Surah 18: سُورَةُ الوَاقِعَةِ (Al-Waaqia)**
 
-We have not created the heavens and the earth and all that is between them otherwise than in accord­ance with [an inner] truth, and for a term set [by Us]: and yet, they who are bent on denying the truth turn aside from the warning which has been conveyed unto them.
+with goblets, and ewers, and cups filled with water from unsullied springs
 <!--END_SECTION:quran-->
 
   
