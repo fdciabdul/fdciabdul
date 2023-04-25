@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa)**
+**Surah 13: سُورَةُ الرُّومِ (Ar-Room)**
 
-Not one of the communities that We destroyed in bygone times would ever believe [their prophets]: will these, then, [be more willing to] believe?
+for they will have no intercessors in the beings to whom they were wont to ascribe a share in God’s divinity, seeing that [by then] they themselves will have ceased to believe in their erstwhile blasphemous fancies.
 <!--END_SECTION:quran-->
 
   
