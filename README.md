@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin)**
+**Surah 11: سُورَةُ الوَاقِعَةِ (Al-Waaqia)**
 
-A record [indelibly] inscribed,
+they who were [always] drawn close unto God!
 <!--END_SECTION:quran-->
 
   
