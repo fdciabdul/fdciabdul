@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ مَرۡيَمَ (Maryam)**
+**Surah 14: سُورَةُ عَبَسَ (Abasa)**
 
-Excepted, however, shall be those who repent and attain to faith and do righteous deeds: for it is they who will enter paradise and will not be wronged in any way:
+lofty and pure,
 <!--END_SECTION:quran-->
 
   
