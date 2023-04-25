@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ الشَّرۡحِ (Ash-Sharh)**
+**Surah 9: سُورَةُ القَمَرِ (Al-Qamar)**
 
-that had weighed so heavily on thy back?
+[LONG] BEFORE those [who now deny resurrec­tion] did Noah’s people call it a lie; and they gave the lie to Our servant and said, “Mad is he!” - and he was repulsed.
 <!--END_SECTION:quran-->
 
   
