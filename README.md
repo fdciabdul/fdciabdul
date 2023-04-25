@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ الحُجُرَاتِ (Al-Hujuraat)**
+**Surah 29: سُورَةُ سَبَإٍ (Saba)**
 
-O you who have attained to faith! Avoid most guesswork [about one another] for, behold, some of [such] guesswork is [in itself] a sin; and do not spy upon one another, and neither allow your­selves to speak ill of one another behind your backs. Would any of you like to eat the flesh of his dead brother? Nay, you would loathe it! And be conscious of God. Verily, God is an accep­tor of repentance, a dispenser of grace!
+and so they ask, “When is this promise [of resurrection and judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!”
 <!--END_SECTION:quran-->
 
   
