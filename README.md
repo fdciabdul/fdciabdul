@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ القَمَرِ (Al-Qamar)**
+**Surah 6: سُورَةُ الأَعۡرَافِ (Al-A'raaf)**
 
-[LONG] BEFORE those [who now deny resurrec­tion] did Noah’s people call it a lie; and they gave the lie to Our servant and said, “Mad is he!” - and he was repulsed.
+Thus, [on Judgment Day] We shall most certainly call to account all those unto whom a [divine] message was sent, and We shall most certainly call to account the message-bearers [themselves];
 <!--END_SECTION:quran-->
 
   
