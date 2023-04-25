@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ يُونُسَ (Yunus)**
+**Surah 77: سُورَةُ الحِجۡرِ (Al-Hijr)**
 
-And so, when the truth came to them from Us, they said, "Behold, this is clearly nothing but sorcery!"
+Verily, herein lies a message indeed for all who believe [in God].
 <!--END_SECTION:quran-->
 
   
