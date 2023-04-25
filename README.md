@@ -11,6 +11,9 @@
 
 <!--START_SECTION:quran-->
 
+**Surah 12: سُورَةُ التَّغَابُنِ (At-Taghaabun)**
+
+Pay heed, then, unto God, and pay heed unto the Apostle; and if you turn away, [know that] Our Apostle's only duty is a clear delivery of this message:
 <!--END_SECTION:quran-->
 
   
