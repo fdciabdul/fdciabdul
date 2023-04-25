@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ القَلَمِ (Al-Qalam)**
+**Surah 3: سُورَةُ القَارِعَةِ (Al-Qaari'a)**
 
-Or is it that [they fear lest] thou ask them for a reward, [O Prophet,] so that they would be burdened with debt [if they listened to thee]?
+And what could make thee conceive what that sudden calamity will be?
 <!--END_SECTION:quran-->
 
   
