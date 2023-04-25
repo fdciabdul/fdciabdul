@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ السَّجۡدَةِ (As-Sajda)**
+**Surah 8: سُورَةُ التِّينِ (At-Tin)**
 
-and then He forms him in accordance with what he is meant to be, and breathes into him of His spirit: and [thus, O men,] He endows you with hearing, and sight, and feelings as well as minds: [yet] how seldom are you grateful!
+Is not God the most just of judges?
 <!--END_SECTION:quran-->
 
   
