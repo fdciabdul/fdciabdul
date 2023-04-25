@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ العَادِيَاتِ (Al-Aadiyaat)**
+**Surah 59: سُورَةُ الدُّخَانِ (Ad-Dukhaan)**
 
-thereby raising clouds of dust,
+So wait thou [for what the future will bring]: behold, they, too, are waiting.
 <!--END_SECTION:quran-->
 
   
