@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat)**
+**Surah 20: سُورَةُ الحَجِّ (Al-Hajj)**
 
-and if you [think that you] have a subterfuge left, try to outwit Me!"
+causing all that is within their bodies, as well as the skins, to melt away.
 <!--END_SECTION:quran-->
 
   
