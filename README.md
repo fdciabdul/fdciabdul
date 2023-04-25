@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ النُّورِ (An-Noor)**
+**Surah 66: سُورَةُ الحَجِّ (Al-Hajj)**
 
-why do they not [demand of the accusers that they] their allegation? for, if they do not produce such wit­nesses, it is those [accusers] who, in the sight of God, are liars indeed!
+seeing that it is He who gave you life, and then will cause you to die, and then will bring you back to life: [but,] verily, bereft of all gratitude is man!
 <!--END_SECTION:quran-->
 
   
