@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ القَدۡرِ (Al-Qadr)**
+**Surah 19: سُورَةُ النَّجۡمِ (An-Najm)**
 
-in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
+HAVE YOU, then, ever considered [what you are worshipping in] Al-Lat and Al-Uzza,
 <!--END_SECTION:quran-->
 
   
