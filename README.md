@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ النَّحۡلِ (An-Nahl)**
+**Surah 98: سُورَةُ التَّوۡبَةِ (At-Tawba)**
 
-And His is all that is in the heavens and on earth, and to Him [alone] obedience is always due: will you, then, pay reverence to aught but Him?
+And among the bedouin there are such as regard all that they might spend [in God's cause] as a loss, and wait for misfortune to encompass you, [O believers: but] it is they whom evil fortune shall encompass - for God is all-hearing, all-knowing.
 <!--END_SECTION:quran-->
 
   
