@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 28**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 30**
 
-for, behold, of their Sustainer's chastisement none may ever feel [wholly] secure;
+yea, enter thou My paradise!"
  <!--END_SECTION:quran-->
 
   
