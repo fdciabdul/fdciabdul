@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 3**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 50**
 
-and [of] Him who witnesses [all], and [of] that unto which witness is borne [by Him]!
+And since they cannot respond to this thy challenge, know that they are following only their own likes and dislikes: and who could be more astray than he who follows [but] his own likes and dislikes without any guidance from God? Verily, God does not grace with His guidance peo­ple who are given to evildoing!
  <!--END_SECTION:quran-->
 
   
