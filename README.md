@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الرُّومِ (Ar-Room)**
+**Surah 16: سُورَةُ النِّسَاءِ (An-Nisaa)**
 
-But thus it is: if We send a wind [that scorches their land], and they see it turn yellow, they begin, after that [erstwhile joy], to deny the truth [of Our almightiness and grace]!
+And punish [thus] both of the guilty parties; but if they both repent and mend their ways, leave them alone: for, behold, God is an acceptor of repentance, a dispenser of grace.
 <!--END_SECTION:quran-->
 
   
