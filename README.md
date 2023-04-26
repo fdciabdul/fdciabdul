@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ القَارِعَةِ (Al-Qaari'a)**
+**Surah 3: سُورَةُ الحِجۡرِ (Al-Hijr)**
 
-shall be engulfed by an abyss.
+Leave them alone; let them eat and enjoy themselves the while the hope [of vain delights] be guiles them: for in time they will come to know [the truth].
 <!--END_SECTION:quran-->
 
   
