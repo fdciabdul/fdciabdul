@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ الأَنفَالِ (Al-Anfaal)**
+**Surah 162: سُورَةُ النِّسَاءِ (An-Nisaa)**
 
-Tell those who are bent on denying the truth that if they desist, all that is past shall be forgiven them; but if they revert [to their wrongdoing], let them remember what happened to the like of them in times gone by.
+But as for those from among them who are deeply rooted in knowledge, and the believers who believe in that which has been bestowed upon thee from on high as well as that which was bestowed from on high before thee, and those who are [es­pecially] constant in prayer, and spend in charity, and all who believe in God and the Last Day - these it is unto whom We shall grant a mighty reward.
 <!--END_SECTION:quran-->
 
   
