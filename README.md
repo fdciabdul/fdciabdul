@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 5**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 39**
 
-Does he, then, think that no one has power over him?
+Never! For, behold, We have created them out of something that they know [only too well]!
  <!--END_SECTION:quran-->
 
   
