@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 6**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 60**
 
-Do they not see how many a generation We have destroyed before their time - [people] whom We had given a [bountiful] place on earth, the like of which We never gave unto you, and upon whom We showered heavenly blessings abundant, and at whose feet We made running waters flow? And yet we destroyed them for their sins, and gave rise to other people in their stead.
+THUS IT IS: if the hypocrites, and they in whose hearts is disease, and they who, by spreading false rumours, would cause disturbances in the City [of the Prophet] desist not [from their hostile doings]. We shall indeed give thee mastery over them, [O Muhammad] - and then they will not remain thy neighbours in this [city] for more than a little while:
  <!--END_SECTION:quran-->
 
   
