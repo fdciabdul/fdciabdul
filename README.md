@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 2**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 38**
 
-How awesome the sudden calamity!
+that Day of Distinction [between the true and the false, when they will be told]: "We have brought you together with those [sinners] of olden times;
  <!--END_SECTION:quran-->
 
   
