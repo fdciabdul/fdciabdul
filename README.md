@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 11**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 4**
 
-noble, recording,
+Well do We know how the earth consumes their bodies, for with Us is a record unfailing.
  <!--END_SECTION:quran-->
 
   
