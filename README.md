@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ النَّصۡرِ (An-Nasr)**
+**Surah 73: سُورَةُ الفُرۡقَانِ (Al-Furqaan)**
 
-WHEN GOD'S SUCCOUR comes, and victory,
+and who, whenever they are reminded of their Sustainer’s messages, do not throw themselves upon them [as if] deaf and blind;
 <!--END_SECTION:quran-->
 
   
