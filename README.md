@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 53**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 6**
 
-just as He thrust into perdition those cities that were overthrown
+[bestowed upon thee] so that thou mayest warn people whose forefathers had not been warned, and who therefore are unaware [of the meaning of right and wrong].
  <!--END_SECTION:quran-->
 
   
