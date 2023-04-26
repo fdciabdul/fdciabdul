@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ التَّوۡبَةِ (At-Tawba)**
+**Surah 149: سُورَةُ النِّسَاءِ (An-Nisaa)**
 
-And among the bedouin there are such as regard all that they might spend [in God's cause] as a loss, and wait for misfortune to encompass you, [O believers: but] it is they whom evil fortune shall encompass - for God is all-hearing, all-knowing.
+whether you do good openly or in secret, or pardon others for evil [done unto you]: for, behold, God is indeed an absolver of sins, infinite in His power.
 <!--END_SECTION:quran-->
 
   
