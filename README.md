@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 38**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 11**
 
-And though some be too proud [to listen to this call], they who [in their hearts] are with thy Sustainer extol His limitless glory by night and by day, and never grow weary [thereof].
+wherein thou wilt hear no empty talk.
  <!--END_SECTION:quran-->
 
   
