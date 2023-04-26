@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 30**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 50**
 
-and gardens dense with foliage,
+In what other tiding, then, will they, after this, believe?
  <!--END_SECTION:quran-->
 
   
