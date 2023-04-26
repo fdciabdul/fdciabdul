@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النِّسَاءِ (An-Nisaa)**
+**Surah 22: سُورَةُ الحَاقَّةِ (Al-Haaqqa)**
 
-And punish [thus] both of the guilty parties; but if they both repent and mend their ways, leave them alone: for, behold, God is an acceptor of repentance, a dispenser of grace.
+in a lofty paradise,
 <!--END_SECTION:quran-->
 
   
