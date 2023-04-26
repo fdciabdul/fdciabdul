@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ الحِجۡرِ (Al-Hijr)**
+**Surah 5: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon)**
 
-Leave them alone; let them eat and enjoy themselves the while the hope [of vain delights] be guiles them: for in time they will come to know [the truth].
+for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.
 <!--END_SECTION:quran-->
 
   
