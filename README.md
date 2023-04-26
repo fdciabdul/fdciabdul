@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ المُدَّثِّرِ (Al-Muddaththir)**
+**Surah 13: سُورَةُ الشُّورَىٰ (Ash-Shura)**
 
-and says, "All this is mere spellbinding eloquence handed down [from olden times]!
+In matters of faith, He has ordained for you that which He had enjoined upon Noah - and into which We gave thee [O Muhammad] insight through revelation as well as that which We had enjoined upon Abraham, and Moses, and Jesus: Steadfastly uphold the [true] faith, and do not break up your unity therein. [And even though] that [unity of faith] to which thou callest them appears oppressive to those who are wont to ascribe to other beings or forces a share in His divinity, God draws unto Himself everyone who is willing, and guides unto Himself everyone who turns unto Him.
 <!--END_SECTION:quran-->
 
   
