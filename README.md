@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 52**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 19**
 
-[They were truly guilty] because all [the evil] that they ever did had been [revealed to them as such] in the [ancient] books of [divine] wisdom;
+Have they, then, never beheld the birds above them, spreading their wings and drawing them in? None but the Most Gracious upholds them: for, verily, He keeps all things in His sight.
  <!--END_SECTION:quran-->
 
   
