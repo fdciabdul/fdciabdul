@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 4**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 9**
 
-He it is who has created the heavens and the earth in six aeons, and is established on the throne of His almightiness. He knows all that enters the earth, and all that comes out of it, as well as all that descends from the skies, and all that ascends to them. And He is with you wherever you may be; and God sees all that you do.
+Nay, [O men,] but you [are lured away from God whenever you are tempted to] give the lie to [God’s] Judgment!
  <!--END_SECTION:quran-->
 
   
