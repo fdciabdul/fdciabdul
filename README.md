@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ الكَافِرُونَ (Al-Kaafiroon)**
+**Surah 2: سُورَةُ الفَلَقِ (Al-Falaq)**
 
-and neither will you [ever] worship that which I worship.
+"from the evil of aught that He has created,
 <!--END_SECTION:quran-->
 
   
