@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 5**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 2**
 
-No knowledge whatever have they of Him, and neither had their forefathers: dreadful -is this saying that comes out of their mouths, [and] nothing but falsehood do they utter!
+CONSIDER this divine writ, clear in itself and clearly showing the truth!
  <!--END_SECTION:quran-->
 
   
