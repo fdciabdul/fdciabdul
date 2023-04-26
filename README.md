@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 18**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 38**
 
-and [then] He will bring you forth [from It] in resurrection.
+And though some be too proud [to listen to this call], they who [in their hearts] are with thy Sustainer extol His limitless glory by night and by day, and never grow weary [thereof].
  <!--END_SECTION:quran-->
 
   
