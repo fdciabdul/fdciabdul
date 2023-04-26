@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 54**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 56**
 
-And He it is who out of this [very] water has created man, and has endowed him with [the con­sciousness of] descent and marriage-tie: for thy Sustainer is ever infinite in His power.
+in happiness will they and their spouses on couches recline;
  <!--END_SECTION:quran-->
 
   
