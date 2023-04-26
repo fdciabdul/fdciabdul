@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ القِيَامَةِ (Al-Qiyaama)**
+**Surah 75: سُورَةُ مَرۡيَمَ (Maryam)**
 
-None the less man chooses to deny what lies ahead of him,
+Say: "As for him who lives in error, may the Most Gracious lengthen the span of his life! [And let them say whatever they say until the time when they behold that [doom] of which they were forewarned-whether it be suffering [in this world] or [at the coming of] the Last Hour -: for then they will understand which [of the two kinds of man] was worse in station and weaker in resources!
 <!--END_SECTION:quran-->
 
   
