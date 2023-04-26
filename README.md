@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 27**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 62**
 
-and who stand in dread of their Sustainer's chastisement –
+Such has been God’s way with those who [sinned in like manner and] passed away aforetime - and never wilt thou find any change in God’s way!
  <!--END_SECTION:quran-->
 
   
