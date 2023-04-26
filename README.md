@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ الفَلَقِ (Al-Falaq)**
+**Surah 12: سُورَةُ الفَتۡحِ (Al-Fath)**
 
-"and from the evil of the envious when he envies."
+Nay, you thought that the Apostle and the believers would never return to their kith and kin: and this seemed goodly to your hearts. And you entertained [such] evil thoughts because you have always been people devoid of all good!”
 <!--END_SECTION:quran-->
 
   
