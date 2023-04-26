@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 16**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 2**
 
-It is [such as] these from whom We shall accept the best that they ever did, and whose bad deeds We shall overlook: [they will find themselves] among those who are destined for paradise, in fulfillment of the true promise which they were given [in this world].
+those who deny the truth. [Know, then, that] nothing can ward it off,
  <!--END_SECTION:quran-->
 
   
