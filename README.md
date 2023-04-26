@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 149: سُورَةُ النِّسَاءِ (An-Nisaa)**
+**Surah 14: سُورَةُ العَلَقِ (Al-Alaq)**
 
-whether you do good openly or in secret, or pardon others for evil [done unto you]: for, behold, God is indeed an absolver of sins, infinite in His power.
+Does he, then, not know that God sees [all]?
 <!--END_SECTION:quran-->
 
   
