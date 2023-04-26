@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النَّازِعَاتِ (An-Naazi'aat)**
+**Surah 36: سُورَةُ القَلَمِ (Al-Qalam)**
 
-and yet overtake [one another] with swift overtaking:
+What is amiss with you? On what do you base your judgment [of right and wrong]?
 <!--END_SECTION:quran-->
 
   
