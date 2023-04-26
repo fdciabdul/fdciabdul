@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 31**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 14**
 
-But as for those who were bent on denying the truth, [they will be told:] “Were not My messages conveyed to you? And withal, you gloried in your arrogance, and so you became people lost in sin:
+Does he, then, not know that God sees [all]?
  <!--END_SECTION:quran-->
 
   
