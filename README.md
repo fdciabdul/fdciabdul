@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat)**
+**Surah 47: سُورَةُ القَلَمِ (Al-Qalam)**
 
-Woe on that Day unto those who give the lie to the truth!
+Or [do they think] that the hidden reality [of all that exists] is within their grasp, so that [in time] they can write it down?
 <!--END_SECTION:quran-->
 
   
