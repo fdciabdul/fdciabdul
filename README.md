@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 9**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 23**
 
-Nay, [O men,] but you [are lured away from God whenever you are tempted to] give the lie to [God’s] Judgment!
+The two replied: "O our Sustainer! We have sinned against ourselves -and unless Thou grant us forgiveness and bestow Thy mercy upon us, we shall most certainly be lost!"
  <!--END_SECTION:quran-->
 
   
