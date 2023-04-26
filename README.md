@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 56**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 106**
 
-in happiness will they and their spouses on couches recline;
+and leave the earths level and bare,
  <!--END_SECTION:quran-->
 
   
