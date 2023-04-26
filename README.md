@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 21**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 4**
 
-Follow those who ask no reward of you, and themselves are rightly guided!
+about to enter a glowing fire,
  <!--END_SECTION:quran-->
 
   
