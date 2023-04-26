@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 7**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 16**
 
-which He willed against them for seven nights and eight days without cease, so that in the end thou couldst see those people laid low [in death], as though they were so many [uprooted] trunks of hollow palm trees:
+the planets that run their course and set,
  <!--END_SECTION:quran-->
 
   
