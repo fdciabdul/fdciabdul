@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ مَرۡيَمَ (Maryam)**
+**Surah 38: سُورَةُ الأَنفَالِ (Al-Anfaal)**
 
-Say: "As for him who lives in error, may the Most Gracious lengthen the span of his life! [And let them say whatever they say until the time when they behold that [doom] of which they were forewarned-whether it be suffering [in this world] or [at the coming of] the Last Hour -: for then they will understand which [of the two kinds of man] was worse in station and weaker in resources!
+Tell those who are bent on denying the truth that if they desist, all that is past shall be forgiven them; but if they revert [to their wrongdoing], let them remember what happened to the like of them in times gone by.
 <!--END_SECTION:quran-->
 
   
