@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ الفُرۡقَانِ (Al-Furqaan)**
+**Surah 59: سُورَةُ النَّجۡمِ (An-Najm)**
 
-and who, whenever they are reminded of their Sustainer’s messages, do not throw themselves upon them [as if] deaf and blind;
+Do you, perchance, find this tiding strange?
 <!--END_SECTION:quran-->
 
   
