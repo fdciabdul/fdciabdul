@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ قٓ (Qaaf)**
+**Surah 2: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq)**
 
-on the Day when the earth is riven asunder all around them as they hasten forth [towards God’s judgment]: that gathering will be easy for Us [to encompass].
+obeying its Sustainer, as in truth it must;
 <!--END_SECTION:quran-->
 
   
