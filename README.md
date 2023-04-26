@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 4**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 16**
 
-[It will occur] on the Day when men will be like moths swarming in confusion,
+and gardens dense with follage.
  <!--END_SECTION:quran-->
 
   
