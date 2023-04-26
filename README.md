@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 52**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 13**
 
-the Day when their excuses will be of no avail to the evildoers, seeing that their lot will be rejection from all that is good, and a woeful hereafter.
+Yet most certainly will they have to bear their own burdens, and other burdens besides their own; and most certainly will they be called to account on Resurrection Day for all their false assertions!
  <!--END_SECTION:quran-->
 
   
