@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ النَّازِعَاتِ (An-Naazi'aat)**
+**Surah 73: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa)**
 
-In this, behold, there is a lesson indeed for all who stand in awe [of God].
+and made them leaders who would guide [others] in accordance with Our behest: for We inspired them [with a will] to do good works, and to be constant in prayer, and to dispense charity: and Us [alone] did they worship.
 <!--END_SECTION:quran-->
 
   
