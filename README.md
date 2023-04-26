@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 14**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 17**
 
-Does he, then, not know that God sees [all]?
+VERILY, the Day of Distinction [between the true and the false] has indeed its appointed time:
  <!--END_SECTION:quran-->
 
   
