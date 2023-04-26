@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ يُونُسَ (Yunus)**
+**Surah 20: سُورَةُ الفَتۡحِ (Al-Fath)**
 
-Say: "Does any of those beings to whom you ascribe a share in God's divinity guide unto the truth?" Say: "It is God [alone] who guides unto the truth. Which, then, is more worthy to be followed - He who guides unto the truth, or he who cannot find the right way unless he is guided? What, then, is amiss with you and your judgment?"
+[O you who believe!] God has promised you many war-gains which you shall yet achieve; and He has vouchsafed you these [worldly gains] well in advance, and has stayed from you the hands of [hostile] people, so that this [your inner strength] may become a symbol to the believers [who will come after you], and that He may guide you all on a straight way.
 <!--END_SECTION:quran-->
 
   
