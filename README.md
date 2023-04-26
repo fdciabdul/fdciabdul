@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 13**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 6**
 
-BEHOLD, this [divine writ] is indeed a word that between truth and falsehood,
+for, suffering in hell awaits all who are [thus] bent on blaspheming against their Sustainer: and how vile a journey's end!
  <!--END_SECTION:quran-->
 
   
