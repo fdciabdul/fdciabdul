@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq)**
+**Surah 61: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan)**
 
-obeying its Sustainer, as in truth it must;
+Which, then, of your Sustainer’s powers can you disavow?
 <!--END_SECTION:quran-->
 
   
