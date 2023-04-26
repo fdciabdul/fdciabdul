@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 9**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 7**
 
-O PROPHET! Strive hard against the deniers of the truth and the hypocrites, and be adamant with them. And [if they do not repent,] their goal shall be hell - and how vile a journey’s end!
+and to this, behold, he [himself] bears witness indeed:
  <!--END_SECTION:quran-->
 
   
