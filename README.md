@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ الشُّورَىٰ (Ash-Shura)**
+**Surah 9: سُورَةُ القَارِعَةِ (Al-Qaari'a)**
 
-and you cannot elude Him on earth, and you will have none to protect you from God [in the life to come], and none to bring you succour.
+shall be engulfed by an abyss.
 <!--END_SECTION:quran-->
 
   
