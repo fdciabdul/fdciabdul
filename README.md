@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan)**
+**Surah 8: سُورَةُ الهُمَزَةِ (Al-Humaza)**
 
-Which, then, of your Sustainer’s powers can you disavow?
+verily, it will close in upon them
 <!--END_SECTION:quran-->
 
   
