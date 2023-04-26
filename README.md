@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ الشَّمۡسِ (Ash-Shams)**
+**Surah 2: سُورَةُ الفَلَقِ (Al-Falaq)**
 
-when that most hapless wretch from among them rushed forward [to commit his evil deed],
+"from the evil of aught that He has created,
 <!--END_SECTION:quran-->
 
   
