@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ الطُّورِ (At-Tur)**
+**Surah 35: سُورَةُ يُونُسَ (Yunus)**
 
-[And they will be told:] “Eat and drink with good cheer as an outcome of what you were wont to do,
+Say: "Does any of those beings to whom you ascribe a share in God's divinity guide unto the truth?" Say: "It is God [alone] who guides unto the truth. Which, then, is more worthy to be followed - He who guides unto the truth, or he who cannot find the right way unless he is guided? What, then, is amiss with you and your judgment?"
 <!--END_SECTION:quran-->
 
   
