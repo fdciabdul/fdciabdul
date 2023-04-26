@@ -32,7 +32,7 @@ async function updateReadme(ayah) {
   const regex = /<!--START_SECTION:quran-->[\s\S]*<!--END_SECTION:quran-->/;
 
   let updatedAyah = `<!--START_SECTION:quran-->\n\n`;
-  updatedAyah += `**Surah ${ayah.surahnumber}: ${ayah.surah} (${ayah.englishName}) - ${ayah.number)**\n\n`;
+  updatedAyah += `**Surah ${ayah.surahnumber}: ${ayah.surah} (${ayah.englishName}) - ${ayah.number}**\n\n`;
   updatedAyah += `${ayah.ayah}\n `;
   updatedAyah += `<!--END_SECTION:quran-->`;
 
