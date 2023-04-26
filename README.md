@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 30**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
 
-yea, enter thou My paradise!"
+together with his wife, that carrier of evil tales,
  <!--END_SECTION:quran-->
 
   
