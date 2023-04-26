@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 4**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 52**
 
-Well do We know how the earth consumes their bodies, for with Us is a record unfailing.
+Yea, everyone of them claims that he [himself] ought to have been given revelations unfolded!
  <!--END_SECTION:quran-->
 
   
