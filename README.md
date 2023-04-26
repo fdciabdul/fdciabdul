@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 52**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 6**
 
-No [other] women shall henceforth be lawful to thee nor art thou [allowed] to supplant [any of] them by other wives, even though their beauty should please thee greatly -: [none shall be lawful to thee] beyond those whom thou [already] hast come to possess. And God keeps watch over everything.
+Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.
  <!--END_SECTION:quran-->
 
   
