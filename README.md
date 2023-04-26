@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 7**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 48**
 
-and to this, behold, he [himself] bears witness indeed:
+And they add, “When is this promise [of resurrection] to be fulfilled? [Answer this] if you are men of truth!”
  <!--END_SECTION:quran-->
 
   
