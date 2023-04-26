@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ اللَّيۡلِ (Al-Lail)**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman)**
 
-and, behold, Ours is [the dominion over] the life to come as well as [over] this earlier part [of your life]:
+Art thou not aware how the ships speed through the sea by God’s favour, so that He might show you some of His wonders? Herein, behold, there are messages indeed for all who are wholly patient in adversity and deeply grate­ful [to God].
 <!--END_SECTION:quran-->
 
   
