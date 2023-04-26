@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 52**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 33**
 
-Yea, everyone of them claims that he [himself] ought to have been given revelations unfolded!
+never-failing and never out of reach.
  <!--END_SECTION:quran-->
 
   
