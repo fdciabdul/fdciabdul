@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ الكَافِرُونَ (Al-Kaafiroon)**
+**Surah 8: سُورَةُ الشَّمۡسِ (Ash-Shams)**
 
-"I do not worship that which you worship,
+and how it is imbued with moral failings as well as with consciousness of God!
 <!--END_SECTION:quran-->
 
   
