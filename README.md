@@ -11,10 +11,10 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon)**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 40**
 
-for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.
-<!--END_SECTION:quran-->
+Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?
+ <!--END_SECTION:quran-->
 
   
 [![wakatime](https://wakatime.com/badge/user/87646243-158a-4241-a3cb-668e1fa2dbb8.svg)](https://wakatime.com/@87646243-158a-4241-a3cb-668e1fa2dbb8)
