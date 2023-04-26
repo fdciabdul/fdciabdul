@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ القَلَمِ (Al-Qalam)**
+**Surah 2: سُورَةُ المَسَدِ (Al-Masad)**
 
-What is amiss with you? On what do you base your judgment [of right and wrong]?
+What will his wealth avail him, and all that he has gained?
 <!--END_SECTION:quran-->
 
   
