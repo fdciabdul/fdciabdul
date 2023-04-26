@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الحِجۡرِ (Al-Hijr)**
+**Surah 27: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa)**
 
-Hence, proclaim openly all that thou hast been bidden [to say], and leave alone all those who ascribe divinity to aught beside God:
+[Pharaoh] exclaimed: “Behold, [this] your ‘apostle’ who [claims that he] has been sent unto you is mad indeed!
 <!--END_SECTION:quran-->
 
   
