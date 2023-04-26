@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ الفَلَقِ (Al-Falaq)**
+**Surah 21: سُورَةُ المَعَارِجِ (Al-Ma'aarij)**
 
-"from the evil of aught that He has created,
+and whenever good fortune comes to him, he selfishly withholds it [from others].
 <!--END_SECTION:quran-->
 
   
