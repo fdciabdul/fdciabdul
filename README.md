@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 48**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 3**
 
-And they add, “When is this promise [of resurrection] to be fulfilled? [Answer this] if you are men of truth!”
+and [of] Him who witnesses [all], and [of] that unto which witness is borne [by Him]!
  <!--END_SECTION:quran-->
 
   
