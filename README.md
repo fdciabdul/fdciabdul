@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 48**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 52**
 
-On the Day when they shall be dragged into the fire on their faces, [they will be told:] “Taste now the touch of hell-fire!”
+the Day when their excuses will be of no avail to the evildoers, seeing that their lot will be rejection from all that is good, and a woeful hereafter.
  <!--END_SECTION:quran-->
 
   
