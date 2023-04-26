@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 13**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
 
-BUT IF they turn away, say: “I warn you of [the coming of] a thunderbolt of punishment like the thunderbolt [that fell upon the tribes] of Ad and Thamud!”
+"God the Eternal, the Uncaused Cause of All Being.
  <!--END_SECTION:quran-->
 
   
