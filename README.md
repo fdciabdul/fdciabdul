@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 40**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 8**
 
-Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?
+As for such [of the unbelievers] as do not fight against you on account of [your] faith, and neither drive you forth from your homelands, God does not forbid you to show them kindness and to behave towards them with full equity: for, verily, God loves those who act equitably.
  <!--END_SECTION:quran-->
 
   
