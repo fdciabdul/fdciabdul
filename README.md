@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 3**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 5**
 
-Leave them alone; let them eat and enjoy themselves the while the hope [of vain delights] be guiles them: for in time they will come to know [the truth].
+"who whispers in the hearts of men
  <!--END_SECTION:quran-->
 
   
