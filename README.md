@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 2**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 2**
 
-CONSIDER this divine writ, clear in itself and clearly showing the truth!
+has imparted this Qur’an [unto man].
  <!--END_SECTION:quran-->
 
   
