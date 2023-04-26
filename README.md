@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 162: سُورَةُ النِّسَاءِ (An-Nisaa)**
+**Surah 4: سُورَةُ البَيِّنَةِ (Al-Bayyina)**
 
-But as for those from among them who are deeply rooted in knowledge, and the believers who believe in that which has been bestowed upon thee from on high as well as that which was bestowed from on high before thee, and those who are [es­pecially] constant in prayer, and spend in charity, and all who believe in God and the Last Day - these it is unto whom We shall grant a mighty reward.
+Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.
 <!--END_SECTION:quran-->
 
   
