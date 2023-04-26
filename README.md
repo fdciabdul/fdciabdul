@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ الكَافِرُونَ (Al-Kaafiroon)**
+**Surah 31: سُورَةُ الشُّورَىٰ (Ash-Shura)**
 
-"I do not worship that which you worship,
+and you cannot elude Him on earth, and you will have none to protect you from God [in the life to come], and none to bring you succour.
 <!--END_SECTION:quran-->
 
   
