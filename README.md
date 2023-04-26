@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ القَمَرِ (Al-Qamar)**
+**Surah 6: سُورَةُ البَيِّنَةِ (Al-Bayyina)**
 
-[They were truly guilty] because all [the evil] that they ever did had been [revealed to them as such] in the [ancient] books of [divine] wisdom;
+Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.
 <!--END_SECTION:quran-->
 
   
