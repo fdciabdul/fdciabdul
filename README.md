@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الفَجۡرِ (Al-Fajr)**
+**Surah 5: سُورَةُ الكَافِرُونَ (Al-Kaafiroon)**
 
-the like of whom has never been reared in all the land? –
+and neither will you [ever] worship that which I worship.
 <!--END_SECTION:quran-->
 
   
