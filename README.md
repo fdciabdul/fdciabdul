@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 62**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 5**
 
-Such has been God’s way with those who [sinned in like manner and] passed away aforetime - and never wilt thou find any change in God’s way!
+thereby storming [blindly] into any host!
  <!--END_SECTION:quran-->
 
   
