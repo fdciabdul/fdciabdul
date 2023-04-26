@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ البَيِّنَةِ (Al-Bayyina)**
+**Surah 8: سُورَةُ العَلَقِ (Al-Alaq)**
 
-Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.
+for, behold, unto thy Sustainer all must return.
 <!--END_SECTION:quran-->
 
   
