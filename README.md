@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَشۡرِ (Al-Hashr)**
+**Surah 52: سُورَةُ النَّحۡلِ (An-Nahl)**
 
-GOD IS HE save whom there is no deity: the One who knows all that is beyond the reach of a created being’s perception, as well as all that can be wit­nessed by a creature’s senses or mind: He, the Most Gracious, the Dispenser of Grace.
+And His is all that is in the heavens and on earth, and to Him [alone] obedience is always due: will you, then, pay reverence to aught but Him?
 <!--END_SECTION:quran-->
 
   
