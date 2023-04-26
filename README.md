@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ الفَتۡحِ (Al-Fath)**
+**Surah 5: سُورَةُ المُلۡكِ (Al-Mulk)**
 
-Nay, you thought that the Apostle and the believers would never return to their kith and kin: and this seemed goodly to your hearts. And you entertained [such] evil thoughts because you have always been people devoid of all good!”
+And, indeed, We have adorned the skies nearest to the earth with lights, and have made them the object of futile guesses for the evil ones [from among men]: and for them have We readied suffering through a blazing flame –
 <!--END_SECTION:quran-->
 
   
