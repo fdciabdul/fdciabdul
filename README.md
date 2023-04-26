@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 2**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 7**
 
-those who deny the truth. [Know, then, that] nothing can ward it off,
+But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.
  <!--END_SECTION:quran-->
 
   
