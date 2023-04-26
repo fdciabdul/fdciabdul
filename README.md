@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa)**
+**Surah 2: سُورَةُ الكَافِرُونَ (Al-Kaafiroon)**
 
-and made them leaders who would guide [others] in accordance with Our behest: for We inspired them [with a will] to do good works, and to be constant in prayer, and to dispense charity: and Us [alone] did they worship.
+"I do not worship that which you worship,
 <!--END_SECTION:quran-->
 
   
