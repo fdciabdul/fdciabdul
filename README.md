@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ المَسَدِ (Al-Masad)**
+**Surah 5: سُورَةُ القِيَامَةِ (Al-Qiyaama)**
 
-[In the life to come] he shall have to endure a fire fiercely glowing;
+None the less man chooses to deny what lies ahead of him,
 <!--END_SECTION:quran-->
 
   
