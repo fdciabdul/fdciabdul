@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ العَلَقِ (Al-Alaq)**
+**Surah 23: سُورَةُ الوَاقِعَةِ (Al-Waaqia)**
 
-Does he, then, not know that God sees [all]?
+like unto pearls [still] hidden in their shells.
 <!--END_SECTION:quran-->
 
   
