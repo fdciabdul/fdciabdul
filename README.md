@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 41**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 7**
 
-where­upon he shall be requited for it with the fullest requital;
+And so, he who shall have done an atom's weight of good, shall behold it;
  <!--END_SECTION:quran-->
 
   
