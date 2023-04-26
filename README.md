@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 6**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-excepting only such as attain to faith and do good works: and theirs shall be a reward unending!
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
