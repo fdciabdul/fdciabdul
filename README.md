@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 60**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
 
-THUS IT IS: if the hypocrites, and they in whose hearts is disease, and they who, by spreading false rumours, would cause disturbances in the City [of the Prophet] desist not [from their hostile doings]. We shall indeed give thee mastery over them, [O Muhammad] - and then they will not remain thy neighbours in this [city] for more than a little while:
+ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
  <!--END_SECTION:quran-->
 
   
