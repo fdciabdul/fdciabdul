@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 50**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 7**
 
-And since they cannot respond to this thy challenge, know that they are following only their own likes and dislikes: and who could be more astray than he who follows [but] his own likes and dislikes without any guidance from God? Verily, God does not grace with His guidance peo­ple who are given to evildoing!
+which He willed against them for seven nights and eight days without cease, so that in the end thou couldst see those people laid low [in death], as though they were so many [uprooted] trunks of hollow palm trees:
  <!--END_SECTION:quran-->
 
   
