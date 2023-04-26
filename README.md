@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ العَلَقِ (Al-Alaq)**
+**Surah 29: سُورَةُ الشُّورَىٰ (Ash-Shura)**
 
-for, behold, unto thy Sustainer all must return.
+And among His signs is the [very] creation of the heavens and the earth, and of all the living creatures which He has caused to multiply throughout them: and [since He has created them,] He has [also] the power to gather them [unto Him­self] whenever He wills.
 <!--END_SECTION:quran-->
 
   
