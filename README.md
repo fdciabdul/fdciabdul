@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 2**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 6**
 
-has imparted this Qur’an [unto man].
+[and,] verily, the hours of night the mind most strongly and speak with the clearest voice,
  <!--END_SECTION:quran-->
 
   
