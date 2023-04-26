@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 5**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 21**
 
-thereby storming [blindly] into any host!
+Follow those who ask no reward of you, and themselves are rightly guided!
  <!--END_SECTION:quran-->
 
   
