@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ الأَحۡقَافِ (Al-Ahqaf)**
+**Surah 22: سُورَةُ الحَشۡرِ (Al-Hashr)**
 
-REMAIN, then, [O believer,] patient in adversity, just as all of the apostles, endowed with firmness of heart, bore themselves with patience. And do not ask for a speedy doom of those [who still deny the truth]: on the Day when they see [the fulfillment of] what they were promised, [it will seem to them] as though they had dwelt [on earth] no longer than one hour of [an earthly] day! [This is Our] message. Will, then, any be [really] destroyed save iniquitous folk?”
+GOD IS HE save whom there is no deity: the One who knows all that is beyond the reach of a created being’s perception, as well as all that can be wit­nessed by a creature’s senses or mind: He, the Most Gracious, the Dispenser of Grace.
 <!--END_SECTION:quran-->
 
   
