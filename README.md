@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 62**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 50**
 
-They answered: "O Salih! Great hopes did we place in thee ere this! Wouldst thou forbid us to worship what our forefathers were wont to worship? Because [of this], behold, we are in grave doubt, amounting to suspicion, about [the meaning of] thy call to us!"
+AND UNTO [the tribe of] `Ad [We sent] their brother Hud. He said: "O my people! Worship God [alone]: you have no deity other than Him. [As it is,] you are but inventors of falsehood!
  <!--END_SECTION:quran-->
 
   
