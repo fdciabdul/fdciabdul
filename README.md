@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 38**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 115**
 
-that Day of Distinction [between the true and the false, when they will be told]: "We have brought you together with those [sinners] of olden times;
+God answered: "Verily, I [always] do send it down unto you: and so, if any of you should henceforth deny [this] truth, on him, behold, will I inflict suffering the like of which I have never [yet] inflicted upon anyone in the world!"
  <!--END_SECTION:quran-->
 
   
