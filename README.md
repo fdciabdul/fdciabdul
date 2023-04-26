@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 22**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 33**
 
-For, this fellow-man of yours is not a madman:
+if He so wills, He stills the wind, and then they lie motion­less on the sea’s surface - [and] herein, behold, there are messages indeed for all who are wholly patient in adversity and deeply grateful [to God];
  <!--END_SECTION:quran-->
 
   
