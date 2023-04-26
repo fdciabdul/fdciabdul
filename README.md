@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 3**
 
-"God the Eternal, the Uncaused Cause of All Being.
+wherein there are ordinances of ever-true soundness and clarity.
  <!--END_SECTION:quran-->
 
   
