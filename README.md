@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 40**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 10**
 
-Or is it that [they who reject thy message, O Muhammad, fear lest] thou ask of them a reward, so that they would be burdened with debt [if they should listen to thee]?
+He [it is who] has created the skies without any supports that you could see, and has placed firm mountains upon the earth, lest it sway with you, and has caused all manner of living creatures to multiply thereon. And We send down water from the skies, and thus We cause every noble kind [of life] to grow on earth.
  <!--END_SECTION:quran-->
 
   
