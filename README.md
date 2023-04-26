@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 18**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 5**
 
-[This, then, is] the parable of those who are bent on denying their Sustainer: all their works are as ashes which the wind blows about fiercely on a stormy day: [in the life to come,] they cannot achieve any benefit whatever from all [the good] that they may have wrought: for this [denial of God] is indeed the farthest one can go astray.
+and caused them to become like a field of grain that has been eaten down to stubble
  <!--END_SECTION:quran-->
 
   
