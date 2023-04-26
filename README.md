@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 22**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 27**
 
-Now whoever surrenders his whole being unto God, and is a doer of good withal, has indeed taken hold of a support most unfailing: for with God rests the final outcome of all events.
+and who stand in dread of their Sustainer's chastisement –
  <!--END_SECTION:quran-->
 
   
