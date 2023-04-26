@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 76**
 
-HAVE WE NOT opened up thy heart,
+you and those ancient forebears of yours?
  <!--END_SECTION:quran-->
 
   
