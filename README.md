@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 16**
 
-ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
+It is [such as] these from whom We shall accept the best that they ever did, and whose bad deeds We shall overlook: [they will find themselves] among those who are destined for paradise, in fulfillment of the true promise which they were given [in this world].
  <!--END_SECTION:quran-->
 
   
