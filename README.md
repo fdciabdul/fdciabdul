@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 22**
 
-and thou seest people enter God's religion in hosts,
+Now whoever surrenders his whole being unto God, and is a doer of good withal, has indeed taken hold of a support most unfailing: for with God rests the final outcome of all events.
  <!--END_SECTION:quran-->
 
   
