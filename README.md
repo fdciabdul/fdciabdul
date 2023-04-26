@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 4**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 13**
 
-about to enter a glowing fire,
+BUT IF they turn away, say: “I warn you of [the coming of] a thunderbolt of punishment like the thunderbolt [that fell upon the tribes] of Ad and Thamud!”
  <!--END_SECTION:quran-->
 
   
