@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 7**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 20**
 
-But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.
+but only out of a longing for the countenance of his Sustainer, the All-Highest:
  <!--END_SECTION:quran-->
 
   
