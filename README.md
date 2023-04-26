@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 6**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 6**
 
-for, suffering in hell awaits all who are [thus] bent on blaspheming against their Sustainer: and how vile a journey's end!
+Do they not see how many a generation We have destroyed before their time - [people] whom We had given a [bountiful] place on earth, the like of which We never gave unto you, and upon whom We showered heavenly blessings abundant, and at whose feet We made running waters flow? And yet we destroyed them for their sins, and gave rise to other people in their stead.
  <!--END_SECTION:quran-->
 
   
