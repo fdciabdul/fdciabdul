@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 50**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 30**
 
-AND UNTO [the tribe of] `Ad [We sent] their brother Hud. He said: "O my people! Worship God [alone]: you have no deity other than Him. [As it is,] you are but inventors of falsehood!
+They said: “O our people! Behold, we have been listening to a revelation bestowed from on high after [that of] Moses, confirming the truth of what­ever there still remains [of the Torah]: it guides towards the truth, and onto a straight way.
  <!--END_SECTION:quran-->
 
   
