@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 13**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 31**
 
-Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.
+But as for those who were bent on denying the truth, [they will be told:] “Were not My messages conveyed to you? And withal, you gloried in your arrogance, and so you became people lost in sin:
  <!--END_SECTION:quran-->
 
   
