@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ القَلَمِ (Al-Qalam)**
+**Surah 8: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana)**
 
-Or [do they think] that the hidden reality [of all that exists] is within their grasp, so that [in time] they can write it down?
+As for such [of the unbelievers] as do not fight against you on account of [your] faith, and neither drive you forth from your homelands, God does not forbid you to show them kindness and to behave towards them with full equity: for, verily, God loves those who act equitably.
 <!--END_SECTION:quran-->
 
   
