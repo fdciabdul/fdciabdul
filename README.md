@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 6**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 4**
 
-And then, he whose weight [of good deeds] is heavy in the balance
+Behold, Pharaoh exalted himself in the land and divided its people into castes. One group of them he deemed utterly low; he would slaughter their sons and spare (only) their women: for, behold, he was one of those who spread corruption [on earth].
  <!--END_SECTION:quran-->
 
   
