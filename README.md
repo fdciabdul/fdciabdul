@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 9**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 54**
 
-to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.
+And He it is who out of this [very] water has created man, and has endowed him with [the con­sciousness of] descent and marriage-tie: for thy Sustainer is ever infinite in His power.
  <!--END_SECTION:quran-->
 
   
