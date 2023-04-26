@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 106**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 53**
 
-and leave the earths level and bare,
+just as He thrust into perdition those cities that were overthrown
  <!--END_SECTION:quran-->
 
   
