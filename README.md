@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ النَّجۡمِ (An-Najm)**
+**Surah 19: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat)**
 
-Do you, perchance, find this tiding strange?
+Woe on that Day unto those who give the lie to the truth!
 <!--END_SECTION:quran-->
 
   
