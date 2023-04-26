@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 6**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 13**
 
-[bestowed upon thee] so that thou mayest warn people whose forefathers had not been warned, and who therefore are unaware [of the meaning of right and wrong].
+BEHOLD, this [divine writ] is indeed a word that between truth and falsehood,
  <!--END_SECTION:quran-->
 
   
