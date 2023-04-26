@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 8**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 52**
 
-there is none who could avert it.
+[They were truly guilty] because all [the evil] that they ever did had been [revealed to them as such] in the [ancient] books of [divine] wisdom;
  <!--END_SECTION:quran-->
 
   
