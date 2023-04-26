@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 54**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 4**
 
-IT IS GOD who creates you [all in a states of weak­ness, and then, after weakness, ordains strength [for you], and then, after [a period of] strength, ordains [old-age] weakness and grey hair. He creates what He wills; and He alone is all-knowing, infinite in His power.
+He it is who has created the heavens and the earth in six aeons, and is established on the throne of His almightiness. He knows all that enters the earth, and all that comes out of it, as well as all that descends from the skies, and all that ascends to them. And He is with you wherever you may be; and God sees all that you do.
  <!--END_SECTION:quran-->
 
   
