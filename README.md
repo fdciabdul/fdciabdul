@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 76**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 74**
 
-you and those ancient forebears of yours?
+But, verily, thy Sustainer knows all that their hearts conceal as well as all that they bring into the open:
  <!--END_SECTION:quran-->
 
   
