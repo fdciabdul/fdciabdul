@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 4**
 
-and thou seest people enter God's religion in hosts,
+[It will occur] on the Day when men will be like moths swarming in confusion,
  <!--END_SECTION:quran-->
 
   
