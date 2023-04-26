@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ الشَّرۡحِ (Ash-Sharh)**
+**Surah 5: سُورَةُ الفِيلِ (Al-Fil)**
 
-And [have We not] raised thee high in dignity?
+and caused them to become like a field of grain that has been eaten down to stubble
 <!--END_SECTION:quran-->
 
   
