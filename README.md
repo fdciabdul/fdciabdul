@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 3**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 9**
 
-wherein there are ordinances of ever-true soundness and clarity.
+O PROPHET! Strive hard against the deniers of the truth and the hypocrites, and be adamant with them. And [if they do not repent,] their goal shall be hell - and how vile a journey’s end!
  <!--END_SECTION:quran-->
 
   
