@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 115**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 18**
 
-God answered: "Verily, I [always] do send it down unto you: and so, if any of you should henceforth deny [this] truth, on him, behold, will I inflict suffering the like of which I have never [yet] inflicted upon anyone in the world!"
+and [then] He will bring you forth [from It] in resurrection.
  <!--END_SECTION:quran-->
 
   
