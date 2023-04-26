@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 16**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 6**
 
-the planets that run their course and set,
+And then, he whose weight [of good deeds] is heavy in the balance
  <!--END_SECTION:quran-->
 
   
