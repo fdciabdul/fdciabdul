@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 20**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 5**
 
-but only out of a longing for the countenance of his Sustainer, the All-Highest:
+Does he, then, think that no one has power over him?
  <!--END_SECTION:quran-->
 
   
