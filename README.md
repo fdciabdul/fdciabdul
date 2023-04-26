@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 13**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 52**
 
-And, indeed, We destroyed before your time [whole] generations when they [persistently] did evil although the apostles sent unto them brought them all evidence of the truth; for they refused to believe [them]. Thus do We requite people who are lost in sin.
+No [other] women shall henceforth be lawful to thee nor art thou [allowed] to supplant [any of] them by other wives, even though their beauty should please thee greatly -: [none shall be lawful to thee] beyond those whom thou [already] hast come to possess. And God keeps watch over everything.
  <!--END_SECTION:quran-->
 
   
