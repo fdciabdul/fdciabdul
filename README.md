@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 18**
 
-together with his wife, that carrier of evil tales,
+[This, then, is] the parable of those who are bent on denying their Sustainer: all their works are as ashes which the wind blows about fiercely on a stormy day: [in the life to come,] they cannot achieve any benefit whatever from all [the good] that they may have wrought: for this [denial of God] is indeed the farthest one can go astray.
  <!--END_SECTION:quran-->
 
   
