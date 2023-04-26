@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 19**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 5**
 
-These two contrary kinds of man have become engrossed in contention about their Sus­tainer! But [thus it is:] as for those who are bent on denying the truth garments of fire shall be cut out for them [in the life to come]; burning despair will be poured over their heads,
+No knowledge whatever have they of Him, and neither had their forefathers: dreadful -is this saying that comes out of their mouths, [and] nothing but falsehood do they utter!
  <!--END_SECTION:quran-->
 
   
