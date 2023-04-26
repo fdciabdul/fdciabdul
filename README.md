@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ الفِيلِ (Al-Fil)**
+**Surah 44: سُورَةُ قٓ (Qaaf)**
 
-and caused them to become like a field of grain that has been eaten down to stubble
+on the Day when the earth is riven asunder all around them as they hasten forth [towards God’s judgment]: that gathering will be easy for Us [to encompass].
 <!--END_SECTION:quran-->
 
   
