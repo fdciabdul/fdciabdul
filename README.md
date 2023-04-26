@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 44**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 8**
 
-Have they never journeyed about the earth and beheld what happened in the end to those [deniers of the truth] who lived before their time and were [so much] greater than they in power? And [do they not see that the will of] God can never be foiled by anything whatever in the heavens or on earth, since, verily, He is all-knowing, infinite in His power?
+there is none who could avert it.
  <!--END_SECTION:quran-->
 
   
