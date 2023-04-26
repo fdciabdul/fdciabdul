@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 139**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 4**
 
-Be not, then, faint of heart, and grieve not: for you are bound to rise high if you are [truly] believers.
+and when the graves are overturned –
  <!--END_SECTION:quran-->
 
   
