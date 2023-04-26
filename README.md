@@ -9,8 +9,11 @@
 
 <center>
 
+[![wakatime](https://wakatime.com/badge/user/87646243-158a-4241-a3cb-668e1fa2dbb8.svg)](https://wakatime.com/@87646243-158a-4241-a3cb-668e1fa2dbb8)
+               
+
 _______ 
-# Daily Ayah
+### Daily Ayah
 
 <!--START_SECTION:quran-->
 
@@ -20,8 +23,6 @@ Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing
  <!--END_SECTION:quran-->
 
   
-[![wakatime](https://wakatime.com/badge/user/87646243-158a-4241-a3cb-668e1fa2dbb8.svg)](https://wakatime.com/@87646243-158a-4241-a3cb-668e1fa2dbb8)
-               
                        
                                              
 _______
