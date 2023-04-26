@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 23**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 40**
 
-The two replied: "O our Sustainer! We have sinned against ourselves -and unless Thou grant us forgiveness and bestow Thy mercy upon us, we shall most certainly be lost!"
+Or is it that [they who reject thy message, O Muhammad, fear lest] thou ask of them a reward, so that they would be burdened with debt [if they should listen to thee]?
  <!--END_SECTION:quran-->
 
   
