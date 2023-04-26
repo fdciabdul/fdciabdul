@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana)**
+**Surah 19: سُورَةُ الطُّورِ (At-Tur)**
 
-As for such [of the unbelievers] as do not fight against you on account of [your] faith, and neither drive you forth from your homelands, God does not forbid you to show them kindness and to behave towards them with full equity: for, verily, God loves those who act equitably.
+[And they will be told:] “Eat and drink with good cheer as an outcome of what you were wont to do,
 <!--END_SECTION:quran-->
 
   
