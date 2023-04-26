@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ الفَلَقِ (Al-Falaq)**
+**Surah 1: سُورَةُ النَّصۡرِ (An-Nasr)**
 
-"from the evil of aught that He has created,
+WHEN GOD'S SUCCOUR comes, and victory,
 <!--END_SECTION:quran-->
 
   
