@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 74**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 13**
 
-And when the fear had left Abraham, and the glad tiding had been conveyed to him, he began to plead with Us for Lot's people:
+Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.
  <!--END_SECTION:quran-->
 
   
