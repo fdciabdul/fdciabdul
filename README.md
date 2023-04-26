@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ الفَتۡحِ (Al-Fath)**
+**Surah 5: سُورَةُ الفَلَقِ (Al-Falaq)**
 
-[O you who believe!] God has promised you many war-gains which you shall yet achieve; and He has vouchsafed you these [worldly gains] well in advance, and has stayed from you the hands of [hostile] people, so that this [your inner strength] may become a symbol to the believers [who will come after you], and that He may guide you all on a straight way.
+"and from the evil of the envious when he envies."
 <!--END_SECTION:quran-->
 
   
