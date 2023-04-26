@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 6**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 28**
 
-Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.
+for, behold, of their Sustainer's chastisement none may ever feel [wholly] secure;
  <!--END_SECTION:quran-->
 
   
