@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 4**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 41**
 
-Behold, Pharaoh exalted himself in the land and divided its people into castes. One group of them he deemed utterly low; he would slaughter their sons and spare (only) their women: for, behold, he was one of those who spread corruption [on earth].
+where­upon he shall be requited for it with the fullest requital;
  <!--END_SECTION:quran-->
 
   
