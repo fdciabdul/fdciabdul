@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 189**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 2**
 
-THEY WILL ASK thee about the new moons. Say: "They indicate the periods for [various doings of] mankind, including the pilgrimage." However, piety does not consist in your entering houses from the rear, [as it were,] but truly pious is he who is conscious of God. Hence, enter houses through their doors, and remain conscious of God, so that you might attain to a happy state.
+How awesome the sudden calamity!
  <!--END_SECTION:quran-->
 
   
