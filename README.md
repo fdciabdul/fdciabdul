@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ الشَّرۡحِ (Ash-Sharh)**
+**Surah 13: سُورَةُ اللَّيۡلِ (Al-Lail)**
 
-And [have We not] raised thee high in dignity?
+and, behold, Ours is [the dominion over] the life to come as well as [over] this earlier part [of your life]:
 <!--END_SECTION:quran-->
 
   
