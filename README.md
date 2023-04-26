@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 30**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 9**
 
-They said: “O our people! Behold, we have been listening to a revelation bestowed from on high after [that of] Moses, confirming the truth of what­ever there still remains [of the Torah]: it guides towards the truth, and onto a straight way.
+to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.
  <!--END_SECTION:quran-->
 
   
