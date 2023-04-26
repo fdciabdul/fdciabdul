@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الشَّمۡسِ (Ash-Shams)**
+**Surah 12: سُورَةُ الشَّمۡسِ (Ash-Shams)**
 
-and how it is imbued with moral failings as well as with consciousness of God!
+when that most hapless wretch from among them rushed forward [to commit his evil deed],
 <!--END_SECTION:quran-->
 
   
