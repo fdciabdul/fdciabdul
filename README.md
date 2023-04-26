@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 5**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 48**
 
-and caused them to become like a field of grain that has been eaten down to stubble
+On the Day when they shall be dragged into the fire on their faces, [they will be told:] “Taste now the touch of hell-fire!”
  <!--END_SECTION:quran-->
 
   
