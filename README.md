@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الهُمَزَةِ (Al-Humaza)**
+**Surah 35: سُورَةُ الأَحۡقَافِ (Al-Ahqaf)**
 
-verily, it will close in upon them
+REMAIN, then, [O believer,] patient in adversity, just as all of the apostles, endowed with firmness of heart, bore themselves with patience. And do not ask for a speedy doom of those [who still deny the truth]: on the Day when they see [the fulfillment of] what they were promised, [it will seem to them] as though they had dwelt [on earth] no longer than one hour of [an earthly] day! [This is Our] message. Will, then, any be [really] destroyed save iniquitous folk?”
 <!--END_SECTION:quran-->
 
   
