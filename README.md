@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 11**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 74**
 
-wherein thou wilt hear no empty talk.
+And when the fear had left Abraham, and the glad tiding had been conveyed to him, he began to plead with Us for Lot's people:
  <!--END_SECTION:quran-->
 
   
