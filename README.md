@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 6**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 11**
 
-[and,] verily, the hours of night the mind most strongly and speak with the clearest voice,
+noble, recording,
  <!--END_SECTION:quran-->
 
   
