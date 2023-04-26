@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المُلۡكِ (Al-Mulk)**
+**Surah 24: سُورَةُ المُدَّثِّرِ (Al-Muddaththir)**
 
-And, indeed, We have adorned the skies nearest to the earth with lights, and have made them the object of futile guesses for the evil ones [from among men]: and for them have We readied suffering through a blazing flame –
+and says, "All this is mere spellbinding eloquence handed down [from olden times]!
 <!--END_SECTION:quran-->
 
   
