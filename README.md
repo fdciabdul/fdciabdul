@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas)**
+**Surah 2: سُورَةُ الكَافِرُونَ (Al-Kaafiroon)**
 
-SAY: "He is the One God:
+"I do not worship that which you worship,
 <!--END_SECTION:quran-->
 
   
