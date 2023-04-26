@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ البَيِّنَةِ (Al-Bayyina)**
+**Surah 94: سُورَةُ الحِجۡرِ (Al-Hijr)**
 
-Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.
+Hence, proclaim openly all that thou hast been bidden [to say], and leave alone all those who ascribe divinity to aught beside God:
 <!--END_SECTION:quran-->
 
   
