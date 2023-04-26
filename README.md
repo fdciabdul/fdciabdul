@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 118**
+**Surah 38: سُورَةُ صٓ (Saad) - 71**
 
-And [He turned in His mercy, too,] towards the three [groups of believers] who had fallen prey to corruption, until in the end-after the earth, despite all its vastness, had become [too] narrow for them and their souls had become [utterly] constricted they came to know with certainty that there is no refuge from God other than [a return] unto Him; and thereupon He turned again unto them in His mercy, so that they might repent: for, verily, God alone is an acceptor of repentance, a dispenser of grace.
+[For,] lo, thy Sustainer said unto the angels: “Behold, I am about to create a human being out of clay;
  <!--END_SECTION:quran-->
 
   
