@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 17**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 62**
 
-VERILY, the Day of Distinction [between the true and the false] has indeed its appointed time:
+They answered: "O Salih! Great hopes did we place in thee ere this! Wouldst thou forbid us to worship what our forefathers were wont to worship? Because [of this], behold, we are in grave doubt, amounting to suspicion, about [the meaning of] thy call to us!"
  <!--END_SECTION:quran-->
 
   
