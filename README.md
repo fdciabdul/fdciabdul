@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ المَعَارِجِ (Al-Ma'aarij)**
+**Surah 51: سُورَةُ الرُّومِ (Ar-Room)**
 
-and whenever good fortune comes to him, he selfishly withholds it [from others].
+But thus it is: if We send a wind [that scorches their land], and they see it turn yellow, they begin, after that [erstwhile joy], to deny the truth [of Our almightiness and grace]!
 <!--END_SECTION:quran-->
 
   
