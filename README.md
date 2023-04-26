@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 74**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 3**
 
-But, verily, thy Sustainer knows all that their hearts conceal as well as all that they bring into the open:
+Leave them alone; let them eat and enjoy themselves the while the hope [of vain delights] be guiles them: for in time they will come to know [the truth].
  <!--END_SECTION:quran-->
 
   
