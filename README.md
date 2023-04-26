@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 10**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 139**
 
-He [it is who] has created the skies without any supports that you could see, and has placed firm mountains upon the earth, lest it sway with you, and has caused all manner of living creatures to multiply thereon. And We send down water from the skies, and thus We cause every noble kind [of life] to grow on earth.
+Be not, then, faint of heart, and grieve not: for you are bound to rise high if you are [truly] believers.
  <!--END_SECTION:quran-->
 
   
