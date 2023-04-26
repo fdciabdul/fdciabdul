@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ المَسَدِ (Al-Masad)**
+**Surah 8: سُورَةُ الفَجۡرِ (Al-Fajr)**
 
-What will his wealth avail him, and all that he has gained?
+the like of whom has never been reared in all the land? –
 <!--END_SECTION:quran-->
 
   
