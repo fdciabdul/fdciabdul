@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ الوَاقِعَةِ (Al-Waaqia)**
+**Surah 52: سُورَةُ القَمَرِ (Al-Qamar)**
 
-like unto pearls [still] hidden in their shells.
+[They were truly guilty] because all [the evil] that they ever did had been [revealed to them as such] in the [ancient] books of [divine] wisdom;
 <!--END_SECTION:quran-->
 
   
