@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَاقَّةِ (Al-Haaqqa)**
+**Surah 4: سُورَةُ الشَّرۡحِ (Ash-Sharh)**
 
-in a lofty paradise,
+And [have We not] raised thee high in dignity?
 <!--END_SECTION:quran-->
 
   
