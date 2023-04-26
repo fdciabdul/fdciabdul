@@ -11,9 +11,9 @@
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa)**
+**Surah 26: سُورَةُ النَّازِعَاتِ (An-Naazi'aat)**
 
-[Pharaoh] exclaimed: “Behold, [this] your ‘apostle’ who [claims that he] has been sent unto you is mad indeed!
+In this, behold, there is a lesson indeed for all who stand in awe [of God].
 <!--END_SECTION:quran-->
 
   
