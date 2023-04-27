@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 135**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 32**
 
-except an old woman who was among those that stayed behind;
+but, on the contrary, he gave the lie to the truth and turned away [from it],
  <!--END_SECTION:quran-->
 
   
