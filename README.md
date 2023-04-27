@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 8**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 3**
 
-And why should you not believe in God, seeing that the Apostle calls you to believe in [Him who is] your Sustainer, and [seeing that] He has taken a pledge from you? [Why should you not believe in Him] if you are able to believe [in anything]?
+and provides for him in a manner beyond all expectation; and for everyone who places his trust in God He [alone] is enough. Verily, God always attains to His purpose: [and] indeed, unto everything has God appointed its [term and] measure.
  <!--END_SECTION:quran-->
 
   
