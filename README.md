@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 35**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 61**
 
-that Day on which they will not [be able to] utter a word,
+Which, then, of your Sustainer’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
