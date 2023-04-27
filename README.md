@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 61**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 22**
 
-Which, then, of your Sustainer’s powers can you disavow?
+that, lo and behold, is an unfair division!
  <!--END_SECTION:quran-->
 
   
