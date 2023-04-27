@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 1**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 34**
 
-Ha. Mim.
+on a Day when everyone will [want to] flee from his brother,
  <!--END_SECTION:quran-->
 
   
