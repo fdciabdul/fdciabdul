@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 56**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 4**
 
-He answered: “Nay, but your [true] Sustainer is the Sustainer of the heavens and the earth - He who has brought them into being: and I am one of those who bear witness to this [truth]!”
+Consider the night as it runs its course!
  <!--END_SECTION:quran-->
 
   
