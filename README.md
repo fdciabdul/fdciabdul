@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 14**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 35**
 
-THE BEDOUIN say, “We have attained to faith.” Say [unto them, O Muhammad]: “You have not [yet] attained to faith; you should [rather] say, ‘We have [outwardly] surrendered’ - for [true] faith has not yet entered your hearts. But if you [truly] pay heed unto God and His Apostle, He will not let the least of your deeds go to waste: for, behold, God is much-forgiving, a dispenser of grace.”
+For, presently it occurred to the nobleman and his household _ [even] after they had seen all the signs [of Joseph's innocence] - that they might as well imprison him for a time.
  <!--END_SECTION:quran-->
 
   
