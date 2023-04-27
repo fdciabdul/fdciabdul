@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 15**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 22**
 
-And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –
+in a lofty paradise,
  <!--END_SECTION:quran-->
 
   
