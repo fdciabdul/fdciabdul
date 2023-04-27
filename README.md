@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 2**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 12**
 
-and [when] the earth yields up her burdens,
+And [We have propounded yet another parable of God-consciousness in the story of] Mary, the daughter of Imran, who guarded her chastity, whereupon We breathed of Our spirit into that [which was in her womb], and who accepted the truth of her Sustainer’s words - and [thus,] of His revelations - and was one of the truly devout.
  <!--END_SECTION:quran-->
 
   
