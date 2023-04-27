@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 27**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 102**
 
-AND CONVEY [to the world] whatever has been revealed to thee of thy Sustainer's writ. There is nothing that could alter His words; and thou canst find no refuge other than with Him.
+Say: "Holy inspiration has brought it down from thy Sustainer by stages, setting forth the truth, so that it might give firmness unto those who have attained to faith, and provide guidance and a glad tiding unto all who have surrendered themselves to God."
  <!--END_SECTION:quran-->
 
   
