@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 3**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 6**
 
-Verily, We have shown him the way: [and it rests with him to prove himself] either grateful or ungrateful.
+But among men there is many a one that prefers a mere play with words [to divine guidance], so as to lead [those] without knowledge astray from the path of God, and to turn it to ridicule: for such there is shameful suffering in store.
  <!--END_SECTION:quran-->
 
   
