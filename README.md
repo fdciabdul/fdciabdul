@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 12**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 119**
 
-so that We might make all this a [lasting] reminder to you all, and that every wide-awake ear might consciously take it in.
+[all of them,] save those upon whom thy Sustainer has bestowed His grace. And to this end has He created them [all. But [as for those who refuse to avail themselves of divine guidance,] that word of thy Sustainer shall be fulfilled: "Most certainly will I fill hell with invisible beings as well as with humans, all together!"
  <!--END_SECTION:quran-->
 
   
