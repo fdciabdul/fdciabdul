@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 35**
 
-ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
+that Day on which they will not [be able to] utter a word,
  <!--END_SECTION:quran-->
 
   
