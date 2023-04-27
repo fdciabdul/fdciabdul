@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 29**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 2**
 
-And they who [in their life on earth] were bent on denying the truth will [thereupon] exclaim: “O our Sustainer! Show us those of the invisible beings and humans that have led us astray: we shall trample them underfoot, so that they shall be the lowest of all!”
+God has already enjoined upon you [O believers] the breaking and expiation of [such of] your oaths [as may run counter to what is right and just]: for, God is your Lord Supreme, and He alone is all-knowing, truly wise.
  <!--END_SECTION:quran-->
 
   
