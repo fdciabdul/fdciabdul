@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 14**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 14**
 
-Does he, then, not know that God sees [all]?
+and full of piety towards his parents; and never was he haughty or rebellious.
  <!--END_SECTION:quran-->
 
   
