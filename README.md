@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 9**
 
-and lifted from thee the burden
+Nay, but they [who lack inner certainty] are but Dying with their doubts.
  <!--END_SECTION:quran-->
 
   
