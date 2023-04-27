@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 20**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 20**
 
-Did We not create you out of a humble fluid
+and with fruit of any kind that they may choose,
  <!--END_SECTION:quran-->
 
   
