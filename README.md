@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 1**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 32**
 
-SO THAT the Quraysh might remain secure,
+This is [to be borne in mind]. And anyone who honours the symbols set up by God [shall know that] verily, these [symbols derive their value] from the God-consciousness in the [believers’] hearts.
  <!--END_SECTION:quran-->
 
   
