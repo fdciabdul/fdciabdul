@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 198**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 15**
 
-whereas those who remain conscious of their Sustainer shall have gardens through which running waters flow, therein to abide: a ready welcome from God. And that which is with God is best for the truly virtuous.
+Woe on that Day unto those who give the lie to the truth!
  <!--END_SECTION:quran-->
 
   
