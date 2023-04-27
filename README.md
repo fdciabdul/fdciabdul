@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 146**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 10**
 
-And how many a prophet has had to fight [in God's cause], followed by many God-devoted men: and they did not become faint of heart for all that they had to suffer in God's cause, and neither did they weaken, nor did they abase themselves [before the enemy], since God loves those who are patient in adversity;
+O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?
  <!--END_SECTION:quran-->
 
   
