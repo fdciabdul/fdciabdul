@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 88**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 19**
 
-Say: “In whose hand rests the mighty dominion over all things, and who is it that protects, the while there is no protection against Him? [Tell me this] if you happen to know [the answer]!”
+[If so,] then I shall guide thee towards [a cognition of] thy Sustainer, so that [henceforth] thou wilt stand in awe [of Him].’"
  <!--END_SECTION:quran-->
 
   
