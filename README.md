@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 58**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 8**
 
-[although] none but God can unveil it....
+Is not God the most just of judges?
  <!--END_SECTION:quran-->
 
   
