@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 23**
 
-"and there is nothing that could be compared with Him.
+[Know this,] so that you may not despair over whatever [good] has escaped you nor exult [unduly] over whatever [good] has come to you: for, God does not love any of those who, out of self-conceit, act in a boastful manner –
  <!--END_SECTION:quran-->
 
   
