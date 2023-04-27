@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 27**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 45**
 
-Behold, they were not expecting to be called to account,
+Hence, leave them alone until they face that [Judgment] Day of theirs, when they will be stricken with terror:
  <!--END_SECTION:quran-->
 
   
