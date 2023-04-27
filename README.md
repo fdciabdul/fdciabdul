@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 6**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 103**
 
-those who want only to be seen and praised,
+whereas they whose weight is light in the balance - it is they who will have squandered their own selves, [destined] to abide in hell:
  <!--END_SECTION:quran-->
 
   
