@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 15**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 57**
 
-These people of ours have taken to worshipping [other] deities instead of Him, without being able to adduce any reasonable evidence in support of their beliefs; and who could be more wicked than he who invents a lie about God?
+And who could be more wicked than he to whom his Sustainer's messages are conveyed and who thereupon turns away from them, forgetting all [the evil] that his hands may have wrought? Behold, over their hearts have We laid veils which prevent them from grasping the truth, and into their ears, deafness; and though thou call them onto the right path, they will never allow themselves to be guided.
  <!--END_SECTION:quran-->
 
   
