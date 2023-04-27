@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 13**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 77**
 
-wherein he will neither die nor remain alive.
+Behold, it is a truly noble discourse,
  <!--END_SECTION:quran-->
 
   
