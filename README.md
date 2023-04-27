@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 121**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 111**
 
-[for he was always] grateful for the blessings granted by Him who had elected him and guided him onto a straight way.
+They answered: "Let him and his brother wait awhile, and send unto all cities heralds
  <!--END_SECTION:quran-->
 
   
