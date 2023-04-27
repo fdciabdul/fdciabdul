@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 1**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 20**
 
-ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!
+and, behold, it is with my Sustainer - and your Sustainer - that I seek refuge against all your endeavours to revile me.
  <!--END_SECTION:quran-->
 
   
