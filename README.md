@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 6**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 14**
 
-But among men there is many a one that prefers a mere play with words [to divine guidance], so as to lead [those] without knowledge astray from the path of God, and to turn it to ridicule: for such there is shameful suffering in store.
+THE BEDOUIN say, “We have attained to faith.” Say [unto them, O Muhammad]: “You have not [yet] attained to faith; you should [rather] say, ‘We have [outwardly] surrendered’ - for [true] faith has not yet entered your hearts. But if you [truly] pay heed unto God and His Apostle, He will not let the least of your deeds go to waste: for, behold, God is much-forgiving, a dispenser of grace.”
  <!--END_SECTION:quran-->
 
   
