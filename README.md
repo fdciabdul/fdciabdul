@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 32**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 28**
 
-This is [to be borne in mind]. And anyone who honours the symbols set up by God [shall know that] verily, these [symbols derive their value] from the God-consciousness in the [believers’] hearts.
+And Lot, [too, was inspired by Us] when he said unto his people: “Verily, you commit abominations such as none in all the world has ever committed before you!
  <!--END_SECTION:quran-->
 
   
