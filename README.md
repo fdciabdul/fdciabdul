@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 62**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 4**
 
-And they [who have died] are thereupon brought before God, their true Lord Supreme. Oh, verily, His alone is all judgment: and He is the swiftest of all reckoners!
+[for] no human being has ever been left unguarded.
  <!--END_SECTION:quran-->
 
   
