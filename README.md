@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 9**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 12**
 
-so that you [O men] might believe in God and His Apostle, and might honour Him, and revere Him, and extol His limitless glory from morn to evening.
+so that We might make all this a [lasting] reminder to you all, and that every wide-awake ear might consciously take it in.
  <!--END_SECTION:quran-->
 
   
