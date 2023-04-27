@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 6**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 26**
 
-you would indeed, most surely, behold the blazing fire [of hell]!
+And the parable of a corrupt word is that of a corrupt tree, torn up [from its roots] onto the face of the earth, wholly unable to endure.
  <!--END_SECTION:quran-->
 
   
