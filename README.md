@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 19**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 85**
 
-ART THOU NOT aware that God has created the heavens and the earth in accordance with [an inner] truth? He can, if He so wills, do away with you and bring forth a new mankind [in your stead]:
+and so he chose the right means [in whatever he did].
  <!--END_SECTION:quran-->
 
   
