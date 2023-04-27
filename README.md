@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 30**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 27**
 
-Say [unto those who deny the truth]: "What do you think? If of a sudden all your water were to vanish underground, who [but God] could provide you with water from [new] unsullied springs?"
+Thus have We destroyed many a [sinful] community living round about you; and yet, [before destroying them,] We had given many facets to [Our warning] messages, so that they might turn back [from their evil ways].
  <!--END_SECTION:quran-->
 
   
