@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 107**
 
-secure in their winter and summer journeys,
+Thereupon [Moses] threw down his staff, and lo! it was a serpent, plainly visible;
  <!--END_SECTION:quran-->
 
   
