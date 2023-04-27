@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 13**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
 
-although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"
+and, withal, deny all assistance [to their fellow-men]!
  <!--END_SECTION:quran-->
 
   
