@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 16**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 14**
 
-and which they shall not [be able to] evade.
+Does he, then, not know that God sees [all]?
  <!--END_SECTION:quran-->
 
   
