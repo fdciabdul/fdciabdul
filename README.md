@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 34**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 2**
 
-on a Day when everyone will [want to] flee from his brother,
+AN ACCOUNT of the grace which thy Sustainer bestowed upon His servant Zachariah:
  <!--END_SECTION:quran-->
 
   
