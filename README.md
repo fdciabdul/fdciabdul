@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 8**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 4**
 
-Is not God the most just of judges?
+"from the evil of the whispering, elusive tempter
  <!--END_SECTION:quran-->
 
   
