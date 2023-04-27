@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 28**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
 
-Return thou unto thy Sustainer, well-pleased [and] pleasing [Him]:
+"and from the evil of the envious when he envies."
  <!--END_SECTION:quran-->
 
   
