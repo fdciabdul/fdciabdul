@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 1**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 20**
 
-SAY: "He is the One God:
+[Hence,] O you who have attained to faith, pay heed unto God and His Apostle, and do not turn away from Him now that you hear [His message];
  <!--END_SECTION:quran-->
 
   
