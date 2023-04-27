@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 23**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 1**
 
-Yet God has full knowledge of what they conceal [in their hearts].
+SO THAT the Quraysh might remain secure,
  <!--END_SECTION:quran-->
 
   
