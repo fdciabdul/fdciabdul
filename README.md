@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 31**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 12**
 
-whereas such as seek to go beyond that [limit] are truly transgressors;
+BEHOLD, it is indeed for Us to grace [you] with guidance;
  <!--END_SECTION:quran-->
 
   
