@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 1**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 2**
 
-HALLOWED be He in whose hand all dominion rests, since He has the power to will anything:
+CONSIDER this divine writ, clear in itself and clearly showing the truth!
  <!--END_SECTION:quran-->
 
   
