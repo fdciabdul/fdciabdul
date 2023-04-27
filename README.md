@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 28**
+**Surah 38: سُورَةُ صٓ (Saad) - 67**
 
-And Lot, [too, was inspired by Us] when he said unto his people: “Verily, you commit abominations such as none in all the world has ever committed before you!
+Say: “This is a message tremendous:
  <!--END_SECTION:quran-->
 
   
