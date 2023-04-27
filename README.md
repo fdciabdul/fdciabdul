@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 27**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 28**
 
-For, God’s is the dominion over the heavens and the earth; and on the Day when the Last Hour dawns - on that Day will be lost all who [in their lifetime] tried to reduce to nothing [whatever they could not understand].
+Return thou unto thy Sustainer, well-pleased [and] pleasing [Him]:
  <!--END_SECTION:quran-->
 
   
