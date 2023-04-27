@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 19**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 47**
 
-Hence, [warn all men of] the Day when the enemies of God shall be gathered together before the fire, and then shall be driven onward,
+for, behold, those who are lost in sin [will at that time come to know that it is they who] were sunk in error and folly!
  <!--END_SECTION:quran-->
 
   
