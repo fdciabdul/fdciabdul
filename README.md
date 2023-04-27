@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 43**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 14**
 
-after We shall have removed whatever unworthy thoughts or feelings may have been [lingering] in their bosoms. Running waters will flow at their feet; and they will say: "All praise is due to God, who has guided us unto this; for we would certainly not have found the right path unless God had guided us! Indeed, our Sustainer's apostles have told us the truth!" And [a voice] will call out unto them: "This is the paradise which you have inherited by virtue of your past deeds!"
+seeing that He has created [every one of] you in successive stages?
  <!--END_SECTION:quran-->
 
   
