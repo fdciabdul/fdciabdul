@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 143**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 6**
 
-For, indeed, you did long for death [in God’s cause] before you came face to face with it; and now you have seen it with your own eyes!
+[promising] freedom from blame or [offering] a warning!
  <!--END_SECTION:quran-->
 
   
