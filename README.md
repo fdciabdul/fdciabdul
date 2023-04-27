@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 4**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 58**
 
-[for] no human being has ever been left unguarded.
+Hence, place thy trust in the Living One who dies not, and extol His limitless glory and praise: for none is as aware as His creatures’ sins as He –
  <!--END_SECTION:quran-->
 
   
