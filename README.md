@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 20**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 58**
 
-and, behold, it is with my Sustainer - and your Sustainer - that I seek refuge against all your endeavours to revile me.
+[although] none but God can unveil it....
  <!--END_SECTION:quran-->
 
   
