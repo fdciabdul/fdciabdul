@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 21**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 29**
 
-[For] God has thus ordained: “I shall most certainly prevail, I and My apostles!” Verily, God is powerful, almighty!
+And they who [in their life on earth] were bent on denying the truth will [thereupon] exclaim: “O our Sustainer! Show us those of the invisible beings and humans that have led us astray: we shall trample them underfoot, so that they shall be the lowest of all!”
  <!--END_SECTION:quran-->
 
   
