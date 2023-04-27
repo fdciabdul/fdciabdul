@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 103**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 62**
 
-whereas they whose weight is light in the balance - it is they who will have squandered their own selves, [destined] to abide in hell:
+And they [who have died] are thereupon brought before God, their true Lord Supreme. Oh, verily, His alone is all judgment: and He is the swiftest of all reckoners!
  <!--END_SECTION:quran-->
 
   
