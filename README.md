@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 14**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 30**
 
-Tell all who have attained to faith that they should forgive those who do not believe in the com­ing of the Days of God, [since it is] for Him [alone] to requite people for whatever they may have earned.
+Say [unto those who deny the truth]: "What do you think? If of a sudden all your water were to vanish underground, who [but God] could provide you with water from [new] unsullied springs?"
  <!--END_SECTION:quran-->
 
   
