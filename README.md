@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 2**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 27**
 
-GOD - there is no deity save Him, the Ever-Living, the Self-Subsistent Fount of All Being!
+AND CONVEY [to the world] whatever has been revealed to thee of thy Sustainer's writ. There is nothing that could alter His words; and thou canst find no refuge other than with Him.
  <!--END_SECTION:quran-->
 
   
