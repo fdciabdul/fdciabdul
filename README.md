@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 26**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 17**
 
-And the parable of a corrupt word is that of a corrupt tree, torn up [from its roots] onto the face of the earth, wholly unable to endure.
+And We shall let them be followed by those of later times:
  <!--END_SECTION:quran-->
 
   
