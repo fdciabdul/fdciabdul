@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 9**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 27**
 
-Nay, but they [who lack inner certainty] are but Dying with their doubts.
+For, God’s is the dominion over the heavens and the earth; and on the Day when the Last Hour dawns - on that Day will be lost all who [in their lifetime] tried to reduce to nothing [whatever they could not understand].
  <!--END_SECTION:quran-->
 
   
