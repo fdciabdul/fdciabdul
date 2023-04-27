@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 15**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 28**
 
-Woe on that Day unto those who give the lie to the truth!
+and [since] they have no knowledge whatever thereof, they follow nothing but surmise: yet, behold, never can surmise take the place of truth.
  <!--END_SECTION:quran-->
 
   
