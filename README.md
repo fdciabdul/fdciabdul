@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 24**
 
-"and there is nothing that could be compared with Him.
+And they will be waited upon by [immortal] youths, [as if they were children] of their own, [as pure] as if they were pearls hidden in their shells.
  <!--END_SECTION:quran-->
 
   
