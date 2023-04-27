@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 27**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 11**
 
-Thus have We destroyed many a [sinful] community living round about you; and yet, [before destroying them,] We had given many facets to [Our warning] messages, so that they might turn back [from their evil ways].
+And if any of your wives should go over to the deniers of the truth, and you are thus afflicted in turn, then give unto those whose wives have gone away the equivalent of what they had spent [on their wives by way of dower], and remain conscious of God, in whom you believe!
  <!--END_SECTION:quran-->
 
   
