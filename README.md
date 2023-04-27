@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 20**
 
-and neither will you [ever] worship that which I worship.
+Now those beings that some people invoke beside God cannot create anything, since they themselves are but created:
  <!--END_SECTION:quran-->
 
   
