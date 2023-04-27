@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 4**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 15**
 
-When the earth is shaken with a shaking [severe],
+near unto the garden of promise.
  <!--END_SECTION:quran-->
 
   
