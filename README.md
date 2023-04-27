@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 165**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 4**
 
-For, He it is who has made you inherit the earth, and has raised some of you by degrees above others, so that He might try you by means of what He has bestowed upon you. Verily, thy Sustainer is swift in retribution: yet, behold, He is indeed much-forgiving, a dispenser of grace.
+Now as for such of your women as are beyond, the age of monthly courses, as well as for such as do not have any courses, their waiting-period - if you have any doubt [about it] - shall be three [calendar] months; and as for those who are with child, the end of their waiting-term shall come when they deliver their burden. And for everyone who is conscious of God, He makes it easy to obey His commandment:
  <!--END_SECTION:quran-->
 
   
