@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
 
-SAY: "I seek refuge with the Sustainer of the rising dawn,
+"and there is nothing that could be compared with Him.
  <!--END_SECTION:quran-->
 
   
