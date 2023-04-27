@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 33**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 1**
 
-ARE THEY [who deny the truth] but waiting for the angels to appear unto them, or for God's judgment to become manifest? Even thus did behave those [stubborn sinners] who lived before their time; and [when they were destroyed,] it was not God who wronged them, but it was they who had wronged themselves:
+AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;
  <!--END_SECTION:quran-->
 
   
