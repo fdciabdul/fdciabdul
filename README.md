@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 81**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 77**
 
-Would you, now, look down with disdain on a tiding like this,
+Verily, herein lies a message indeed for all who believe [in God].
  <!--END_SECTION:quran-->
 
   
