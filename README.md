@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 20**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
 
-but all the while God encompasses them [with His knowledge and might] without their being aware of it.
+"and there is nothing that could be compared with Him.
  <!--END_SECTION:quran-->
 
   
