@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 14**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
 
-and full of piety towards his parents; and never was he haughty or rebellious.
+secure in their winter and summer journeys,
  <!--END_SECTION:quran-->
 
   
