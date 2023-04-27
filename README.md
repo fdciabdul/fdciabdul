@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 35**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 2**
 
-For, presently it occurred to the nobleman and his household _ [even] after they had seen all the signs [of Joseph's innocence] - that they might as well imprison him for a time.
+and [when] the earth yields up her burdens,
  <!--END_SECTION:quran-->
 
   
