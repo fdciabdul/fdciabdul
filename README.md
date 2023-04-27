@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 14**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 10**
 
-and then, lo, they will be fully awakened [to the truth]!
+But as for those who are bent on denying the truth and on giving the lie to Our messages - they are destined for the fire, therein to abide: and how vile a journey’s end!
  <!--END_SECTION:quran-->
 
   
