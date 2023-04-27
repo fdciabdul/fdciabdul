@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 17**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 3**
 
-And We shall let them be followed by those of later times:
+Consider these [messages] that spread [the truth] far and wide,
  <!--END_SECTION:quran-->
 
   
