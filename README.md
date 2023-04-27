@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 3**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 1**
 
-Consider the day as it reveals the world,
+HALLOWED be He in whose hand all dominion rests, since He has the power to will anything:
  <!--END_SECTION:quran-->
 
   
