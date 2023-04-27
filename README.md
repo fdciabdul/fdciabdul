@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 77**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 2**
 
-HENCE, remain thou patient in adversity - for, verily, God’s promise always comes true. And whether We show thee [in this world] something of what We hold in store for those [deniers of the truth], or whether We cause thee to die [ere that retribution takes place - know that, in the end], it is unto Us that they will be brought back.
+GOD - there is no deity save Him, the Ever-Living, the Self-Subsistent Fount of All Being!
  <!--END_SECTION:quran-->
 
   
