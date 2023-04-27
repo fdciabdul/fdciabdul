@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 26**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 44**
 
-And yet, We had established them securely in a manner in which We have never established you, [O people of later times;] and We had endowed them with hearing, and sight, and [knowledgeable] hearts: but neither their hearing, nor their sight, nor their hearts were of the least avail to them, seeing that they went on rejecting God’s messages; and [in the end] they were overwhelmed by the very thing which they had been wont to deride.
+Hence, leave Me alone with such as give the lie to this tiding. We shall bring them low, step by step, without their perceiving how it has come about:
  <!--END_SECTION:quran-->
 
   
