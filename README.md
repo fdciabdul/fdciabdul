@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 4**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 143**
 
-Consider the night as it runs its course!
+For, indeed, you did long for death [in God’s cause] before you came face to face with it; and now you have seen it with your own eyes!
  <!--END_SECTION:quran-->
 
   
