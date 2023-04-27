@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 50**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 6**
 
-In what other tiding, then, will they, after this, believe?
+Say thou, [O Prophet:] “I am but a mortal like you. It has been revealed to me that your God is the One God: go, then, straight towards Him and seek His forgiveness!” And woe unto those who ascribe divinity to aught beside Him,
  <!--END_SECTION:quran-->
 
   
