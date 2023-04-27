@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 6**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 165**
 
-[promising] freedom from blame or [offering] a warning!
+For, He it is who has made you inherit the earth, and has raised some of you by degrees above others, so that He might try you by means of what He has bestowed upon you. Verily, thy Sustainer is swift in retribution: yet, behold, He is indeed much-forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
