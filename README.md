@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 77**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 13**
 
-Verily, herein lies a message indeed for all who believe [in God].
+wherein he will neither die nor remain alive.
  <!--END_SECTION:quran-->
 
   
