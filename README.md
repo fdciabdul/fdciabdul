@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 2**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 21**
 
-CONSIDER this divine writ, clear in itself and clearly showing the truth!
+[For] God has thus ordained: “I shall most certainly prevail, I and My apostles!” Verily, God is powerful, almighty!
  <!--END_SECTION:quran-->
 
   
