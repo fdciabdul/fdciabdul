@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 4**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 50**
 
-who has given them food against hunger, and made them safe from danger.
+And since they cannot respond to this thy challenge, know that they are following only their own likes and dislikes: and who could be more astray than he who follows [but] his own likes and dislikes without any guidance from God? Verily, God does not grace with His guidance peo­ple who are given to evildoing!
  <!--END_SECTION:quran-->
 
   
