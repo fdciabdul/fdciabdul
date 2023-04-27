@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 2**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 56**
 
-THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the Wise.
+He answered: “Nay, but your [true] Sustainer is the Sustainer of the heavens and the earth - He who has brought them into being: and I am one of those who bear witness to this [truth]!”
  <!--END_SECTION:quran-->
 
   
