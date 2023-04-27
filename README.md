@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 5**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 3**
 
-Whatever [of their] palm trees you may have cut down, [O believers,] or left standing on their roots, was [done] by God’s leave, and in order that He might confound the iniquitous.
+this, because [they profess that] they have attained to faith, whereas [inwardly] they deny the truth - and so, a seal has been set on their hearts so that they can no longer understand [what is true and what false].
  <!--END_SECTION:quran-->
 
   
