@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 7**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 34**
 
-They who are bent on denying the truth claim that they will never be raised from the dead! Say: "Yea, by my Sustainer! Most surely will you be raised from the dead, and then, most surely, will you be made to understand what you did [in life]! For, easy is this for God!"
+Enter this [paradise] in peace; this is the Day on which life abiding begins!”
  <!--END_SECTION:quran-->
 
   
