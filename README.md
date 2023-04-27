@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 34**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 33**
 
-Enter this [paradise] in peace; this is the Day on which life abiding begins!”
+O you who have attained to faith! Pay heed unto God, and pay heed unto the Apostle, and let not your [good] deeds come to nought!
  <!--END_SECTION:quran-->
 
   
