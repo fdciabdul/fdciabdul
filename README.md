@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 2**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 2**
 
-and [when] the earth yields up her burdens,
+THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the Wise.
  <!--END_SECTION:quran-->
 
   
