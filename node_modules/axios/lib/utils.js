@@ -662,6 +662,11 @@ const toJSONObject = (obj) => {
   return visit(obj, 0);
 }
 
+const isAsyncFn = kindOfTest('AsyncFunction');
+
+const isThenable = (thing) =>
+  thing && (isObject(thing) || isFunction(thing)) && isFunction(thing.then) && isFunction(thing.catch);
+
 export default {
   isArray,
   isArrayBuffer,
@@ -711,5 +716,7 @@ export default {
   ALPHABET,
   generateString,
   isSpecCompliantForm,
-  toJSONObject
+  toJSONObject,
+  isAsyncFn,
+  isThenable
 };
