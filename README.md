@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 23**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 16**
 
-HAST THOU ever considered [the kind of man] who makes his own desires his deity, and whom God has [thereupon] let go astray, knowing [that his mind is closed to all guidance], and whose hearing and heart He has sealed, and upon whose sight He has placed a veil? Who, then, could guide him after God [has abandoned him]? Will you not, then, bethink your­selves?
+and which they shall not [be able to] evade.
  <!--END_SECTION:quran-->
 
   
