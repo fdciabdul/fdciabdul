@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 47**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
 
-for, behold, those who are lost in sin [will at that time come to know that it is they who] were sunk in error and folly!
+"And I will not worship ~hat which you have [ever] worshipped,
  <!--END_SECTION:quran-->
 
   
