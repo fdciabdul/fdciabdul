@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 174**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 88**
 
-And thus clearly do We spell out these messages; and [We do it] so that they [who have sinned] might return [unto Us].
+Say: “In whose hand rests the mighty dominion over all things, and who is it that protects, the while there is no protection against Him? [Tell me this] if you happen to know [the answer]!”
  <!--END_SECTION:quran-->
 
   
