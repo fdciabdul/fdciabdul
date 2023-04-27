@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 10**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 135**
 
-O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?
+except an old woman who was among those that stayed behind;
  <!--END_SECTION:quran-->
 
   
