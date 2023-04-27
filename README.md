@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 58**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 15**
 
-Hence, place thy trust in the Living One who dies not, and extol His limitless glory and praise: for none is as aware as His creatures’ sins as He –
+These people of ours have taken to worshipping [other] deities instead of Him, without being able to adduce any reasonable evidence in support of their beliefs; and who could be more wicked than he who invents a lie about God?
  <!--END_SECTION:quran-->
 
   
