@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 20**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 198**
 
-Now those beings that some people invoke beside God cannot create anything, since they themselves are but created:
+whereas those who remain conscious of their Sustainer shall have gardens through which running waters flow, therein to abide: a ready welcome from God. And that which is with God is best for the truly virtuous.
  <!--END_SECTION:quran-->
 
   
