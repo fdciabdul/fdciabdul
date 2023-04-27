@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 50**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 19**
 
-And since they cannot respond to this thy challenge, know that they are following only their own likes and dislikes: and who could be more astray than he who follows [but] his own likes and dislikes without any guidance from God? Verily, God does not grace with His guidance peo­ple who are given to evildoing!
+Hence, [warn all men of] the Day when the enemies of God shall be gathered together before the fire, and then shall be driven onward,
  <!--END_SECTION:quran-->
 
   
