@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 7**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 77**
 
-However, they who are bent on denying the truth [refuse to believe and] say, "Why has no miraculous sign ever been bestowed on him from on high by his Sustainer?" [But] thou art only a warmer; and [in God] all people have a guide.
+HENCE, remain thou patient in adversity - for, verily, God’s promise always comes true. And whether We show thee [in this world] something of what We hold in store for those [deniers of the truth], or whether We cause thee to die [ere that retribution takes place - know that, in the end], it is unto Us that they will be brought back.
  <!--END_SECTION:quran-->
 
   
