@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 12**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 20**
 
-BEHOLD, it is indeed for Us to grace [you] with guidance;
+but all the while God encompasses them [with His knowledge and might] without their being aware of it.
  <!--END_SECTION:quran-->
 
   
