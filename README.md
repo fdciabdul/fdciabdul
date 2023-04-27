@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 2**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 6**
 
-They have made their oaths a cover [for their falseness], and thus they turn others away from the Path of God. Evil indeed is all that they are wont to do:
+you would indeed, most surely, behold the blazing fire [of hell]!
  <!--END_SECTION:quran-->
 
   
