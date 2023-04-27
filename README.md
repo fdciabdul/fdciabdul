@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 43**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 23**
 
-as did the people of Abraham, and the people of Lot,
+Yet God has full knowledge of what they conceal [in their hearts].
  <!--END_SECTION:quran-->
 
   
