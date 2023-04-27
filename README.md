@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 102**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 1**
 
-Say: "Holy inspiration has brought it down from thy Sustainer by stages, setting forth the truth, so that it might give firmness unto those who have attained to faith, and provide guidance and a glad tiding unto all who have surrendered themselves to God."
+In the name of God, The Most Gracious, The Dispenser of Grace:
  <!--END_SECTION:quran-->
 
   
