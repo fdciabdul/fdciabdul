@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 1**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 29**
 
-ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: His is all dominion, and to Him all praise is due; and He has the power to will anything.
+BEHOLD, those who have abandoned themselves to sin are wont to laugh at such as have attained to faith
  <!--END_SECTION:quran-->
 
   
