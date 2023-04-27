@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 67**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
 
-Say: “This is a message tremendous:
+SAY: "I seek refuge with the Sustainer of the rising dawn,
  <!--END_SECTION:quran-->
 
   
