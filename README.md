@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 3**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 14**
 
-Consider these [messages] that spread [the truth] far and wide,
+Tell all who have attained to faith that they should forgive those who do not believe in the com­ing of the Days of God, [since it is] for Him [alone] to requite people for whatever they may have earned.
  <!--END_SECTION:quran-->
 
   
