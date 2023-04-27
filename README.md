@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 23**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 41**
 
-These [allegedly divine beings] are nothing but empty names which you have invented - you and your forefathers - [and] for which God has bestowed no warrant from on high. They [who worship them] follow nothing but surmise and their own wishful thinking - although right guidance has now indeed come unto them from their Sustainer.
+All who were lost in sin shall by their marks be known, and shall by their forelocks and their feet be seized!
  <!--END_SECTION:quran-->
 
   
