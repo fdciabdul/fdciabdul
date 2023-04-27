@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 1**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 1**
 
-AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;
+Ha. Mim.
  <!--END_SECTION:quran-->
 
   
