@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 20**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
 
-and with fruit of any kind that they may choose,
+HAVE WE NOT opened up thy heart,
  <!--END_SECTION:quran-->
 
   
