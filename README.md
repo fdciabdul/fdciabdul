@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 32**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 174**
 
-and who are faithful to their trusts and to their pledges:
+And thus clearly do We spell out these messages; and [We do it] so that they [who have sinned] might return [unto Us].
  <!--END_SECTION:quran-->
 
   
