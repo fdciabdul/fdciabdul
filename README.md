@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 1**
 
-"and there is nothing that could be compared with Him.
+DOOMED are the hands of him of the glowing countence: and doomed is he!
  <!--END_SECTION:quran-->
 
   
