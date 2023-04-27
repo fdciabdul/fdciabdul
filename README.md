@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 16**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 12**
 
-MOVE NOT thy tongue in haste, [repeating the words of the revelation:]
+And how could we not place our trust in God, seeing that it is He who has shown us the path which we are to follow? "Hence, we shall certainly bear with patience whatever hurt you may do us: for, all who have trust [in His existence] must place their trust in God [alone]!"
  <!--END_SECTION:quran-->
 
   
