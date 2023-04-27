@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 41**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 6**
 
-All who were lost in sin shall by their marks be known, and shall by their forelocks and their feet be seized!
+those who want only to be seen and praised,
  <!--END_SECTION:quran-->
 
   
