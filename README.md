@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 10**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 57**
 
-But as for those who are bent on denying the truth and on giving the lie to Our messages - they are destined for the fire, therein to abide: and how vile a journey’s end!
+Verily, [only] they who stand in reverent awe of their Sustainer,
  <!--END_SECTION:quran-->
 
   
