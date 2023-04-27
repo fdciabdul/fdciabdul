@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 4**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 1**
 
-all the angels and all the inspiration [ever granted to man] ascend unto Him [daily,] in a day the length whereof is [like] fifty thousand years…
+ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!
  <!--END_SECTION:quran-->
 
   
