@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 1**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 9**
 
-In the name of God, The Most Gracious, The Dispenser of Grace:
+so that you [O men] might believe in God and His Apostle, and might honour Him, and revere Him, and extol His limitless glory from morn to evening.
  <!--END_SECTION:quran-->
 
   
