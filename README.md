@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 23**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 6**
 
-[Know this,] so that you may not despair over whatever [good] has escaped you nor exult [unduly] over whatever [good] has come to you: for, God does not love any of those who, out of self-conceit, act in a boastful manner –
+those who want only to be seen and praised,
  <!--END_SECTION:quran-->
 
   
