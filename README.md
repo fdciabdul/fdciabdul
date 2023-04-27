@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 3**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 22**
 
-Most loathsome is it in the sight of God that you say what you do not do!
+And We let loose the winds to fertilize [plants] and We send down water from the skies and let you drink thereof: and it is not you who dispose of its source-
  <!--END_SECTION:quran-->
 
   
