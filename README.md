@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 12**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 4**
 
-aware of whatever you do!
+all the angels and all the inspiration [ever granted to man] ascend unto Him [daily,] in a day the length whereof is [like] fifty thousand years…
  <!--END_SECTION:quran-->
 
   
