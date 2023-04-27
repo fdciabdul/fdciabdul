@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 22**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
 
-that, lo and behold, is an unfair division!
+and lifted from thee the burden
  <!--END_SECTION:quran-->
 
   
