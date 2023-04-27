@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 33**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 2**
 
-O you who have attained to faith! Pay heed unto God, and pay heed unto the Apostle, and let not your [good] deeds come to nought!
+and [when] the earth yields up her burdens,
  <!--END_SECTION:quran-->
 
   
