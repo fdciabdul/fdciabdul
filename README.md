@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 15**
 
-"and from the evil of the envious when he envies."
+And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –
  <!--END_SECTION:quran-->
 
   
