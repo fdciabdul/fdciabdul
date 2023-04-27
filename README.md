@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 77**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 112**
 
-Behold, it is a truly noble discourse,
+AND THUS it is that against every prophet We have set up as enemies the evil forces from among humans as well as from among invisible beings that whisper unto one another glittering half-truths meant to delude the mind But they could not do this unless thy Sustainer had so willed: stand, therefore, aloof from them and from all their false imagery!
  <!--END_SECTION:quran-->
 
   
