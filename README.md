@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 5**
 
-and lifted from thee the burden
+Whatever [of their] palm trees you may have cut down, [O believers,] or left standing on their roots, was [done] by God’s leave, and in order that He might confound the iniquitous.
  <!--END_SECTION:quran-->
 
   
