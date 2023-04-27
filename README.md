@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 25**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 19**
 
-for [when they became obli­vious of Us,] We assigned to them [their own evil impulses as their] other selves, and these made appear goodly to them whatever lay open before them and whatever was beyond their ken. And so, the sentence [of doom] will have fallen due upon them together with the [other sinful] com­munities of invisible beings and humans that passed away before their time: verily, they [all] will indeed be lost!
+ART THOU NOT aware that God has created the heavens and the earth in accordance with [an inner] truth? He can, if He so wills, do away with you and bring forth a new mankind [in your stead]:
  <!--END_SECTION:quran-->
 
   
