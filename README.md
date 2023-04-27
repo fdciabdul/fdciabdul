@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 2**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 3**
 
-AN ACCOUNT of the grace which thy Sustainer bestowed upon His servant Zachariah:
+Most loathsome is it in the sight of God that you say what you do not do!
  <!--END_SECTION:quran-->
 
   
