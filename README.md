@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 111**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
 
-They answered: "Let him and his brother wait awhile, and send unto all cities heralds
+and neither will you [ever] worship that which I worship.
  <!--END_SECTION:quran-->
 
   
