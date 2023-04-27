@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 3**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 39**
 
-this, because [they profess that] they have attained to faith, whereas [inwardly] they deny the truth - and so, a seal has been set on their hearts so that they can no longer understand [what is true and what false].
+That will be the Day of Ultimate Truth: whoever wills, then, let him take the path that leads towards his Sustainer!
  <!--END_SECTION:quran-->
 
   
