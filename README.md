@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 39**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 23**
 
-That will be the Day of Ultimate Truth: whoever wills, then, let him take the path that leads towards his Sustainer!
+HAST THOU ever considered [the kind of man] who makes his own desires his deity, and whom God has [thereupon] let go astray, knowing [that his mind is closed to all guidance], and whose hearing and heart He has sealed, and upon whose sight He has placed a veil? Who, then, could guide him after God [has abandoned him]? Will you not, then, bethink your­selves?
  <!--END_SECTION:quran-->
 
   
