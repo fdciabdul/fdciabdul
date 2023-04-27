@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 13**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 3**
 
-Do you, perchance, fear lest [you may be sinning if] you cannot offer up anything in charity on the occasion of your consultation [with the Apostle]? But if you fail to do it [for lack of opportunity], and God turns unto you in His mercy, remain but con­stant in prayer and render [no more than] the purify­ing dues, and [thus] pay heed unto God and His Apostle: for God is fully aware of all that you do.
+Verily, We have shown him the way: [and it rests with him to prove himself] either grateful or ungrateful.
  <!--END_SECTION:quran-->
 
   
