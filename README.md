@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 4**
 
-"God the Eternal, the Uncaused Cause of All Being.
+When the earth is shaken with a shaking [severe],
  <!--END_SECTION:quran-->
 
   
