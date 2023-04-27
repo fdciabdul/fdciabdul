@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 85**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 20**
 
-and so he chose the right means [in whatever he did].
+Did We not create you out of a humble fluid
  <!--END_SECTION:quran-->
 
   
