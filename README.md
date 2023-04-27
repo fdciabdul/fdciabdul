@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 29**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 7**
 
-BEHOLD, those who have abandoned themselves to sin are wont to laugh at such as have attained to faith
+However, they who are bent on denying the truth [refuse to believe and] say, "Why has no miraculous sign ever been bestowed on him from on high by his Sustainer?" [But] thou art only a warmer; and [in God] all people have a guide.
  <!--END_SECTION:quran-->
 
   
