@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 21**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
 
-ART THOU NOT aware that it is God who sends down water from the skies, and then causes it to travel through the earth in the shape of springs? And then He brings forth thereby herbage of various hues; and then it withers, and thou canst see it turn yellow; and in the end He causes it to crumble to dust. Verily, in [all] this there is indeed a reminder to those who are endowed with insight!
+ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
  <!--END_SECTION:quran-->
 
   
