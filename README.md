@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 20**
 
-HAVE WE NOT opened up thy heart,
+Verily, those who contend against God and His Apostle - it is they who [on Judgment Day] shall find themselves among the most abject.
  <!--END_SECTION:quran-->
 
   
