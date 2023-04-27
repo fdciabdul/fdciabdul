@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 19**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 13**
 
-[If so,] then I shall guide thee towards [a cognition of] thy Sustainer, so that [henceforth] thou wilt stand in awe [of Him].’"
+although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"
  <!--END_SECTION:quran-->
 
   
