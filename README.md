@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 25**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 14**
 
-Indeed, [even aforetime] did We send forth Our apostles with all evidence of [this] truth; and through them We bestowed revelation from on high, and [thus gave you] a balance [wherewith to weigh right and wrong], so that men might behave with equity; and We bestowed [upon you] from on high [the ability to make use of] iron, in which there is awesome power as well as [a source of] benefits for man: and [all this was given to you] so that God might mark out those who would stand up for him and His Apostle, even though He [Himself] is beyond the reach of human perception. Verily, God is powerful, almighty!
+and then, lo, they will be fully awakened [to the truth]!
  <!--END_SECTION:quran-->
 
   
