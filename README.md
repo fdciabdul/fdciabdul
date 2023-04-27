@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 11**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 30**
 
-Woe, then, on that Day to all who give the lie to the truth –
+AND SO, set thy face steadfastly towards the [one ever-true] faith, turning away from all that is false, in accordance with the natural disposition which God has instilled into man: [for,] not to allow any change to corrupt what God has thus created this is the [purpose of the one] ever-true faith; but most people know it not.
  <!--END_SECTION:quran-->
 
   
