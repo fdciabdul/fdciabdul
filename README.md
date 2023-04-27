@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 119**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 27**
 
-[all of them,] save those upon whom thy Sustainer has bestowed His grace. And to this end has He created them [all. But [as for those who refuse to avail themselves of divine guidance,] that word of thy Sustainer shall be fulfilled: "Most certainly will I fill hell with invisible beings as well as with humans, all together!"
+Behold, they were not expecting to be called to account,
  <!--END_SECTION:quran-->
 
   
