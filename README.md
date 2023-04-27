@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 42**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 26**
 
-blame attaches but to those who oppress [other] people and behave outrageously on earth, offending against all right: for them there is grievous suffering in store!
+And yet, We had established them securely in a manner in which We have never established you, [O people of later times;] and We had endowed them with hearing, and sight, and [knowledgeable] hearts: but neither their hearing, nor their sight, nor their hearts were of the least avail to them, seeing that they went on rejecting God’s messages; and [in the end] they were overwhelmed by the very thing which they had been wont to deride.
  <!--END_SECTION:quran-->
 
   
