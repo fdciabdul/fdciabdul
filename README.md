@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 3**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 41**
 
-The Most Gracious, the Dispenser of Grace,
+BEHOLD, from on high have We bestowed upon thee this divine writ, setting forth the truth for [the benefit of all] mankind. And whoever chooses to be guided [thereby], does so for his own good, and whoever chooses to go astray, goes but astray to his own hurt; and thou hast not the power to determine their fate.
  <!--END_SECTION:quran-->
 
   
