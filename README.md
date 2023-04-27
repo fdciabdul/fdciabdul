@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 107**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 32**
 
-Thereupon [Moses] threw down his staff, and lo! it was a serpent, plainly visible;
+and who are faithful to their trusts and to their pledges:
  <!--END_SECTION:quran-->
 
   
