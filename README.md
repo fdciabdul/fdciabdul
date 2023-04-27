@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 12**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 12**
 
-And how could we not place our trust in God, seeing that it is He who has shown us the path which we are to follow? "Hence, we shall certainly bear with patience whatever hurt you may do us: for, all who have trust [in His existence] must place their trust in God [alone]!"
+aware of whatever you do!
  <!--END_SECTION:quran-->
 
   
