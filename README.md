@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 33**
 
-and, withal, deny all assistance [to their fellow-men]!
+ARE THEY [who deny the truth] but waiting for the angels to appear unto them, or for God's judgment to become manifest? Even thus did behave those [stubborn sinners] who lived before their time; and [when they were destroyed,] it was not God who wronged them, but it was they who had wronged themselves:
  <!--END_SECTION:quran-->
 
   
