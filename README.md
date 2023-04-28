@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 63**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 22**
 
-Thereupon We inspired Moses thus: Strike the sea with thy staff!”- whereupon it parted, and each part appeared like a mountain vast.
+Some faces will on that Day be bright with happiness,
  <!--END_SECTION:quran-->
 
   
