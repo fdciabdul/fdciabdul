@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 3**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 105**
 
-and provides for him in a manner beyond all expectation; and for everyone who places his trust in God He [alone] is enough. Verily, God always attains to His purpose: [and] indeed, unto everything has God appointed its [term and] measure.
+[And God will say:] “Were not My messages conveyed unto you, and were you [not] wont to give them the lie?”
  <!--END_SECTION:quran-->
 
   
