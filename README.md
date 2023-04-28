@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 44**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 12**
 
-NOW [as for thee, O Muhammad,] thou wert not present on the sunset slope [of Mount Sinai] when We imposed the Law upon Moses, nor wert thou among those who witnessed [his times]:
+and when the blazing fire [of hell] is kindled bright,
  <!--END_SECTION:quran-->
 
   
