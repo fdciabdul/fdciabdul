@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 11**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 82**
 
-[He has sent] an apostle who conveys unto you God's clear messages, so that He might those who have attained to faith and do righteous deeds out of the depths of darkness into the light. And whoever believes in God and does what is right and just, him will He admit into gardens through which running waters flow, therein to abide beyond the count of time: indeed, a most goodly provision will God have granted him!
+HAVE THEY, then, never journeyed about the earth and beheld what happened in the end to those [deniers of the truth] who lived before their time? More numerous were they, and greater in power than they are, and in the impact which they left on earth: but all that they ever achieved was of no avail to them –
  <!--END_SECTION:quran-->
 
   
