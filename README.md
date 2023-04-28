@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 29**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 4**
 
-but We have placed on record every single thing [of what they did].
+"from the evil of the whispering, elusive tempter
  <!--END_SECTION:quran-->
 
   
