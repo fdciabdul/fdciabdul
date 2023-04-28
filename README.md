@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 15**
 
-extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
+and yet, he greedily desires that I give yet more!
  <!--END_SECTION:quran-->
 
   
