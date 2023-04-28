@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 34**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 5**
 
-marked out in thy Sustainer’s sight for [the punishment of] such as have wasted their own selves.”
+far-reaching wisdom [was held out to them]: but [since] all warnings have been of no avail,
  <!--END_SECTION:quran-->
 
   
