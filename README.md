@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 23**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 11**
 
-like unto pearls [still] hidden in their shells.
+[It was they] who transgressed all bounds of equity all over their lands,
  <!--END_SECTION:quran-->
 
   
