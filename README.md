@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 5**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 46**
 
-obeying its Sustainer, as in truth it must -:
+He answered: "Dost thou dislike my gods, O Abraham? Indeed, if thou desist not, I shall most certainly cause thee to be stoned to death! Now begone from me for good!"
  <!--END_SECTION:quran-->
 
   
