@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 75**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 5**
 
-[Such as] these will be rewarded for all their patient endurance [in life] with a high station [in paradise], and will be met therein with a greeting of welcome and peace,
+for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
