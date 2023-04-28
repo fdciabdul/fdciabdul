@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 16**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 19**
 
-And how severe is the suffering which I inflict when My warnings are disregarded!
+GOD is most kind unto His creatures: He provides sustenance for whomever He wills - for He alone is powerful, almighty!
  <!--END_SECTION:quran-->
 
   
