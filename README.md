@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 6**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 13**
 
-Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.
+O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.
  <!--END_SECTION:quran-->
 
   
