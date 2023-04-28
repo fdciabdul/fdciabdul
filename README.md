@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 20**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 107**
 
-And on the Day when those who were bent on denying the truth will be brought within sight of the fire, [they will be told:] “You have exhausted your [share of] good things in your worldly life, having enjoyed them [without any thought of the hereafter]: and so today you shall be requited with the suffering of humiliation for having gloried on earth in your arrogance, offending against all that is right, and for all your iniquitous doings!”
+therein to abide as long as the heavens and the earth endure-unless thy Sustainer wills it otherwise: for, verily, thy Sustainer is a sovereign doer of whatever He wills.
  <!--END_SECTION:quran-->
 
   
