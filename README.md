@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 17**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 25**
 
-Said he: “O my Sustainer! [I vow] by all the blessings which Thou hast bestowed on me: Never­more shall I aid such as are lost in sin!”
+Indeed, God has succoured you on many battlefields, [when you were few;] and [He did so, too,] on the Day of Hunayn, when you took pride in your great numbers and they proved of no avail whatever to you -for the earth, despite all its vastness, became [too] narrow for you and you turned back, retreating:
  <!--END_SECTION:quran-->
 
   
