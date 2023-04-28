@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 3**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 42**
 
-but when they have to measure or weigh whatever they owe to others, give less than what is due!
+And so, as soon as she arrived, she was asked: “Is thy throne like this?” She answered: “It is as though it were the same!” [And Solomon said to his nobles: “She has arrived at the truth without any help from us,] although it is we who have been given [divine] knowledge before her, and have [long ago] surrendered ourselves unto God!
  <!--END_SECTION:quran-->
 
   
