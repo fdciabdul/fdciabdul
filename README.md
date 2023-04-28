@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 49**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 30**
 
-MAN NEVER TIRES of asking for the good [things of life]; and if evil fortune touches him, he abandons all hope, giving himself up to despair.
+Now had We so willed, We could have shown them clearly to thee, so that thou wouldst know them for sure as by a visible mark: but [even so,] thou wilt most certainly recognize them by the tone of their voice. And God knows all that you do, [O men;]
  <!--END_SECTION:quran-->
 
   
