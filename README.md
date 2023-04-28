@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 8**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
 
-and how it is imbued with moral failings as well as with consciousness of God!
+BEHOLD, We have bestowed upon thee good in abundance:
  <!--END_SECTION:quran-->
 
   
