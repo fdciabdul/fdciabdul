@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 15**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 26**
 
-and yet, he greedily desires that I give yet more!
+Say thou, [O Prophet:] "Knowledge thereof rests with God alone; and I am only a plain warner."
  <!--END_SECTION:quran-->
 
   
