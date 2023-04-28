@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 23**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 27**
 
-God bestows from on high the best of all teachings in the shape of a divine writ fully consistent within itself, repeating each statement [of the truth] in manifold forms [a divine writ] whereat shiver the skins of all who of their Sustainer stand in awe: [but] in the end their skins and their hearts do soften at the remembrance of [the grace of] God. Such is God’s guidance: He guides therewith him that wills [to be guided] whereas he whom God lets go astray can never find any guide
+O YOU who have attained to faith! Do not enter houses other than your own unless you have obtained permission and greeted their inmates. This is [enjoined upon you] for your own good, so that you might bear [your mutual rights] in mind.
  <!--END_SECTION:quran-->
 
   
