@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 20**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 29**
 
-This [revelation, then,] is a means of insight for mankind, and a guidance and grace unto people who are endowed with inner certainty.
+and olive trees and date-palms,
  <!--END_SECTION:quran-->
 
   
