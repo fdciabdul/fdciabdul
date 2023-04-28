@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 34**
 
-"from the evil of aught that He has created,
+Verily, we shall bring down upon the people of this land a horror from heaven in requital of all their iniquitous doings!”
  <!--END_SECTION:quran-->
 
   
