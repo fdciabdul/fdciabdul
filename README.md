@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 46**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 48**
 
-He answered: "Dost thou dislike my gods, O Abraham? Indeed, if thou desist not, I shall most certainly cause thee to be stoned to death! Now begone from me for good!"
+And the earth have We spread out wide - and how well have We ordered it!
  <!--END_SECTION:quran-->
 
   
