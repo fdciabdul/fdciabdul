@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 13**
 
-Behold, it is this [kind of man] that thrusts the orphan away,
+[God] said: "Down with thee, then, from this [state] -for it is not meet for thee to show arrogance here! Go forth, then: verily, among the humiliated shalt thou be!"
  <!--END_SECTION:quran-->
 
   
