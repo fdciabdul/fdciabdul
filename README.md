@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 16**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
 
-the planets that run their course and set,
+ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
  <!--END_SECTION:quran-->
 
   
