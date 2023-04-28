@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 19**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
 
-GOD is most kind unto His creatures: He provides sustenance for whomever He wills - for He alone is powerful, almighty!
+extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
  <!--END_SECTION:quran-->
 
   
