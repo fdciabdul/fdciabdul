@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 43**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 3**
 
-downcast will be their eyes, with ignominy overwhelming them - seeing that they had been called upon [in vain] to prostrate themselves [before Him] while they were yet sound [and alive].
+that had weighed so heavily on thy back?
  <!--END_SECTION:quran-->
 
   
