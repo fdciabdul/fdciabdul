@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 17**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 53**
 
-and the night as it darkly falls,
+while those who have attained to faith will say [to one another], "Are these the selfsame people who swore by God with their most solemn oaths that they were indeed with you? In vain are all their works, for now they are lost!"
  <!--END_SECTION:quran-->
 
   
