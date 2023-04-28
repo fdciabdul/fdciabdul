@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 2**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
 
-It is God who has raised the heavens without any supports that you could see, and is established on the throne of His almightiness; and He [it is who] has made the sun and the moon subservient [to His laws], each running its course for a term set [by Him]. He governs all that exists. Clearly does He spell out these messages, so that you might be certain in your innermost that you are destined to meet your Sustainer [on Judgment Day].
+"from the evil of aught that He has created,
  <!--END_SECTION:quran-->
 
   
