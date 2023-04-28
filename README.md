@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 35**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 1**
 
-[Or do they deny the existence of God?] Have they themselves been created without anything [that might have caused their creation]? or were they, perchance, their own creators?
+SAY: "O you who deny the truth!
  <!--END_SECTION:quran-->
 
   
