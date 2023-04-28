@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 3**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 34**
 
-and man cries out, "What has happened to her?" -
+marked out in thy Sustainer’s sight for [the punishment of] such as have wasted their own selves.”
  <!--END_SECTION:quran-->
 
   
