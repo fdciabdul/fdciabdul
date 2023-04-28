@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 22**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 3**
 
-They answered: “Hast thou come to seduce us away from our gods? Bring, then, upon us that [doom] with which thou threaten us, if thou art a man of truth!”
+and when the earth is leveled,
  <!--END_SECTION:quran-->
 
   
