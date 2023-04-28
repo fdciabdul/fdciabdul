@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 7**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 16**
 
-Whatever [spoils taken] from the people of those villages God has turned over to His Apostle - [all of it] belongs to God and the Apostle, and the near of kin [of deceased believers], and the orphans, and the needy, and the wayfarer, so that it may not be [a benefit] going round and round among such of you as may [already] be rich. Hence, accept [willing­ly] whatever the Apostle* gives you [thereof], and refrain from [demanding] anything that he withholds from you; and remain conscious of God: for, verily, God is severe in retribution.
+And [in this insight] Solomon was [truly] David’s heir; and he would say: “O you people! We have been taught the speech of birds, and have been given [in abundance] of all [good] things: this, behold, is indeed a manifest favour [from God]!”
  <!--END_SECTION:quran-->
 
   
