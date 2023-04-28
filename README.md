@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 34**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 20**
 
-Verily, with God alone rests the knowledge of when the Last Hour will come: and He [it is who] sends down rain; and He [alone] knows what is in the wombs: whereas no one knows what he will reap tomorrow, and no one knows in what land he will die, Verily. God [alone] is all-knowing, all-aware.
+And on the Day when those who were bent on denying the truth will be brought within sight of the fire, [they will be told:] “You have exhausted your [share of] good things in your worldly life, having enjoyed them [without any thought of the hereafter]: and so today you shall be requited with the suffering of humiliation for having gloried on earth in your arrogance, offending against all that is right, and for all your iniquitous doings!”
  <!--END_SECTION:quran-->
 
   
