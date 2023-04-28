@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 82**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 8**
 
-HAVE THEY, then, never journeyed about the earth and beheld what happened in the end to those [deniers of the truth] who lived before their time? More numerous were they, and greater in power than they are, and in the impact which they left on earth: but all that they ever achieved was of no avail to them –
+and [thus] shall We make easy for thee the path towards [ultimate] ease.
  <!--END_SECTION:quran-->
 
   
