@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 6**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 6**
 
-He makes the night grow longer by shortening the day, and makes the day grow longer by shortening the night; and He has full knowledge of what is in the hearts [of men].
+Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.
  <!--END_SECTION:quran-->
 
   
