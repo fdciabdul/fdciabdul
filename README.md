@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 89**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 5**
 
-happiness [awaits him in the life to come], and inner fulfillment, and a garden of bliss.
+Behold, We shall bestow upon thee a weighty message –
  <!--END_SECTION:quran-->
 
   
