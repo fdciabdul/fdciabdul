@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 34**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 15**
 
-save for such [of them] as repent ere you [O believers] become more powerful than they: for you must know that God is much-forgiving, a dispenser of grace.
+Because of this, then, summon [all mankind], and pursue the right course, as thou hast been bidden [by God]; and do not follow their likes and dislikes, but say: “I believe in whatever revelation God has be­stowed from on high; and I am bidden to bring about equity in your mutual views. God is our Sustainer as well as your Sustainer. To us shall be accounted our deeds, and to you, your deeds. Let there be no contention between us and you: God will bring us all together - for with Him is all journeys’ end.”
  <!--END_SECTION:quran-->
 
   
