@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 14**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
 
-[on that Day] every human being will come to know what he has prepared [for himself].
+and lifted from thee the burden
  <!--END_SECTION:quran-->
 
   
