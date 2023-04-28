@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 36**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 20**
 
-Which, then, of your Sustainer’s powers can you disavow?
+so that you might walk thereon on spacious paths.’"
  <!--END_SECTION:quran-->
 
   
