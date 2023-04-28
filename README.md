@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 12**
 
-HAVE WE NOT opened up thy heart,
+Lo! Thy Sustainer inspired the angels [to convey this His message to the believers]: "I am with you!" [And He commanded the angels:] "And, give firmness unto those who have attained to faith [with these words from Me]: `I shall cast terror into the hearts of those who are bent on denying the truth; strike, then, their necks, [O believers,] and strike off every one of their finger-tips!"
  <!--END_SECTION:quran-->
 
   
