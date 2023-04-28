@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 15**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 29**
 
-Because of this, then, summon [all mankind], and pursue the right course, as thou hast been bidden [by God]; and do not follow their likes and dislikes, but say: “I believe in whatever revelation God has be­stowed from on high; and I am bidden to bring about equity in your mutual views. God is our Sustainer as well as your Sustainer. To us shall be accounted our deeds, and to you, your deeds. Let there be no contention between us and you: God will bring us all together - for with Him is all journeys’ end.”
+but We have placed on record every single thing [of what they did].
  <!--END_SECTION:quran-->
 
   
