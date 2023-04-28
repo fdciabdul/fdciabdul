@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 47**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
 
-[But] woe on that Day unto those who give the lie to the truth,
+CONSIDER the flight of time!
  <!--END_SECTION:quran-->
 
   
