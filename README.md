@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 16**
 
-extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
+the planets that run their course and set,
  <!--END_SECTION:quran-->
 
   
