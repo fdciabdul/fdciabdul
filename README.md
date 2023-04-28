@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 53**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 112**
 
-while those who have attained to faith will say [to one another], "Are these the selfsame people who swore by God with their most solemn oaths that they were indeed with you? In vain are all their works, for now they are lost!"
+AND GOD propounds [to you] a parable: [Imagine] a town which was [once] secure and at ease, with its sustenance coming to it abundantly from all quarters, and which thereupon blasphemously refused to show gratitude for God's blessings: and therefore God caused it to taste the all-embracing misery of hunger and fear in result of all [the evil] that its people had so persistently wrought.
  <!--END_SECTION:quran-->
 
   
