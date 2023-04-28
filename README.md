@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 29**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
 
-and olive trees and date-palms,
+WHEN GOD'S SUCCOUR comes, and victory,
  <!--END_SECTION:quran-->
 
   
