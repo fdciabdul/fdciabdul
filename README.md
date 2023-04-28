@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 4**
 
-And, behold, with every hardship comes ease:
+"and from the evil of all human beings bent on occult endeavours,
  <!--END_SECTION:quran-->
 
   
