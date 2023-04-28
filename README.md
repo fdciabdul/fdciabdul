@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 55**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 6**
 
-Call unto your Sustainer humbly, and in the secrecy of your hearts. Verily, He loves not those who transgress the bounds of what is right:
+He has created you [all] out of one living entity, and out of it fashioned its mate; and he has be­stowed upon you four kinds of cattle of either sex; [and] He creates you in your mothers’ wombs, one act of creation after another, in threefold depths of darkness. Thus is God, your Sustainer: unto Him belongs all dominion: there is no deity save Him: how, then, can you lose sight of the truth?
  <!--END_SECTION:quran-->
 
   
