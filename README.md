@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 7**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 43**
 
-so much so that they came to think, as you [once] thought, that God would never [again] send forth anyone [as His apostle].
+as did the people of Abraham, and the people of Lot,
  <!--END_SECTION:quran-->
 
   
