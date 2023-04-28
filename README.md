@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 29**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 29**
 
-GO ON towards that [resurrection] which you were wont to call a lie!
+Say: “On the Day of the Final Decision, their [newly-found] faith will be of no use to those who [in their lifetime] were bent on denying the truth, nor will they be granted respite!” –
  <!--END_SECTION:quran-->
 
   
