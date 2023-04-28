@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 30**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 8**
 
-Now had We so willed, We could have shown them clearly to thee, so that thou wouldst know them for sure as by a visible mark: but [even so,] thou wilt most certainly recognize them by the tone of their voice. And God knows all that you do, [O men;]
+and how it is imbued with moral failings as well as with consciousness of God!
  <!--END_SECTION:quran-->
 
   
