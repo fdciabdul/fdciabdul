@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 17**
 
-In the end you will indeed, most surely, behold it with the eye of certainty:
+and the night as it darkly falls,
  <!--END_SECTION:quran-->
 
   
