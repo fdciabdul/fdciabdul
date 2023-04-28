@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 48**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 29**
 
-And the earth have We spread out wide - and how well have We ordered it!
+and olive trees and date-palms,
  <!--END_SECTION:quran-->
 
   
