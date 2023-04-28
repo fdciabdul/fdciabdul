@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 43**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 44**
 
-He it is who bestows His blessings upon you, with His angels [echoing Him], so that He might take you out of the depths of darkness into the light. And, indeed, a dispenser of grace is He unto the believers.
+NOW [as for thee, O Muhammad,] thou wert not present on the sunset slope [of Mount Sinai] when We imposed the Law upon Moses, nor wert thou among those who witnessed [his times]:
  <!--END_SECTION:quran-->
 
   
