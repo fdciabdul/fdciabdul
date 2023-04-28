@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 9**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 11**
 
-perverted in his views thereon is he who would deceive himself!
+And if any of your wives should go over to the deniers of the truth, and you are thus afflicted in turn, then give unto those whose wives have gone away the equivalent of what they had spent [on their wives by way of dower], and remain conscious of God, in whom you believe!
  <!--END_SECTION:quran-->
 
   
