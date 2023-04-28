@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 54**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 29**
 
-Do they, perchance, envy other people for what God has granted them out of His bounty? But then, We did grant revelation and wisdom unto the House of Abraham, and We did bestow on them a mighty dominion:
+GO ON towards that [resurrection] which you were wont to call a lie!
  <!--END_SECTION:quran-->
 
   
