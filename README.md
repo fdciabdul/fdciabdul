@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 21**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 40**
 
-And all [mankind] will appear before God [on the Day of Judgment]; and then the weak will say unto those who had gloried in their arrogance: "Behold, We were but your followers: can you, then, relieve us of something of God's chastisement?" [And the others] will answer: "If God would but show us the way [to salvation], we would indeed guide you [towards it]. It is [now] all one, as far as we are concerned, whether we grieve impatiently or endure [our lot] with patience: there is no escape for us!"
+CANST THOU, perchance, [O Muhammad,] make the deaf hear, or show the right way to the blind or to such as are obviously lost in error?
  <!--END_SECTION:quran-->
 
   
