@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 55**
 
-[who bears] around her neck a rope of twisted strands!
+Call unto your Sustainer humbly, and in the secrecy of your hearts. Verily, He loves not those who transgress the bounds of what is right:
  <!--END_SECTION:quran-->
 
   
