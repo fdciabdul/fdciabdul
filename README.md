@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 104**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 8**
 
-And be not faint of heart when you seek out the [enemy] host. If you happen to suffer pain, behold, they suffer pain even as you suffer it: but you are hoping [to receive] from God what they cannot hope for. And God is indeed all-knowing, wise.
+and unto thy Sustainer turn with love.
  <!--END_SECTION:quran-->
 
   
