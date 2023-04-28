@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 16**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 22**
 
-[and] who are im­pelled to rise from their beds [at night] to call out to their Sustainer in fear and hope; and who spend on others out of what We provide for them as sus­tenance.
+Could, then, one whose bosom God has opened wide with willingness towards self-surrender unto Him, so that he is illumined by a light [that flows] from his Sustainer, [be likened to the blind and deaf of heart]? Woe, then, unto those whose hearts are hardened against all remembrance of God! They are most obviously lost in error!
  <!--END_SECTION:quran-->
 
   
