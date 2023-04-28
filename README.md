@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 5**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 28**
 
-Behold, We shall bestow upon thee a weighty message –
+And it is He who sends down rain after [men] have lost all hope, and unfolds His grace [thereby]: for He alone is [their] Protector, the One to whom all praise is due.
  <!--END_SECTION:quran-->
 
   
