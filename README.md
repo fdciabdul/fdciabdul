@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 13**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 118**
 
-AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.
+Hence, [O believer,] say: “O my Sustainer! Grant [me] forgiveness and bestow Thy mercy [upon me]: for Thou art the truest bestower of mercy!”
  <!--END_SECTION:quran-->
 
   
