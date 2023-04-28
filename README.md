@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 46**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 8**
 
-Said [Salih to the erring ones]: Why do you seek to hasten the coming upon you of evil instead of hoping for the good?” Why do you not, rather, ask God to forgive you your sins, so that you might be graced with His mercy?”
+and who give food - however great be their own want of it - unto the needy, and the orphan, and the captive,
  <!--END_SECTION:quran-->
 
   
