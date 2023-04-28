@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 35**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
 
-this, because you made God’s messages the target of your mockery, having allowed the life of this world to beguile you!” On that Day, therefore, they will not be brought out of the fire, nor will they be allowed to make amends.
+HAVE WE NOT opened up thy heart,
  <!--END_SECTION:quran-->
 
   
