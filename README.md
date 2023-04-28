@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 71**
 
-"He begets not, and neither is He begotten;
+And on some of you God has bestowed more abundant means of sustenance than on others: and yet, they who are more abundantly favoured are [often] unwilling to share their sustenance with those whom their right hands possess, so that they [all] might be equal in this respect. Will they, then, God's blessings [thus] deny?
  <!--END_SECTION:quran-->
 
   
