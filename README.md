@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 36**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
 
-But when she had given birth to the child, she said: "O my Sustainer! Behold, I have given birth to a female" - the while God had been fully aware of what she would give birth to, and [fully aware] that no male child [she might have hoped for] could ever have been like this female - "and I have named her Mary. And, verily, I seek Thy protection for her and her offspring against Satan, the accursed."
+And, behold, with every hardship comes ease:
  <!--END_SECTION:quran-->
 
   
