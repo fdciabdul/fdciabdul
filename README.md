@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 42**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 21**
 
-And so, as soon as she arrived, she was asked: “Is thy throne like this?” She answered: “It is as though it were the same!” [And Solomon said to his nobles: “She has arrived at the truth without any help from us,] although it is we who have been given [divine] knowledge before her, and have [long ago] surrendered ourselves unto God!
+Now as for those who indulge in sinful doings - do they think that We place them, both in their life and their death, on an equal footing with those who have attained to faith and do righteous deeds? Bad, indeed, is their judgment:
  <!--END_SECTION:quran-->
 
   
