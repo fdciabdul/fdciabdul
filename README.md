@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 8**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 39**
 
-and who give food - however great be their own want of it - unto the needy, and the orphan, and the captive,
+and who, whenever tyranny afflicts them, defend themselves.
  <!--END_SECTION:quran-->
 
   
