@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 2**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 12**
 
-Consider this Qur’an full of wisdom:
+and of his spouse, and of his brother,
  <!--END_SECTION:quran-->
 
   
