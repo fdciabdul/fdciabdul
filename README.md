@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 1**
 
-ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
+WHEN THE EARTH quakes with her [last] mighty quaking,
  <!--END_SECTION:quran-->
 
   
