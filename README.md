@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 5**
 
-hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
+thereby storming [blindly] into any host!
  <!--END_SECTION:quran-->
 
   
