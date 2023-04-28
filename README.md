@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 20**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 3**
 
-At that, a man came running from the farthest end of the city, [and] exclaimed: “O my people! Follow these message-bearers!
+and man cries out, "What has happened to her?" -
  <!--END_SECTION:quran-->
 
   
