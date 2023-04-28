@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 28**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 8**
 
-And it is He who sends down rain after [men] have lost all hope, and unfolds His grace [thereby]: for He alone is [their] Protector, the One to whom all praise is due.
+And found thee in want, and given thee sufficiency?
  <!--END_SECTION:quran-->
 
   
