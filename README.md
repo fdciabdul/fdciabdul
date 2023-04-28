@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 1**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 22**
 
-WHEN THAT which must come to pass [at last] comes to pass,
+They answered: “Hast thou come to seduce us away from our gods? Bring, then, upon us that [doom] with which thou threaten us, if thou art a man of truth!”
  <!--END_SECTION:quran-->
 
   
