@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 6**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 40**
 
-All this [happens] because God alone is the Ultimate Truth, and because He alone brings the dead to life, and because He has the power to will anything.
+[There,] anyone who has done a bad deed will be requited with no more than the like thereof, whereas anyone, be it man or woman, who has done righteous deeds and is a believer withal - all such will enter paradise, wherein they shall be blest with good beyond all reckoning!
  <!--END_SECTION:quran-->
 
   
