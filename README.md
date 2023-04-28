@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 3**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 6**
 
-that had weighed so heavily on thy back?
+All this [happens] because God alone is the Ultimate Truth, and because He alone brings the dead to life, and because He has the power to will anything.
  <!--END_SECTION:quran-->
 
   
