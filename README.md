@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 129**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 54**
 
-Now were it not for a decree that has already gone forth from thy Sustainer, setting a term [for each sinner's repentance], it would inescapably follow [that all who sin must be doomed at once].
+Do they, perchance, envy other people for what God has granted them out of His bounty? But then, We did grant revelation and wisdom unto the House of Abraham, and We did bestow on them a mighty dominion:
  <!--END_SECTION:quran-->
 
   
