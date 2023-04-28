@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 8**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 2**
 
-and [thus] shall We make easy for thee the path towards [ultimate] ease.
+Consider [God’s] revelation, inscribed
  <!--END_SECTION:quran-->
 
   
