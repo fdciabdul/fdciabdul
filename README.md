@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 4**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 105**
 
-"and from the evil of all human beings bent on occult endeavours,
+The people of Noah [too] gave the lie to [one of God’s] message-bearers
  <!--END_SECTION:quran-->
 
   
