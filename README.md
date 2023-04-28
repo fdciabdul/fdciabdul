@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 25**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 26**
 
-Indeed, God has succoured you on many battlefields, [when you were few;] and [He did so, too,] on the Day of Hunayn, when you took pride in your great numbers and they proved of no avail whatever to you -for the earth, despite all its vastness, became [too] narrow for you and you turned back, retreating:
+Say: “It is God who gives you life, and then causes you to die; and in the end He will gather you together on Resurrection Day, [the coming of] which is beyond all doubt - but most human beings under­stand it not.”
  <!--END_SECTION:quran-->
 
   
