@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 1**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 17**
 
-SAY: "O you who deny the truth!
+Said he: “O my Sustainer! [I vow] by all the blessings which Thou hast bestowed on me: Never­more shall I aid such as are lost in sin!”
  <!--END_SECTION:quran-->
 
   
