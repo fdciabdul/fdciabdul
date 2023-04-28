@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 8**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 63**
 
-And found thee in want, and given thee sufficiency?
+Thereupon We inspired Moses thus: Strike the sea with thy staff!”- whereupon it parted, and each part appeared like a mountain vast.
  <!--END_SECTION:quran-->
 
   
