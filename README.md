@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 65**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 16**
 
-But then they relapsed into their former way of thinking and said: “Thou knowest very well that these [idols] cannot speak!”
+[and] who are im­pelled to rise from their beds [at night] to call out to their Sustainer in fear and hope; and who spend on others out of what We provide for them as sus­tenance.
  <!--END_SECTION:quran-->
 
   
