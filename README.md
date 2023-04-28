@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 3**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 18**
 
-and when the earth is leveled,
+On that Day you shall be brought to judgment: not [even] the most hidden of your deeds will remain hidden.
  <!--END_SECTION:quran-->
 
   
