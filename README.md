@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 39**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 49**
 
-and who, whenever tyranny afflicts them, defend themselves.
+MAN NEVER TIRES of asking for the good [things of life]; and if evil fortune touches him, he abandons all hope, giving himself up to despair.
  <!--END_SECTION:quran-->
 
   
