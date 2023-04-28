@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 71**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 26**
 
-And on some of you God has bestowed more abundant means of sustenance than on others: and yet, they who are more abundantly favoured are [often] unwilling to share their sustenance with those whom their right hands possess, so that they [all] might be equal in this respect. Will they, then, God's blessings [thus] deny?
+Answered He: "Then, verily, this [land] shall be forbidden to them for forty years, while they wander on earth, bewildered, to and fro; and sorrow thou not over these iniquitous folk."
  <!--END_SECTION:quran-->
 
   
