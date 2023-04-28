@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 29**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 25**
 
-and olive trees and date-palms,
+When those [heavenly messengers] came unto him and bade him peace, he answered, “[And upon you be] peace!” - [saying to himself,] “They are strangers.”
  <!--END_SECTION:quran-->
 
   
