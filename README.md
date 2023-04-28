@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 26**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 7**
 
-Say: “It is God who gives you life, and then causes you to die; and in the end He will gather you together on Resurrection Day, [the coming of] which is beyond all doubt - but most human beings under­stand it not.”
+so much so that they came to think, as you [once] thought, that God would never [again] send forth anyone [as His apostle].
  <!--END_SECTION:quran-->
 
   
