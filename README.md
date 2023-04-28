@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 176**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 18**
 
-And be not grieved by those who vie with one another in denying the truth: verily, they can in no wise harm God. It is God's will that they shall have no share in the [blessings of the] life to come; and tremendous suffering awaits them.
+knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!
  <!--END_SECTION:quran-->
 
   
