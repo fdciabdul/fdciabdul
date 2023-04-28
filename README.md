@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 3**
 
-Verily, he that hates thee has indeed been cut off [from all that is good]!
+and provides for him in a manner beyond all expectation; and for everyone who places his trust in God He [alone] is enough. Verily, God always attains to His purpose: [and] indeed, unto everything has God appointed its [term and] measure.
  <!--END_SECTION:quran-->
 
   
