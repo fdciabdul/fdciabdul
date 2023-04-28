@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 13**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 42**
 
-[God] said: "Down with thee, then, from this [state] -for it is not meet for thee to show arrogance here! Go forth, then: verily, among the humiliated shalt thou be!"
+on the Day when man's very being shall be bared to the bone, and when they [who now deny the truth] shall be called upon to prostrate themselves [before God], and shall be unable to do so:
  <!--END_SECTION:quran-->
 
   
