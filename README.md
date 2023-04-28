@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 107**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 23**
 
-therein to abide as long as the heavens and the earth endure-unless thy Sustainer wills it otherwise: for, verily, thy Sustainer is a sovereign doer of whatever He wills.
+And among His wonders is your sleep, at night or in daytime, as well as your [ability to go about in] quest of some of His bounties: in this, behold, there are messages indeed for people who [are willing to] listen!
  <!--END_SECTION:quran-->
 
   
