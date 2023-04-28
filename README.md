@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 11**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 20**
 
-WHO IS IT that will offer up unto God a goodly loan, which He will amply repay For, such [as do so] shall have a noble reward
+This [revelation, then,] is a means of insight for mankind, and a guidance and grace unto people who are endowed with inner certainty.
  <!--END_SECTION:quran-->
 
   
