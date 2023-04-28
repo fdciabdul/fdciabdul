@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 5**
 
-and lifted from thee the burden
+And who could be more astray than one who invokes, instead of God, such as will not respond to him either now or on the Day of Resurrection, and are not even conscious of being invoked?
  <!--END_SECTION:quran-->
 
   
