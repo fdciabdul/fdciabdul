@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 9**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 104**
 
-in endless columns!
+and which We shall not delay beyond a term set [by Us].
  <!--END_SECTION:quran-->
 
   
