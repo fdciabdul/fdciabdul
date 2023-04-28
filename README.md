@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 18**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 2**
 
-On that Day you shall be brought to judgment: not [even] the most hidden of your deeds will remain hidden.
+Consider this Qur’an full of wisdom:
  <!--END_SECTION:quran-->
 
   
