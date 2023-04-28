@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 5**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 19**
 
-Now when Moses spoke to his people, [it was this same truth that he had in mind:] "O my people! Why do you cause me grief, the while you know that I am an apostle of God sent unto you?" And so, when they swerved from the right way, God let their hearts swerve from the truth: for God does not bestow His guidance upon iniquitous folk.
+for, [in the life to come,] all shall have their degrees in accordance with whatever [good or evil] they did: and so, He will repay them in full for their doings, and none shall be wronged.
  <!--END_SECTION:quran-->
 
   
