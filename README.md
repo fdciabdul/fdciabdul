@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 5**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
 
-for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.
+which smote them with stone-hard blows of chastisement pre-ordained,
  <!--END_SECTION:quran-->
 
   
