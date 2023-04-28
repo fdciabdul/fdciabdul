@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 12**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 18**
 
-and of his spouse, and of his brother,
+And at the sky, how it is raised aloft?
  <!--END_SECTION:quran-->
 
   
