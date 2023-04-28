@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 1**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 32**
 
-SAY: "O you who deny the truth!
+for you and for your animals to enjoy.
  <!--END_SECTION:quran-->
 
   
