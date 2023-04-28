@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 29**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 13**
 
-Say: “On the Day of the Final Decision, their [newly-found] faith will be of no use to those who [in their lifetime] were bent on denying the truth, nor will they be granted respite!” –
+AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.
  <!--END_SECTION:quran-->
 
   
