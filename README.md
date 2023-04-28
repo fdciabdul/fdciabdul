@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 25**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
 
-When those [heavenly messengers] came unto him and bade him peace, he answered, “[And upon you be] peace!” - [saying to himself,] “They are strangers.”
+hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
  <!--END_SECTION:quran-->
 
   
