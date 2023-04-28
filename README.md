@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 2**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
 
-Consider [God’s] revelation, inscribed
+Behold, it is this [kind of man] that thrusts the orphan away,
  <!--END_SECTION:quran-->
 
   
