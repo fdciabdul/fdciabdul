@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 112**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 2**
 
-AND GOD propounds [to you] a parable: [Imagine] a town which was [once] secure and at ease, with its sustenance coming to it abundantly from all quarters, and which thereupon blasphemously refused to show gratitude for God's blessings: and therefore God caused it to taste the all-embracing misery of hunger and fear in result of all [the evil] that its people had so persistently wrought.
+It is God who has raised the heavens without any supports that you could see, and is established on the throne of His almightiness; and He [it is who] has made the sun and the moon subservient [to His laws], each running its course for a term set [by Him]. He governs all that exists. Clearly does He spell out these messages, so that you might be certain in your innermost that you are destined to meet your Sustainer [on Judgment Day].
  <!--END_SECTION:quran-->
 
   
