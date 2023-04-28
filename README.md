@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 5**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 79**
 
-far-reaching wisdom [was held out to them]: but [since] all warnings have been of no avail,
+Why - can they [who deny the truth ever] determine what [the truth] should be?
  <!--END_SECTION:quran-->
 
   
