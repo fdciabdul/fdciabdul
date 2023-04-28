@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 5**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 1**
 
-And who could be more astray than one who invokes, instead of God, such as will not respond to him either now or on the Day of Resurrection, and are not even conscious of being invoked?
+WHEN THAT which must come to pass [at last] comes to pass,
  <!--END_SECTION:quran-->
 
   
