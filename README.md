@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 30**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 65**
 
-Or do they say, “[He is but] a poet - let us wait what time will do unto him”?
+But then they relapsed into their former way of thinking and said: “Thou knowest very well that these [idols] cannot speak!”
  <!--END_SECTION:quran-->
 
   
