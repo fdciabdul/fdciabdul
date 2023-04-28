@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 1**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 43**
 
-WHEN THE EARTH quakes with her [last] mighty quaking,
+downcast will be their eyes, with ignominy overwhelming them - seeing that they had been called upon [in vain] to prostrate themselves [before Him] while they were yet sound [and alive].
  <!--END_SECTION:quran-->
 
   
