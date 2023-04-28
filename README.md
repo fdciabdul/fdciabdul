@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 40**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 3**
 
-CANST THOU, perchance, [O Muhammad,] make the deaf hear, or show the right way to the blind or to such as are obviously lost in error?
+"the God of men,
  <!--END_SECTION:quran-->
 
   
