@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 2**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 30**
 
-All praise is due to God alone, the Sustainer of all the worlds,
+Or do they say, “[He is but] a poet - let us wait what time will do unto him”?
  <!--END_SECTION:quran-->
 
   
