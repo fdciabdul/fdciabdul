@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 11**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 16**
 
-[It was they] who transgressed all bounds of equity all over their lands,
+And how severe is the suffering which I inflict when My warnings are disregarded!
  <!--END_SECTION:quran-->
 
   
