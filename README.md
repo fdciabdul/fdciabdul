@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 7**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 35**
 
-which gives no strength and neither stills hunger.
+this, because you made God’s messages the target of your mockery, having allowed the life of this world to beguile you!” On that Day, therefore, they will not be brought out of the fire, nor will they be allowed to make amends.
  <!--END_SECTION:quran-->
 
   
