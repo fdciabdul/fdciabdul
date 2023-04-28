@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 26**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 4**
 
-Those who lived before them did, too, devise many a blasphemy -whereupon God visited with destruction all that they had ever built, [striking] at its very foundations, so that the roof fell in upon them from above and suffering befell them without their having perceived whence it came.
+and when the graves are overturned –
  <!--END_SECTION:quran-->
 
   
