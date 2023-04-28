@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 6**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 43**
 
-He has created you [all] out of one living entity, and out of it fashioned its mate; and he has be­stowed upon you four kinds of cattle of either sex; [and] He creates you in your mothers’ wombs, one act of creation after another, in threefold depths of darkness. Thus is God, your Sustainer: unto Him belongs all dominion: there is no deity save Him: how, then, can you lose sight of the truth?
+He it is who bestows His blessings upon you, with His angels [echoing Him], so that He might take you out of the depths of darkness into the light. And, indeed, a dispenser of grace is He unto the believers.
  <!--END_SECTION:quran-->
 
   
