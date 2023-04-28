@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 14**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 17**
 
-[and he will be told:] "Read this thy record,! Sufficient is thine own self today to make out thine account!"
+[As for such sinners,] behold, We [but] try them as We tried the owners of a certain garden who vowed that they would surely harvest its fruit on the morrow,
  <!--END_SECTION:quran-->
 
   
