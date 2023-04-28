@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 26**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
 
-Say thou, [O Prophet:] "Knowledge thereof rests with God alone; and I am only a plain warner."
+[who bears] around her neck a rope of twisted strands!
  <!--END_SECTION:quran-->
 
   
