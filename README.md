@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 104**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 5**
 
-and which We shall not delay beyond a term set [by Us].
+obeying its Sustainer, as in truth it must -:
  <!--END_SECTION:quran-->
 
   
