@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 26**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 4**
 
-Answered He: "Then, verily, this [land] shall be forbidden to them for forty years, while they wander on earth, bewildered, to and fro; and sorrow thou not over these iniquitous folk."
+[Say, O Prophet:] "Would that you two turn unto God in repentance, for the hearts of both of you have swerved [from what is right]! And if you uphold each other against him [who is God's message-bearer, know that] God Himself is his Protector, and [that,] therefore, Gabriel, and all the righteous among the believers and all the [other] angels will come to his aid."
  <!--END_SECTION:quran-->
 
   
