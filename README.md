@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 22**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 43**
 
-Some faces will on that Day be bright with happiness,
+Have they, then, any deity other than God? Utterly remote is God, in His limitless glory, from anything to which men may ascribe a share in His divinity!
  <!--END_SECTION:quran-->
 
   
