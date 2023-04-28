@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 31**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 47**
 
-We are close unto you in the life of this world and [will be so] in the life to come; and in that [life to come] you shall have all that your souls may desire, and in it you shall have all that you ever prayed for,
+[But] woe on that Day unto those who give the lie to the truth,
  <!--END_SECTION:quran-->
 
   
