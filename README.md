@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 60**
 
-which smote them with stone-hard blows of chastisement pre-ordained,
+Hence, make ready against them whatever force and war mounts you are able to muster, so that you might deter thereby the enemies of God, who are your enemies as well, and others besides them of whom you may be unaware, [but] of whom God is aware; and whatever you may expend in God's cause shall be repaid to you in full, and you shall not be wronged.
  <!--END_SECTION:quran-->
 
   
