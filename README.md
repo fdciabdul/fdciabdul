@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 34**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 36**
 
-Verily, we shall bring down upon the people of this land a horror from heaven in requital of all their iniquitous doings!”
+Which, then, of your Sustainer’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
