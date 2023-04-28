@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 43**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 104**
 
-Have they, then, any deity other than God? Utterly remote is God, in His limitless glory, from anything to which men may ascribe a share in His divinity!
+And be not faint of heart when you seek out the [enemy] host. If you happen to suffer pain, behold, they suffer pain even as you suffer it: but you are hoping [to receive] from God what they cannot hope for. And God is indeed all-knowing, wise.
  <!--END_SECTION:quran-->
 
   
