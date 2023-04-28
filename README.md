@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 9**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 20**
 
-shall be engulfed by an abyss.
+and [in the end] the trumpet [of resurrection] will be blown: that will be the Day of a warning fulfilled.
  <!--END_SECTION:quran-->
 
   
