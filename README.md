@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 27**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 5**
 
-O YOU who have attained to faith! Do not enter houses other than your own unless you have obtained permission and greeted their inmates. This is [enjoined upon you] for your own good, so that you might bear [your mutual rights] in mind.
+Nay, if you could but understand [it] with an understanding [born] of certainty,
  <!--END_SECTION:quran-->
 
   
