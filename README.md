@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 32**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 75**
 
-for you and for your animals to enjoy.
+[Such as] these will be rewarded for all their patient endurance [in life] with a high station [in paradise], and will be met therein with a greeting of welcome and peace,
  <!--END_SECTION:quran-->
 
   
