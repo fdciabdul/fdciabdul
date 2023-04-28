@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 19**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 9**
 
-for, [in the life to come,] all shall have their degrees in accordance with whatever [good or evil] they did: and so, He will repay them in full for their doings, and none shall be wronged.
+shall be engulfed by an abyss.
  <!--END_SECTION:quran-->
 
   
