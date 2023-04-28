@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 7**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 176**
 
-ART THOU NOT aware that God knows all that is in the heavens and all that is on earth? Never can there be a secret confabulation between three persons without His being the fourth of them, nor between five without His being the sixth of them; and neither between less than that, or more, without His being with them wherever they may he. But in the end, on Resurrection Day, He will make them truly understand what they did: for, verily, God has full knowledge of everything.
+And be not grieved by those who vie with one another in denying the truth: verily, they can in no wise harm God. It is God's will that they shall have no share in the [blessings of the] life to come; and tremendous suffering awaits them.
  <!--END_SECTION:quran-->
 
   
