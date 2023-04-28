@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 4**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 23**
 
-"from the evil of the whispering, elusive tempter
+like unto pearls [still] hidden in their shells.
  <!--END_SECTION:quran-->
 
   
