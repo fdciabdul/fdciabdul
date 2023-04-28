@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 43**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 6**
 
-as did the people of Abraham, and the people of Lot,
+He makes the night grow longer by shortening the day, and makes the day grow longer by shortening the night; and He has full knowledge of what is in the hearts [of men].
  <!--END_SECTION:quran-->
 
   
