@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 79**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 7**
 
-Why - can they [who deny the truth ever] determine what [the truth] should be?
+which gives no strength and neither stills hunger.
  <!--END_SECTION:quran-->
 
   
