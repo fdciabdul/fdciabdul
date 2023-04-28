@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 8**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 9**
 
-Does he [knowingly] attribute his own lying inventions to God - or is he a madman?” Nay, [there is no madness in this Prophet -] but they who will not believe in the life to come are [bound to lose themselves] in suffering and in a profound aberration.
+in endless columns!
  <!--END_SECTION:quran-->
 
   
