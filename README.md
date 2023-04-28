@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 22**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 8**
 
-Could, then, one whose bosom God has opened wide with willingness towards self-surrender unto Him, so that he is illumined by a light [that flows] from his Sustainer, [be likened to the blind and deaf of heart]? Woe, then, unto those whose hearts are hardened against all remembrance of God! They are most obviously lost in error!
+Does he [knowingly] attribute his own lying inventions to God - or is he a madman?” Nay, [there is no madness in this Prophet -] but they who will not believe in the life to come are [bound to lose themselves] in suffering and in a profound aberration.
  <!--END_SECTION:quran-->
 
   
