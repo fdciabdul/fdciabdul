@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 16**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 11**
 
-And [in this insight] Solomon was [truly] David’s heir; and he would say: “O you people! We have been taught the speech of birds, and have been given [in abundance] of all [good] things: this, behold, is indeed a manifest favour [from God]!”
+WHO IS IT that will offer up unto God a goodly loan, which He will amply repay For, such [as do so] shall have a noble reward
  <!--END_SECTION:quran-->
 
   
