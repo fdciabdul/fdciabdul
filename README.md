@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 26**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 34**
 
-and He brought down from their strongholds those of the followers of earlier reve­lation who had aided the aggressors, and cast terror into their hearts: some you slew, and some you made captive;
+save for such [of them] as repent ere you [O believers] become more powerful than they: for you must know that God is much-forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
