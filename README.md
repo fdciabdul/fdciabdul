@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 27**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 1**
 
-Indeed, God has shown the truth in His Apostle’s true vision: most certainly shall you enter the Inviolable House of Worship, if God so wills, in full security, with your heads shaved or your hair cut short, without any fear: for He has [always] known that which you yourselves could not know. And He has ordained [for you], besides this, a victory soon to come.
+CONSIDER the sun and its radiant brightness,
  <!--END_SECTION:quran-->
 
   
