@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 21**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 21**
 
-Now as for those who indulge in sinful doings - do they think that We place them, both in their life and their death, on an equal footing with those who have attained to faith and do righteous deeds? Bad, indeed, is their judgment:
+And all [mankind] will appear before God [on the Day of Judgment]; and then the weak will say unto those who had gloried in their arrogance: "Behold, We were but your followers: can you, then, relieve us of something of God's chastisement?" [And the others] will answer: "If God would but show us the way [to salvation], we would indeed guide you [towards it]. It is [now] all one, as far as we are concerned, whether we grieve impatiently or endure [our lot] with patience: there is no escape for us!"
  <!--END_SECTION:quran-->
 
   
