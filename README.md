@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 5**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 5**
 
-thereby storming [blindly] into any host!
+THE PARABLE of those who were graced with the burden of the Torah, and thereafter failed to bear this burden, is that of an ass that carries a load of books [but cannot benefit from them]. Calamitous is the parable of people who are bent on giving the lie to God's messages - for God does not bestow His guidance upon such evildoing folk!
  <!--END_SECTION:quran-->
 
   
