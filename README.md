@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 5**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 8**
 
-Nay, if you could but understand [it] with an understanding [born] of certainty,
+Believe then, [O men,] in God and His Apostle, and in the light [of revelation] which We have bestowed [on you] from on high! And God is fully aware of all that you do.
  <!--END_SECTION:quran-->
 
   
