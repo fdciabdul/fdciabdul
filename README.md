@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 5**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 9**
 
-"who whispers in the hearts of men
+But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,
  <!--END_SECTION:quran-->
 
   
