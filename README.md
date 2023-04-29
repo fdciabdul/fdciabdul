@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 120**
+**Surah 38: سُورَةُ صٓ (Saad) - 84**
 
-And down fell the sorcerers, prostrating themselves
+[And God] said: “This, then, is the truth! And this truth do I state:
  <!--END_SECTION:quran-->
 
   
