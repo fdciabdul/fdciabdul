@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 1**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 4**
 
-ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: His is all dominion, and to Him all praise is due; and He has the power to will anything.
+and casts forth whatever is in it, and becomes utterly void,
  <!--END_SECTION:quran-->
 
   
