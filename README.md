@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 1**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 1**
 
-HAS THERE COME unto thee the tiding of the Overshadowing Event?'
+SO THAT the Quraysh might remain secure,
  <!--END_SECTION:quran-->
 
   
