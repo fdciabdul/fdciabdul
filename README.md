@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 2**
+**Surah 38: سُورَةُ صٓ (Saad) - 36**
 
-And what could make thee conceive what it is, that Night of Destiny?
+And so We made subservient to him the wind, so that it gently sped at his behest whithersoever he willed,
  <!--END_SECTION:quran-->
 
   
