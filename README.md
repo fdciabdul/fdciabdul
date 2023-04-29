@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 7**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 19**
 
-fully conscious of what they are doing to the believers,
+These two contrary kinds of man have become engrossed in contention about their Sus­tainer! But [thus it is:] as for those who are bent on denying the truth garments of fire shall be cut out for them [in the life to come]; burning despair will be poured over their heads,
  <!--END_SECTION:quran-->
 
   
