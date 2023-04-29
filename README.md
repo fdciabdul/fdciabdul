@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 37**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 4**
 
-and even demanded that he give up his guests [to them]: whereupon We deprived them of their sight [and thus told them, as it were]: “Taste, then, the suffering which I inflict when My warnings are disregarded!”
+Say: “Have you [really] given thought to what it is that you invoke instead of God? Show me what these [beings or forces] have created anywhere on earth! Or had they, perchance, a share in [creating] the heavens? [If so,] bring me any divine writ pre­ceding this one, or any [other] vestige of knowledge - if what you claim is true!”
  <!--END_SECTION:quran-->
 
   
