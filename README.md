@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 19**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 4**
 
-the revelations of Abraham and Moses.
+and when she-camels big with young, about to give birth, are left untended,
  <!--END_SECTION:quran-->
 
   
