@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 55**
 
-"He begets not, and neither is He begotten;
+whereas those who are bent on denying the truth will not cease to be in doubt about Him until the Last Hour comes suddenly upon them and [supreme] suffering befalls them on a Day void of all hope.
  <!--END_SECTION:quran-->
 
   
