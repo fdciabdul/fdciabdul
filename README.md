@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 23**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 9**
 
-THUS, INDEED, did We send Moses with Our mes­sages and a manifest authority [from Us]
+and preserve them from [doing] evil deeds: for anyone whom on that Day [of Judgment] Thou wilt have preserved from [the taint of] evil deeds, him wilt Thou have graced with Thy mercy: and that, that will be the triumph supreme!”
  <!--END_SECTION:quran-->
 
   
