@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 63**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 11**
 
-Art thou not aware that it’s God who sends down water from the skies, whereupon the earth becomes green? Verily, God is unfathomable [in His wisdom], all-aware.
+But he would not try to ascend the steep uphill road...
  <!--END_SECTION:quran-->
 
   
