@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 26**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 17**
 
-and none can bind with bonds like His.
+How, then, if you refuse to acknowledge the truth, will you protect yourselves on that Day which shall turn the hair of children grey,
  <!--END_SECTION:quran-->
 
   
