@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 9**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 21**
 
-and preserve them from [doing] evil deeds: for anyone whom on that Day [of Judgment] Thou wilt have preserved from [the taint of] evil deeds, him wilt Thou have graced with Thy mercy: and that, that will be the triumph supreme!”
+and be not like those who say, "We have heard", the while they do not hearken.
  <!--END_SECTION:quran-->
 
   
