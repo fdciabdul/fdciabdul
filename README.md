@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 57**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 7**
 
-whereas for those who were bent on denying the truth and gave the lie to Our messages, there shall be shameful suffering in store.
+they will come forth from their graves, with their eyes downcast, [swarming about] like locusts scattered [by the wind],
  <!--END_SECTION:quran-->
 
   
