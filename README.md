@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 57**
 
-extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
+whereas for those who were bent on denying the truth and gave the lie to Our messages, there shall be shameful suffering in store.
  <!--END_SECTION:quran-->
 
   
