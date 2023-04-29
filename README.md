@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 8**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 24**
 
-And found thee in want, and given thee sufficiency?
+ART THOU NOT aware how God sets forth the parable of a good word? [It is] like a good tree, firmly rooted, [reaching out] with its branches towards the sky,
  <!--END_SECTION:quran-->
 
   
