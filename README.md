@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 4**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 16**
 
-"from the evil of the whispering, elusive tempter
+AND, INDEED, [already] unto the children of Israel did We vouchsafe revelation, and wisdom, and prophethood; and We provided for them sustenance out of the good things of life, and favoured them above all other people [of their time].
  <!--END_SECTION:quran-->
 
   
