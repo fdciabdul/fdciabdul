@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 78**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 6**
 
-AND [remember] David and Solomon - [how it was] when both of them gave judgment concerning the field into which some people’s sheep had strayed by night and pastured therein, and [how] We bore witness to their judgment:
+Guide us the straight way.
  <!--END_SECTION:quran-->
 
   
