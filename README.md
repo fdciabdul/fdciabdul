@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 104**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 13**
 
-On that Day We shall roll up the skies as written scrolls are rolled up; [and] as We brought into being the first creation, so We shall bring it forth anew a promise which We have willed upon Our­selves: for, behold, We are able to do [all things]!
+Say: “Behold, I would dread, were I to rebel against my Sustainer, the suffering [which would befall me] on that awesome Day [of Judgment].”
  <!--END_SECTION:quran-->
 
   
