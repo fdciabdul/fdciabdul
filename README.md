@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 16**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 120**
 
-the planets that run their course and set,
+And down fell the sorcerers, prostrating themselves
  <!--END_SECTION:quran-->
 
   
