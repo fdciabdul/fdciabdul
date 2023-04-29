@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
 
-BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
+Verily, he that hates thee has indeed been cut off [from all that is good]!
  <!--END_SECTION:quran-->
 
   
