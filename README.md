@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 7**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 104**
 
-MEN SHALL have a share in what parents and kinsfolk leave behind, and women shall have a share in what parents and kinsfolk leave behind, whether it be little or much - a share ordained [by God].
+On that Day We shall roll up the skies as written scrolls are rolled up; [and] as We brought into being the first creation, so We shall bring it forth anew a promise which We have willed upon Our­selves: for, behold, We are able to do [all things]!
  <!--END_SECTION:quran-->
 
   
