@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 24**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 22**
 
-Say: "It is He who has multiplied you on earth; and it is unto Him that you shall be gathered [on resurrection]."
+And We shall bestow on them fruit and meat in abundance - whatever they may desire:
  <!--END_SECTION:quran-->
 
   
