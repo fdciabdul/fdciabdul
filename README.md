@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 15**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 2**
 
-BUT NAY! I call to witness the revolving stars,
+and the moon as it reflects the sun!
  <!--END_SECTION:quran-->
 
   
