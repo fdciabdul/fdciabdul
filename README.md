@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 13**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 6**
 
-God - there is no deity save Him! In God then let the believers place their trust.
+As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.
  <!--END_SECTION:quran-->
 
   
