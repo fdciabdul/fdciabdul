@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 1**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
 
-SO THAT the Quraysh might remain secure,
+"and from the evil of the black darkness whenever it descends,
  <!--END_SECTION:quran-->
 
   
