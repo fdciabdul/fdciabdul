@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 3**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 32**
 
-and this land secure!
+Hence, do not covet the bounties which God has bestowed more abundantly on some of you than on others. Men shall have a benefit from what they earn, and women shall have a benefit from what they earn. Ask, therefore, God [to give you] out of His bounty: behold, God has indeed full knowledge of everything.
  <!--END_SECTION:quran-->
 
   
