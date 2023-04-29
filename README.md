@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 49**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 186**
 
-MAN NEVER TIRES of asking for the good [things of life]; and if evil fortune touches him, he abandons all hope, giving himself up to despair.
+For those whom God lets go astray, there is no guide; and He shall leave them in their overweening arrogance, blindly stumbling to and fro.
  <!--END_SECTION:quran-->
 
   
