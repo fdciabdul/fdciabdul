@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 22**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 7**
 
-And We shall bestow on them fruit and meat in abundance - whatever they may desire:
+It is they who say [to their compatriots], "Do not spend anything on those who are with God's Apostle, so that they [may be forced to] leave." However, unto God belong the treasures of the heavens and the earth: but this truth the hypocrites cannot grasp.
  <!--END_SECTION:quran-->
 
   
