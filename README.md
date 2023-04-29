@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 186**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 47**
 
-For those whom God lets go astray, there is no guide; and He shall leave them in their overweening arrogance, blindly stumbling to and fro.
+Say: “No reward have I ever asked of you [out of anything] that is yours: my reward rests with none but God, and He is witness unto everything!”
  <!--END_SECTION:quran-->
 
   
