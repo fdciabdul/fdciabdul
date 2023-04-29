@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 4**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
 
-Say: “Have you [really] given thought to what it is that you invoke instead of God? Show me what these [beings or forces] have created anywhere on earth! Or had they, perchance, a share in [creating] the heavens? [If so,] bring me any divine writ pre­ceding this one, or any [other] vestige of knowledge - if what you claim is true!”
+Thus, He let loose upon them great swarms of flying creatures
  <!--END_SECTION:quran-->
 
   
