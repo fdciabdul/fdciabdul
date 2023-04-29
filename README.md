@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 2**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 24**
 
-Consider [God’s] revelation, inscribed
+Say: "It is He who has multiplied you on earth; and it is unto Him that you shall be gathered [on resurrection]."
  <!--END_SECTION:quran-->
 
   
