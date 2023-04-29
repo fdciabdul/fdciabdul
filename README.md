@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 43**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 38**
 
-and that it is He alone who causes [you] to laugh and to weep;
+BUT NAY! I call to witness an that you can see,
  <!--END_SECTION:quran-->
 
   
