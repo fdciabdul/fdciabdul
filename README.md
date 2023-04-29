@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 21**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
 
-and be not like those who say, "We have heard", the while they do not hearken.
+In the end you will indeed, most surely, behold it with the eye of certainty:
  <!--END_SECTION:quran-->
 
   
