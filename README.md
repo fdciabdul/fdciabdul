@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 2**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 19**
 
-and the moon as it reflects the sun!
+Thereupon [Solomon] smiled joyously at her words, and said: “O my Sustainer! Inspire me so that I may forever be grateful for those blessings of Thine with which Thou hast graced me and my parents, and that I may do what is right [in a manner] that will please Thee; and include me, by Thy grace, among Thy righteous servants!”
  <!--END_SECTION:quran-->
 
   
