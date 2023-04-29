@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 55**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 18**
 
-And ere that suffering comes upon you of a sudden, without your being aware [of its approach], follow the most goodly [teaching] that has been revealed unto you by your Sustainer,
+On the Day when God will raise them all from the dead, they will swear before Him as they [now] swear before you, thinking that they are on firm ground [in their assumptions]. Oh, verily, it is they, they who are the [greatest] liars!
  <!--END_SECTION:quran-->
 
   
