@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 48**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 49**
 
-and that it is He alone who frees from want and causes to possess;
+and that it is He alone who sustains the bright­est star;
  <!--END_SECTION:quran-->
 
   
