@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 17**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 8**
 
-they would lie asleep during but a small part of the night,
+And found thee in want, and given thee sufficiency?
  <!--END_SECTION:quran-->
 
   
