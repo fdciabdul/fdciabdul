@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 7**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 10**
 
-When they are cast into that [hell], they will hear its breath indrawing as it boils up,
+For those who are bent on denying the truth God has propounded a parable in [the stories of] Noah's wife and Lot's wife: they were wedded to two of Our righteous servants, and each one betrayed her husband; and neither of the two [husbands] will be of any avail to these two women when they are told [on Judgment Day], "Enter the fire with all those [other sinners] who enter it!"
  <!--END_SECTION:quran-->
 
   
