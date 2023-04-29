@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 6**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 4**
 
-As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.
+"from the evil of the whispering, elusive tempter
  <!--END_SECTION:quran-->
 
   
