@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 4**
 
-Thus, He let loose upon them great swarms of flying creatures
+Woe, then, unto those praying ones
  <!--END_SECTION:quran-->
 
   
