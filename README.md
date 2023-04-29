@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 36**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 1**
 
-And so We made subservient to him the wind, so that it gently sped at his behest whithersoever he willed,
+SAY: "He is the One God:
  <!--END_SECTION:quran-->
 
   
