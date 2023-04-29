@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 167**
+**Surah 38: سُورَةُ صٓ (Saad) - 3**
 
-AND, INDEED, they [who deny the truth] have always been wont to say,
+How many a generation have We destroyed before their time [for this very sin]! And [how] they called [unto Us] when it was too late to escape!
  <!--END_SECTION:quran-->
 
   
