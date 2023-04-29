@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 3**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
 
-rushing to assault at morn,
+SAY: "I seek refuge with the Sustainer of men,
  <!--END_SECTION:quran-->
 
   
