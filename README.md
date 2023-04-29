@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 30**
 
-Verily, man is bound to lose himself
+Said he: “Even if I should bring about before thee something that clearly shows the truth?”
  <!--END_SECTION:quran-->
 
   
