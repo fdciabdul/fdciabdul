@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 28**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 29**
 
-O YOU who have attained to faith! Remain con­scious of God, and believe in His Apostle, [and] He will grant you doubly of His grace, and will light for you a light wherein you shall walk, and will forgive you [your past sins]: for God is much-forgiving, a dispenser of grace.
+And if any of them were to say, “Behold, I am deity beside Him” - that one We should requite with hell: thus do We requite all [such] evildoers.
  <!--END_SECTION:quran-->
 
   
