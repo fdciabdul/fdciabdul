@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 47**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 22**
 
-Say: “No reward have I ever asked of you [out of anything] that is yours: my reward rests with none but God, and He is witness unto everything!”
+thou canst not compel them [to believe].
  <!--END_SECTION:quran-->
 
   
