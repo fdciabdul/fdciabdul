@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 27**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 18**
 
-And [as for Abraham,] We bestowed upon him Isaac and [Isaac’s son] Jacob, and caused pro­phethood and revelation to continue among his offspring. And We vouchsafed him his reward in this world; and, verily, in the life to come [too] he shall find himself among the righteous.
+And, indeed, [many of] those who lived aforetime did give the lie [to My warnings]: and how awesome was My rejection [of them]!
  <!--END_SECTION:quran-->
 
   
