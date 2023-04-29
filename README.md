@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 4**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 7**
 
-and when she-camels big with young, about to give birth, are left untended,
+[Hence,] O you who are bent on denying the truth, make no [empty] excuses today: [in the life to come] you shall be but recompensed for what you were doing [in this world].
  <!--END_SECTION:quran-->
 
   
