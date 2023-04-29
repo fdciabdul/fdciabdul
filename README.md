@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 12**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
 
-And He it is who has created all opposites. And He [it is who] has provided for you all those ships and animals whereon you ride,
+BEHOLD, We have bestowed upon thee good in abundance:
  <!--END_SECTION:quran-->
 
   
