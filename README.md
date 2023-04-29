@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 37**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 54**
 
-And Moses replied: “My Sustainer knows best as to who comes with guidance from Him, and to whom the future belongs! Verily, never will evil­doers attain to a happy state!”
+And when those who believe in Our messages come unto thee, say: "Peace be upon you. Your Sustainer has willed upon Himself the law of grace and mercy - so that if any of you does a bad deed out of ignorance, and thereafter repents and lives righteously, He shall be [found] much-forgiving, a dispenser of grace."
  <!--END_SECTION:quran-->
 
   
