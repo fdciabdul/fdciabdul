@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 7**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
 
-But [on that Day,] when the eyesight is by fear confounded,
+Behold, it is this [kind of man] that thrusts the orphan away,
  <!--END_SECTION:quran-->
 
   
