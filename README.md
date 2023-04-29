@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 18**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 28**
 
-“Give in unto me, O God’s bondmen! Verily, I am an apostle [sent] unto you, worthy of trust!
+O YOU who have attained to faith! Remain con­scious of God, and believe in His Apostle, [and] He will grant you doubly of His grace, and will light for you a light wherein you shall walk, and will forgive you [your past sins]: for God is much-forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
