@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 43**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
 
-downcast will be their eyes, with ignominy overwhelming them - seeing that they had been called upon [in vain] to prostrate themselves [before Him] while they were yet sound [and alive].
+On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
  <!--END_SECTION:quran-->
 
   
