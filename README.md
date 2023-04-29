@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 40**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 2**
 
-CANST THOU, perchance, [O Muhammad,] make the deaf hear, or show the right way to the blind or to such as are obviously lost in error?
+And what could make thee conceive what it is, that Night of Destiny?
  <!--END_SECTION:quran-->
 
   
