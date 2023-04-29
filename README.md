@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 3**
 
-and, withal, deny all assistance [to their fellow-men]!
+and this land secure!
  <!--END_SECTION:quran-->
 
   
