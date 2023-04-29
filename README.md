@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 13**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 5**
 
-O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.
+Hence, when the prediction of the first of those two [periods of iniquity] came true, We sent against you some of Our bondmen of terrible prowess in war, and they wrought havoc throughout the land: and so the prediction was fulfilled.
  <!--END_SECTION:quran-->
 
   
