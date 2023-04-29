@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 2**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 7**
 
-and Mount Sinai,
+What, then, [O man,] could henceforth cause thee to give the lie to this moral law?
  <!--END_SECTION:quran-->
 
   
