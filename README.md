@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 3**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 10**
 
-The Night of Destiny is better than a thousand months:
+and all that is [hidden] in men's hearts is bared
  <!--END_SECTION:quran-->
 
   
