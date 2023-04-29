@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 2**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 17**
 
-He it is who turned out of their homes, at the time of [their] first gathering [for war], such of the followers of earlier revelation as were bent on denying the truth. You did not think [O believers] that they would depart [without resistance] - just as they thought that their strongholds would protect them against God: but God came upon them in a manner which they had not expected, and cast terror into their hearts; [and thus] they destroyed their homes by their own hands as well as the hands of the believers. Learn a lesson, then, O you who are endowed with insight!
+Let, then, the deniers of the truth have their will: let them have their will for a little while.
  <!--END_SECTION:quran-->
 
   
