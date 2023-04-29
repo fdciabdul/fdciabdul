@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 40**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 48**
 
-and a good many of later times.
+And, lo, Satan made all their doings seem goodly to them, and said, "No one can overcome you this day, for, behold, I shall be your protector!" but as soon as the two hosts came within sight of one another, he turned on his heels and said, "Behold, I am not responsible for you: behold, I see something that you do not see: behold, I fear God-for God is severe in retribution!"
  <!--END_SECTION:quran-->
 
   
