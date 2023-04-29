@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 23**
 
-SAY: "I seek refuge with the Sustainer of the rising dawn,
+such being God’s way which has ever obtained in the past - and never wilt thou find any change in God’s way!
  <!--END_SECTION:quran-->
 
   
