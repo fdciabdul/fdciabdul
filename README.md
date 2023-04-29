@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 17**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 12**
 
-Let, then, the deniers of the truth have their will: let them have their will for a little while.
+And He it is who has created all opposites. And He [it is who] has provided for you all those ships and animals whereon you ride,
  <!--END_SECTION:quran-->
 
   
