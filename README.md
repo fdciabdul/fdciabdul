@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 10**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 163**
 
-"'And [now we have become aware] that we [created beings] may not know whether evil fortune is intended for [any of] those who live on earth, or whether it is their Sustainer’s will to endow them with consciousness of what is right:
+They are on [entirely] different levels in the sight of God; for God sees all that they do.
  <!--END_SECTION:quran-->
 
   
