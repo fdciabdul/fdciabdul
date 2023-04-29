@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 18**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 8**
 
-On the Day when God will raise them all from the dead, they will swear before Him as they [now] swear before you, thinking that they are on firm ground [in their assumptions]. Oh, verily, it is they, they who are the [greatest] liars!
+Their reward [awaits them] with God: gardens of perpetual bliss, through which running waters flow, therein to abide beyond the count of time; well-pleased is God with them, and well-pleased are they with Him: all this awaits him who of his Sustainer stands in awe!.
  <!--END_SECTION:quran-->
 
   
