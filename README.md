@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 23**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 27**
 
-THUS, INDEED, did We send Moses with Our mes­sages and a manifest authority [from Us]
+And [as for Abraham,] We bestowed upon him Isaac and [Isaac’s son] Jacob, and caused pro­phethood and revelation to continue among his offspring. And We vouchsafed him his reward in this world; and, verily, in the life to come [too] he shall find himself among the righteous.
  <!--END_SECTION:quran-->
 
   
