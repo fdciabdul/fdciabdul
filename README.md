@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 11**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 7**
 
-But he would not try to ascend the steep uphill road...
+fully conscious of what they are doing to the believers,
  <!--END_SECTION:quran-->
 
   
