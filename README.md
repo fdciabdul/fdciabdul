@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 24**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 3**
 
-ART THOU NOT aware how God sets forth the parable of a good word? [It is] like a good tree, firmly rooted, [reaching out] with its branches towards the sky,
+rushing to assault at morn,
  <!--END_SECTION:quran-->
 
   
