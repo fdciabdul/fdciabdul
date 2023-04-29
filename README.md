@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 29**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
 
-- hell - which they [themselves] will ' have to endure? And how vile a state to settle in!
+CONSIDER the flight of time!
  <!--END_SECTION:quran-->
 
   
