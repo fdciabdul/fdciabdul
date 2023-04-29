@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 3**
 
-CONSIDER the flight of time!
+The Night of Destiny is better than a thousand months:
  <!--END_SECTION:quran-->
 
   
