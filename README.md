@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 7**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 2**
 
-It is they who say [to their compatriots], "Do not spend anything on those who are with God's Apostle, so that they [may be forced to] leave." However, unto God belong the treasures of the heavens and the earth: but this truth the hypocrites cannot grasp.
+and Mount Sinai,
  <!--END_SECTION:quran-->
 
   
