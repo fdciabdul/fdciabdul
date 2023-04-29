@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 84**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 6**
 
-[And God] said: “This, then, is the truth! And this truth do I state:
+As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.
  <!--END_SECTION:quran-->
 
   
