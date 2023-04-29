@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 1**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 6**
 
-EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,
+Guide us the straight way.
  <!--END_SECTION:quran-->
 
   
