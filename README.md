@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 21**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 1**
 
-[On that Day,] verily, hell will lie in wait [for those who deny the truth] –
+EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,
  <!--END_SECTION:quran-->
 
   
