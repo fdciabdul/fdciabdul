@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 8**
 
-hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
+whom they hate for no other reason than that they believe in God, the Almighty, the One to whom all praise is due,
  <!--END_SECTION:quran-->
 
   
