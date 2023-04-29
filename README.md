@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 14**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 10**
 
-And were it not for God’s favour upon you, [O men,] and His grace in this world and in the life to come, awesome suffering would indeed have afflicted you in result of all [the calumny] in which you indulge
+and [man] will have neither strength nor helper!
  <!--END_SECTION:quran-->
 
   
