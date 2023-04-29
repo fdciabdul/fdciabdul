@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 163**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 21**
 
-They are on [entirely] different levels in the sight of God; for God sees all that they do.
+Upon those [blest] will be garments of green silk and brocade; and they will be adorned with bracelets of silver. And their Sustainer will them to drink of a drink most pure.
  <!--END_SECTION:quran-->
 
   
