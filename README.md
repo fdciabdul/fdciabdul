@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 17**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 22**
 
-Many people think that they have bestowed a favour upon thee [O Prophet] by having surrendered [to thee]. Say thou: “Deem not your surrender a favour unto me: nay, but it is God who bestows a favour upon you by showing you the way to faith - if you are true to your word!”
+And among his wonders is the creation of the heavens and the earth, and the diversity of your tongues and colours: for in this, behold, there are messages indeed for all who are possessed of [innate] knowledge!
  <!--END_SECTION:quran-->
 
   
