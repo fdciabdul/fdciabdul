@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 4**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 29**
 
-and casts forth whatever is in it, and becomes utterly void,
+EXHORT, then, [O Prophet, all men:] for, by thy Sustainer’s grace, thou art neither a soothsayer nor a madman.
  <!--END_SECTION:quran-->
 
   
