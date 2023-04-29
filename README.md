@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 1**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 76**
 
-SAY: "O you who deny the truth!
+and, behold, this is indeed a most solemn affirmation, if you but knew it!
  <!--END_SECTION:quran-->
 
   
