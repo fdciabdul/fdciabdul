@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 54**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 37**
 
-IT IS GOD who creates you [all in a states of weak­ness, and then, after weakness, ordains strength [for you], and then, after [a period of] strength, ordains [old-age] weakness and grey hair. He creates what He wills; and He alone is all-knowing, infinite in His power.
+And Moses replied: “My Sustainer knows best as to who comes with guidance from Him, and to whom the future belongs! Verily, never will evil­doers attain to a happy state!”
  <!--END_SECTION:quran-->
 
   
