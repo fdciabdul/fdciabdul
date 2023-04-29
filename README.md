@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 93**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 13**
 
-SAY: “O my Sustainer! If it be Thy will to let me witness [the fulfillment of] whatever they [who blaspheme against Thee] have been promised [to suffer] –
+God - there is no deity save Him! In God then let the believers place their trust.
  <!--END_SECTION:quran-->
 
   
