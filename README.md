@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 37**
 
-"And I will not worship ~hat which you have [ever] worshipped,
+Are they, then, better than the people of Tubba and those before them, whom We destroyed because they were truly lost in [the same] sin?
  <!--END_SECTION:quran-->
 
   
