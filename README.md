@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 22**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 14**
 
-thou canst not compel them [to believe].
+And were it not for God’s favour upon you, [O men,] and His grace in this world and in the life to come, awesome suffering would indeed have afflicted you in result of all [the calumny] in which you indulge
  <!--END_SECTION:quran-->
 
   
