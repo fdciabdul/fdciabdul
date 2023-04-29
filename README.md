@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 4**
 
-SAY: "I seek refuge with the Sustainer of men,
+and when the graves are overturned –
  <!--END_SECTION:quran-->
 
   
