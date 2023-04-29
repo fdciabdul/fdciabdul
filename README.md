@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 87**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
 
-[on that Day] none will have [the benefit of] intercession unless he has [in his lifetime] entered into a bond with the Most Gracious.
+SAY: "I seek refuge with the Sustainer of the rising dawn,
  <!--END_SECTION:quran-->
 
   
