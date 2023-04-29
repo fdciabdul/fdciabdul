@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 5**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 8**
 
-of fire fiercely burning [for all who have attained to faith]!
+running in con­fusion towards the Summoning Voice; [and] those who [now] deny the truth will exclaim, “Calamitous is this Day!”
  <!--END_SECTION:quran-->
 
   
