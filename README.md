@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 29**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 24**
 
-and olive trees and date-palms,
+He will say, "Oh, would that I had. provided beforehand for my life [to come]!"
  <!--END_SECTION:quran-->
 
   
