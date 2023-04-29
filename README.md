@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 26**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 49**
 
-[And God said:] “On the morrow they will come to know who the boastful liar is!
+MAN NEVER TIRES of asking for the good [things of life]; and if evil fortune touches him, he abandons all hope, giving himself up to despair.
  <!--END_SECTION:quran-->
 
   
