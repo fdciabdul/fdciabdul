@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 18**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 5**
 
-Verily, as for the men and women who accept the truth as true and who [thus] offer up unto God a goodly loan, they will be amply repaid, and shall have a noble reward [in the life to come].
+of fire fiercely burning [for all who have attained to faith]!
  <!--END_SECTION:quran-->
 
   
