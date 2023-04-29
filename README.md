@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 4**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 55**
 
-and when the graves are overturned –
+And ere that suffering comes upon you of a sudden, without your being aware [of its approach], follow the most goodly [teaching] that has been revealed unto you by your Sustainer,
  <!--END_SECTION:quran-->
 
   
