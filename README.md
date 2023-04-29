@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 6**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 63**
 
-As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.
+Art thou not aware that it’s God who sends down water from the skies, whereupon the earth becomes green? Verily, God is unfathomable [in His wisdom], all-aware.
  <!--END_SECTION:quran-->
 
   
