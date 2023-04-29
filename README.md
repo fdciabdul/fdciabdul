@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 3**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 18**
 
-How many a generation have We destroyed before their time [for this very sin]! And [how] they called [unto Us] when it was too late to escape!
+“Give in unto me, O God’s bondmen! Verily, I am an apostle [sent] unto you, worthy of trust!
  <!--END_SECTION:quran-->
 
   
