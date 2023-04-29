@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 5**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 37**
 
-[for] all this is God's commandment, which He has bestowed upon you from on high. And unto everyone who is conscious of God will He pardon [some of] his bad deeds, and will grant him a vast reward.
+and even demanded that he give up his guests [to them]: whereupon We deprived them of their sight [and thus told them, as it were]: “Taste, then, the suffering which I inflict when My warnings are disregarded!”
  <!--END_SECTION:quran-->
 
   
