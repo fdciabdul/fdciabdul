@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 12**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 29**
 
-and will reward them for all their patience in adversity with a garden [of bliss] and with [garments of] silk.
+and olive trees and date-palms,
  <!--END_SECTION:quran-->
 
   
