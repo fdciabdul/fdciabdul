@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 17**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-How, then, if you refuse to acknowledge the truth, will you protect yourselves on that Day which shall turn the hair of children grey,
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
