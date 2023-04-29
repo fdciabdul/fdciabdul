@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 39**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 17**
 
-“Taste, then, the suffering which I inflict when My warnings are disregarded!”
+they would lie asleep during but a small part of the night,
  <!--END_SECTION:quran-->
 
   
