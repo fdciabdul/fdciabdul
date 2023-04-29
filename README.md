@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 16**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 8**
 
-AND CALL to mind, through this divine writ, Mary. Lo! She withdrew from her family to an eastern place
+and he who shall have done an atom's weight of evil, shall behold it.
  <!--END_SECTION:quran-->
 
   
