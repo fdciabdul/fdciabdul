@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 8**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
 
-so that [at the end of time] He might ask those men of truth as to [what response] their truthfulness [had received on earth]. And grievous suffering has He readied for all who deny the truth!
+in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
  <!--END_SECTION:quran-->
 
   
