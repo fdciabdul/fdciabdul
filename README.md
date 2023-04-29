@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
 
-On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
+"from the evil of aught that He has created,
  <!--END_SECTION:quran-->
 
   
