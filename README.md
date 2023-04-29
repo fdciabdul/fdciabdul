@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 5**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 17**
 
-Hence, when the prediction of the first of those two [periods of iniquity] came true, We sent against you some of Our bondmen of terrible prowess in war, and they wrought havoc throughout the land: and so the prediction was fulfilled.
+Many people think that they have bestowed a favour upon thee [O Prophet] by having surrendered [to thee]. Say thou: “Deem not your surrender a favour unto me: nay, but it is God who bestows a favour upon you by showing you the way to faith - if you are true to your word!”
  <!--END_SECTION:quran-->
 
   
