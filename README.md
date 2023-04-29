@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 7**
 
-In the end you will indeed, most surely, behold it with the eye of certainty:
+who has created thee, and formed thee in accordance with what thou art meant' to be, and shaped thy nature in just proportions,
  <!--END_SECTION:quran-->
 
   
