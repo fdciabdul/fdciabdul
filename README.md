@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 23**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
 
-It is such as these whom God rejects, and whom He makes deaf [to the voice of truth], and whose eyes He blinds [to its sight]!
+"He begets not, and neither is He begotten;
  <!--END_SECTION:quran-->
 
   
