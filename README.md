@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 26**
 
-Verily, he that hates thee has indeed been cut off [from all that is good]!
+[And God said:] “On the morrow they will come to know who the boastful liar is!
  <!--END_SECTION:quran-->
 
   
