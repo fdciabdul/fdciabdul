@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 18**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 22**
 
-[the Day] on which the skies shall be rent asunder, [and] His promise [of resurrection] fulfilled?
+Thou canst not find people who [truly] believe in God and the Last Day and [at the same time] love anyone who contends against God and His Apostle - even though they be their fathers, or their sons, or their brothers, or [others of] their kindred. [As for the true believers,] it is they in whose hearts He has inscribed faith, and whom He has strength­ened with inspiration from Himself, and whom [in time] He will admit into gardens through which running waters flow, therein to abide. Well-pleased is God with them, and well-pleased are they with Him. They are God’s partisans: oh, verily, it is they, the partisans of God, who shall attain to a happy state!
  <!--END_SECTION:quran-->
 
   
