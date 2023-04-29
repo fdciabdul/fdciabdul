@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 7**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 7**
 
-[Hence,] O you who are bent on denying the truth, make no [empty] excuses today: [in the life to come] you shall be but recompensed for what you were doing [in this world].
+For, whenever Our messages are conveyed to such a one, he turns away in his arrogance as though he had not heard them - as though there were deafness in his ears. Give him, then, the tiding of grievous suffering [in the life to come].
  <!--END_SECTION:quran-->
 
   
