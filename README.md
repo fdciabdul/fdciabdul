@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 49**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 15**
 
-and that it is He alone who sustains the bright­est star;
+BUT NAY! I call to witness the revolving stars,
  <!--END_SECTION:quran-->
 
   
