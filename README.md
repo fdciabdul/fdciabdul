@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 48**
 
-in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
+and that it is He alone who frees from want and causes to possess;
  <!--END_SECTION:quran-->
 
   
