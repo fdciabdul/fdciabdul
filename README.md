@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 23**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 18**
 
-such being God’s way which has ever obtained in the past - and never wilt thou find any change in God’s way!
+[the Day] on which the skies shall be rent asunder, [and] His promise [of resurrection] fulfilled?
  <!--END_SECTION:quran-->
 
   
