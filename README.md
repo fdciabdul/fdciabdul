@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 8**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 2**
 
-running in con­fusion towards the Summoning Voice; [and] those who [now] deny the truth will exclaim, “Calamitous is this Day!”
+Consider [God’s] revelation, inscribed
  <!--END_SECTION:quran-->
 
   
