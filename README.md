@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 10**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 8**
 
-and [man] will have neither strength nor helper!
+so that [at the end of time] He might ask those men of truth as to [what response] their truthfulness [had received on earth]. And grievous suffering has He readied for all who deny the truth!
  <!--END_SECTION:quran-->
 
   
