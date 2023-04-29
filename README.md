@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 46**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 43**
 
-and then, [after having caused it to lengthen,] We draw it in towards Our­selves with a gradual drawing-in.
+and that it is He alone who causes [you] to laugh and to weep;
  <!--END_SECTION:quran-->
 
   
