@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 20**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 167**
 
-and, behold, it is with my Sustainer - and your Sustainer - that I seek refuge against all your endeavours to revile me.
+AND, INDEED, they [who deny the truth] have always been wont to say,
  <!--END_SECTION:quran-->
 
   
