@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 18**
 
-"from the evil of aught that He has created,
+Verily, as for the men and women who accept the truth as true and who [thus] offer up unto God a goodly loan, they will be amply repaid, and shall have a noble reward [in the life to come].
  <!--END_SECTION:quran-->
 
   
