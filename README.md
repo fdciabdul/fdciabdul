@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 26**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 20**
 
-Then he turned quietly to his household, and brought forth a fat [roasted] calf,
+but only out of a longing for the countenance of his Sustainer, the All-Highest:
  <!--END_SECTION:quran-->
 
   
