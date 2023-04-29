@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 8**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 23**
 
-whom they hate for no other reason than that they believe in God, the Almighty, the One to whom all praise is due,
+THUS, INDEED, did We send Moses with Our mes­sages and a manifest authority [from Us]
  <!--END_SECTION:quran-->
 
   
