@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 6**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 51**
 
-Guide us the straight way.
+[Thereupon the King sent for those women; and when they came,] he asked: "What was it that you hoped to achieve when you sought to make Joseph yield himself unto you?" The women answered: "God save us! We did not perceive the least evil [intention] on his part!" [And] the wife of Joseph's former master exclaimed: "Now has the truth come to light! It was I who sought to make him yield himself unto me - whereas he, behold, was indeed speaking the truth!"
  <!--END_SECTION:quran-->
 
   
