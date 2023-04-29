@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 39**
 
-"and from the evil of the black darkness whenever it descends,
+“Taste, then, the suffering which I inflict when My warnings are disregarded!”
  <!--END_SECTION:quran-->
 
   
