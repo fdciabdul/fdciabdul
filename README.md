@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 24**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 19**
 
-He will say, "Oh, would that I had. provided beforehand for my life [to come]!"
+And immortal youths will wait upon them: when thou seest them, thou wouldst deem them to be scattered pearls;
  <!--END_SECTION:quran-->
 
   
