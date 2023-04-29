@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 9**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 43**
 
-But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,
+downcast will be their eyes, with ignominy overwhelming them - seeing that they had been called upon [in vain] to prostrate themselves [before Him] while they were yet sound [and alive].
  <!--END_SECTION:quran-->
 
   
