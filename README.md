@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 19**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 46**
 
-These two contrary kinds of man have become engrossed in contention about their Sus­tainer! But [thus it is:] as for those who are bent on denying the truth garments of fire shall be cut out for them [in the life to come]; burning despair will be poured over their heads,
+and then, [after having caused it to lengthen,] We draw it in towards Our­selves with a gradual drawing-in.
  <!--END_SECTION:quran-->
 
   
