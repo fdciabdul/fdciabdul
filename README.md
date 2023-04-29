@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 2**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 78**
 
-His is the dominion over the heavens and the earth; He grants life and deals death; and He has the power to will anything.
+AND [remember] David and Solomon - [how it was] when both of them gave judgment concerning the field into which some people’s sheep had strayed by night and pastured therein, and [how] We bore witness to their judgment:
  <!--END_SECTION:quran-->
 
   
