@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 37**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 87**
 
-Are they, then, better than the people of Tubba and those before them, whom We destroyed because they were truly lost in [the same] sin?
+[on that Day] none will have [the benefit of] intercession unless he has [in his lifetime] entered into a bond with the Most Gracious.
  <!--END_SECTION:quran-->
 
   
