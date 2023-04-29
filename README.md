@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 7**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 21**
 
-who has created thee, and formed thee in accordance with what thou art meant' to be, and shaped thy nature in just proportions,
+[On that Day,] verily, hell will lie in wait [for those who deny the truth] –
  <!--END_SECTION:quran-->
 
   
