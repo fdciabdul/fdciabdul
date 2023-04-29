@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 39**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
 
-“Taste, then, the suffering which I inflict when My warnings are disregarded!”
+and, withal, deny all assistance [to their fellow-men]!
  <!--END_SECTION:quran-->
 
   
