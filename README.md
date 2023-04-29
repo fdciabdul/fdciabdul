@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 76**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
 
-Those who have attained to faith fight in the cause of God, whereas those who are bent on denying the truth fight in the cause of the powers of evil. Fight, then, against those friends of Satan: verily, Satan's guile is weak indeed!
+extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
  <!--END_SECTION:quran-->
 
   
