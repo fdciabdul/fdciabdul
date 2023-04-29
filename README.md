@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
 
-BEHOLD, We have bestowed upon thee good in abundance:
+"And I will not worship ~hat which you have [ever] worshipped,
  <!--END_SECTION:quran-->
 
   
