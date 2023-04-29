@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 38**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 2**
 
-BUT NAY! I call to witness an that you can see,
+THE BESTOWAL from on high [of this revelation] issues from the Most Gracious, the Dis­penser of Grace:
  <!--END_SECTION:quran-->
 
   
