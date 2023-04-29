@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 29**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 7**
 
-And if any of them were to say, “Behold, I am deity beside Him” - that one We should requite with hell: thus do We requite all [such] evildoers.
+But [on that Day,] when the eyesight is by fear confounded,
  <!--END_SECTION:quran-->
 
   
