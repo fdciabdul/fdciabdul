@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 2**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 42**
 
-THE BESTOWAL from on high [of this revelation] issues from the Most Gracious, the Dis­penser of Grace:
+when he spoke [thus] unto his father: "O my father! Why dost thou worship something that neither hears nor sees and can be of no avail whatever to thee?
  <!--END_SECTION:quran-->
 
   
