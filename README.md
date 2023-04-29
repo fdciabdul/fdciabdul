@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 7**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 65**
 
-they will come forth from their graves, with their eyes downcast, [swarming about] like locusts scattered [by the wind],
+AND UNTO [the tribe of] `Ad [We sent] their brother Hud. He said: "O my people! Worship God alone: you have no deity other than Him. Will you not, then, be conscious of Him?"
  <!--END_SECTION:quran-->
 
   
