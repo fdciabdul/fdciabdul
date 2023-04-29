@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 88**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 40**
 
-How, then, could you be of two minds about the hypocrites, seeing that God [Himself] has disowned them because of their guilt? Do you, perchance, seek to guide those whom God has let go astray - when for him whom God lets go astray thou canst never find any way?
+and a good many of later times.
  <!--END_SECTION:quran-->
 
   
