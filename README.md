@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 1**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 49**
 
-SAY: "He is the One God:
+For, before God prostrates itself all that is in the heavens and all that is on earth - every beast that moves, and the angels: [even] these do not bear themselves with false pride:
  <!--END_SECTION:quran-->
 
   
