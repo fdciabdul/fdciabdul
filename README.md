@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 30**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 1**
 
-Said he: “Even if I should bring about before thee something that clearly shows the truth?”
+ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: His is all dominion, and to Him all praise is due; and He has the power to will anything.
  <!--END_SECTION:quran-->
 
   
