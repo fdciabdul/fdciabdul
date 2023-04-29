@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 76**
 
-secure in their winter and summer journeys,
+Those who have attained to faith fight in the cause of God, whereas those who are bent on denying the truth fight in the cause of the powers of evil. Fight, then, against those friends of Satan: verily, Satan's guile is weak indeed!
  <!--END_SECTION:quran-->
 
   
