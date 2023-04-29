@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 20**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 19**
 
-but only out of a longing for the countenance of his Sustainer, the All-Highest:
+the revelations of Abraham and Moses.
  <!--END_SECTION:quran-->
 
   
