@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 76**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 16**
 
-and, behold, this is indeed a most solemn affirmation, if you but knew it!
+AND CALL to mind, through this divine writ, Mary. Lo! She withdrew from her family to an eastern place
  <!--END_SECTION:quran-->
 
   
