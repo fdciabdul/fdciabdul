@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 32**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 2**
 
-Hence, do not covet the bounties which God has bestowed more abundantly on some of you than on others. Men shall have a benefit from what they earn, and women shall have a benefit from what they earn. Ask, therefore, God [to give you] out of His bounty: behold, God has indeed full knowledge of everything.
+sparks of fire striking,
  <!--END_SECTION:quran-->
 
   
