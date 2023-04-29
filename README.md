@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 7**
 
-Behold, it is this [kind of man] that thrusts the orphan away,
+And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.
  <!--END_SECTION:quran-->
 
   
