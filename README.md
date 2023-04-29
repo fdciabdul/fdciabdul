@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 65**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
 
-AND UNTO [the tribe of] `Ad [We sent] their brother Hud. He said: "O my people! Worship God alone: you have no deity other than Him. Will you not, then, be conscious of Him?"
+extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
  <!--END_SECTION:quran-->
 
   
