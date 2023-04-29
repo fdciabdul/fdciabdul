@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 49**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 26**
 
-For, before God prostrates itself all that is in the heavens and all that is on earth - every beast that moves, and the angels: [even] these do not bear themselves with false pride:
+Then he turned quietly to his household, and brought forth a fat [roasted] calf,
  <!--END_SECTION:quran-->
 
   
