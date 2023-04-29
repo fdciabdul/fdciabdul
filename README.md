@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 19**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 23**
 
-Thereupon [Solomon] smiled joyously at her words, and said: “O my Sustainer! Inspire me so that I may forever be grateful for those blessings of Thine with which Thou hast graced me and my parents, and that I may do what is right [in a manner] that will please Thee; and include me, by Thy grace, among Thy righteous servants!”
+THUS, INDEED, did We send Moses with Our mes­sages and a manifest authority [from Us]
  <!--END_SECTION:quran-->
 
   
