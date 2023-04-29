@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 54**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 16**
 
-And when those who believe in Our messages come unto thee, say: "Peace be upon you. Your Sustainer has willed upon Himself the law of grace and mercy - so that if any of you does a bad deed out of ignorance, and thereafter repents and lives righteously, He shall be [found] much-forgiving, a dispenser of grace."
+the planets that run their course and set,
  <!--END_SECTION:quran-->
 
   
