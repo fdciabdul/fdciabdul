@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 10**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 1**
 
-and all that is [hidden] in men's hearts is bared
+SAY: "O you who deny the truth!
  <!--END_SECTION:quran-->
 
   
