@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 71**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
 
-And those who were bent on denying the truth will be urged on in throngs towards hell till, when they reach it, its gates will be opened, and its keepers will ask them, “Have there not come to you apostles from among yourselves, who conveyed to you your Sustainer’s messages and warned you of the coming of this your Day [of Judgment]?” They will answer: “Yea, indeed!” But the sentence of suffering will [already] have fallen due upon the deniers of the truth;
+secure in their winter and summer journeys,
  <!--END_SECTION:quran-->
 
   
