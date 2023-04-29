@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 55**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 2**
 
-whereas those who are bent on denying the truth will not cease to be in doubt about Him until the Last Hour comes suddenly upon them and [supreme] suffering befalls them on a Day void of all hope.
+And what could make thee conceive what it is that comes in the night?
  <!--END_SECTION:quran-->
 
   
