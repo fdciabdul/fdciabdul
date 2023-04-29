@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 7**
 
-extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
+MEN SHALL have a share in what parents and kinsfolk leave behind, and women shall have a share in what parents and kinsfolk leave behind, whether it be little or much - a share ordained [by God].
  <!--END_SECTION:quran-->
 
   
