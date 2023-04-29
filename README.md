@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 47**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 1**
 
-NOW every community has had an apostle; and only after their apostle has appeared [and delivered his message] is judgment passed on them, in all equity; and never are they wronged.
+HAS THERE COME unto thee the tiding of the Overshadowing Event?'
  <!--END_SECTION:quran-->
 
   
