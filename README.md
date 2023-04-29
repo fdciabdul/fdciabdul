@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 22**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 40**
 
-And among his wonders is the creation of the heavens and the earth, and the diversity of your tongues and colours: for in this, behold, there are messages indeed for all who are possessed of [innate] knowledge!
+CANST THOU, perchance, [O Muhammad,] make the deaf hear, or show the right way to the blind or to such as are obviously lost in error?
  <!--END_SECTION:quran-->
 
   
