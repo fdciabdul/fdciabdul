@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 13**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 93**
 
-Say: “Behold, I would dread, were I to rebel against my Sustainer, the suffering [which would befall me] on that awesome Day [of Judgment].”
+SAY: “O my Sustainer! If it be Thy will to let me witness [the fulfillment of] whatever they [who blaspheme against Thee] have been promised [to suffer] –
  <!--END_SECTION:quran-->
 
   
