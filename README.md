@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 6**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 44**
 
-A fire kindled by God,
+Hence, warn men of the Day when this suffering may befall them, and when those who did wrong [in their lifetime] will exclaim: "O our Sustainer! Grant us respite for a short while, so that we might respond to Thy call and follow the apostles!" [But God will answer:] "Why - were you not aforetime wont to swear that no kind of resurrection and retribution awaited you?
  <!--END_SECTION:quran-->
 
   
