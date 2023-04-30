@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 14**
 
-On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
+But God’s is the dominion over the heavens and the earth: He forgives whomever He wills, and imposes suffering on whomever He wills - and [withal,] He is indeed much-forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
