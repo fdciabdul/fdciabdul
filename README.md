@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 15**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
 
-for none [of them] had any fear of what might befall them.
+"God the Eternal, the Uncaused Cause of All Being.
  <!--END_SECTION:quran-->
 
   
