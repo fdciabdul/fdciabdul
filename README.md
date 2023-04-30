@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 14**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 196**
 
-And [as for the followers of earlier revelation,] they broke up their unity, out of mutual jealousy, only after they had come to know [the truth]. And had it not been for a decree that had already gone forth from thy Sustainer, [postponing all decision] until a term set [by Him], all would indeed have been decided between them [from the outset]. As it is, behold, they who have inherited their divine writ from those who preceded them are [now] in grave doubt, amounting to suspicion, about what it por­tends.
+LET IT NOT deceive thee that those who are bent on denying the truth seem to be able to do as they please on earth:
  <!--END_SECTION:quran-->
 
   
