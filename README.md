@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 99**
 
-What will his wealth avail him, and all that he has gained?
+AND WHEN they [all arrived in Egypt and] presented themselves before Joseph, he drew his parents unto himself, saying, "Enter Egypt! If God so wills, you shall be secure [from all evil]!"
  <!--END_SECTION:quran-->
 
   
