@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 76**
 
-[who bears] around her neck a rope of twisted strands!
+And so, when the truth came to them from Us, they said, "Behold, this is clearly nothing but sorcery!"
  <!--END_SECTION:quran-->
 
   
