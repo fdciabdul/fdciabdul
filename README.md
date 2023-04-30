@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 2**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 1**
 
-He knows all that enters the earth, and all that comes out of it, as well as all that descends from the skies, and all that ascends to them. And He alone is a dispenser of grace, truly-forgiving.
+O THOU [in thy solitude] enfolded!
  <!--END_SECTION:quran-->
 
   
