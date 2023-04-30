@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 42**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 34**
 
-when he spoke [thus] unto his father: "O my father! Why dost thou worship something that neither hears nor sees and can be of no avail whatever to thee?
+Said she: “Verily, whenever kings enter a country they corrupt it, and turn the noblest of its people into the most abject. And this is the way they [always] behave?
  <!--END_SECTION:quran-->
 
   
