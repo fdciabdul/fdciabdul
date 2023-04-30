@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 178**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 1**
 
-Hence, turn thou aside for a while from them,
+CONSIDER those [stars] that rise only to set,
  <!--END_SECTION:quran-->
 
   
