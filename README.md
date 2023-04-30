@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 21**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 20**
 
-and give no thought to the life to come [and to Judgment Day]!
+reclining on couches [of happiness] ranged in rows!” And [in that paradise] We shall mate them with companions pure, most beautiful of eye.
  <!--END_SECTION:quran-->
 
   
