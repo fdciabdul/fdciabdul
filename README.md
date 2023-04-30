@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 48**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 64**
 
-And call to mind Ishmael and Elisha, and every one who [like them] has pledged himself [unto Us]: for, each of them was of the truly good!
+[Moses] exclaimed: "That [was the place] which we were seeking!, And the two turned back, retracing their footsetps,
  <!--END_SECTION:quran-->
 
   
