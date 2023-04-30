@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 65**
 
-"God the Eternal, the Uncaused Cause of All Being.
+He is the Ever-Living; there is no deity save Him: call, then, unto Him [alone], sincere in your faith in Him. All praise is due to God, the Sustainer of all the worlds!
  <!--END_SECTION:quran-->
 
   
