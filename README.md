@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 24**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 30**
 
-[Such trials are imposed upon man] so that God may reward the truthful for having been true to their word, and cause the hypocrites to suffer - if that be His will - or [if they repent,] accept their repen­tance: for, verily, God is indeed much-forgiving, a dispenser of grace!
+[And] he prayed: “O my Sustainer! Succour Thou me against these people who spread corrup­tion!”
  <!--END_SECTION:quran-->
 
   
