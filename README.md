@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 62**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 7**
 
-God grants abundant sustenance, or gives it in scant measure, to whichever He wills of His crea­tures: for, behold, God has full knowledge of every­thing.
+but, We see it as near!
  <!--END_SECTION:quran-->
 
   
