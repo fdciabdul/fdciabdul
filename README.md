@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 22**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 6**
 
-and then, if it be His will, He shall raise him again to life,
+A fire kindled by God,
  <!--END_SECTION:quran-->
 
   
