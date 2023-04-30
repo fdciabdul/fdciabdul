@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 60**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 7**
 
-The offerings given for the sake of God are [meant] only for the poor and the needy, and those who are in charge thereof, and those whose hearts are to be won over, and for the freeing of human beings from bondage, and [for] those who are over burdened with debts, and [for every struggle] in God's cause, and [for] the wayfarer: [this is] an ordinance from God - and God is all-knowing, wise.
+and the fifth time, that God’s curse be upon him if he is telling a lie.
  <!--END_SECTION:quran-->
 
   
