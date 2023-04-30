@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 25**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 22**
 
-Say: "I do not know whether that [doom] of which you were forewarned is near, or whether my Sustainer has set for it a distant term."
+They answered: “Hast thou come to seduce us away from our gods? Bring, then, upon us that [doom] with which thou threaten us, if thou art a man of truth!”
  <!--END_SECTION:quran-->
 
   
