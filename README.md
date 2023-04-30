@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 44**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 2**
 
-and, verily, this [revelation] shall indeed become [a source of] eminence for thee and thy people: but in time you all will be called to account [for what you have done with it].
+THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the All-Know­ing,
  <!--END_SECTION:quran-->
 
   
