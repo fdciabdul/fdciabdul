@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 7**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 6**
 
-What, then, [O man,] could henceforth cause thee to give the lie to this moral law?
+But wouldst thou, perhaps, torment thyself to death with grief over them if they are not willing to believe in this message?
  <!--END_SECTION:quran-->
 
   
