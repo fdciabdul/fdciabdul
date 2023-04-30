@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 10**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 44**
 
-for him shall We make easy the path towards hardship:
+with downcast eyes, with ignominy overwhelming them: that Day which they were promised again and…
  <!--END_SECTION:quran-->
 
   
