@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 3**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 14**
 
-wherein there are ordinances of ever-true soundness and clarity.
+Tell all who have attained to faith that they should forgive those who do not believe in the com­ing of the Days of God, [since it is] for Him [alone] to requite people for whatever they may have earned.
  <!--END_SECTION:quran-->
 
   
