@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 13**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
 
-Hast thou considered whether he may [not] be giving the lie to the truth and turning his back [upon it]?
+and, withal, deny all assistance [to their fellow-men]!
  <!--END_SECTION:quran-->
 
   
