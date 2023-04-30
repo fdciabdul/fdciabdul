@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 14**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 8**
 
-"'Yet [it is true] that among us are such as have surrendered themselves to God - just as there are among us such as have abandoned themselves to wrongdoing. Now as for those who surrender themselves to Him - it is they that have attained to consciousness of what is right;
+On that Day will [men's] hearts be throbbing,
  <!--END_SECTION:quran-->
 
   
