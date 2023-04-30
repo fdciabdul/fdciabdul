@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 1**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 27**
 
-NAY! I call to witness the Day of Resurrection!
+But Moses said: “With [Him who is] my Sus­tainer as well as your Sustainer have I indeed found refuge from everyone who, immersed in false pride, will not believe in [the coming of] the Day of Reckon­ing!”
  <!--END_SECTION:quran-->
 
   
