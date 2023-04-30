@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 6**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 11**
 
-As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.
+[To them shall - happen] the like of what happened to Pharaoh's people and those who lived before them: they gave the lie to Our messages - and so God took them to task for their sins: for God is severe in retribution.
  <!--END_SECTION:quran-->
 
   
