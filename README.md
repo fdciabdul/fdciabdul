@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 47**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 6**
 
-And indeed, [O Muhammad, even] before thee did We send forth apostles - each one unto his own people and they brought them all evidence of the truth: and then, [by causing the believers to triumph,] We inflicted Our retribution upon those who [de­liberately] did evil: for We had willed it upon Our­selves to succour the believers.
+he has been created out of a seminal fluid
  <!--END_SECTION:quran-->
 
   
