@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 6**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 2**
 
-[then,] O man - thou [that] hast, verily, been toiling towards thy Sustainer in painful toil - then shalt thou meet Him!
+and Mount Sinai,
  <!--END_SECTION:quran-->
 
   
