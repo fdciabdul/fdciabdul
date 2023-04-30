@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 80**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 6**
 
-And God has given you [the ability to build] your houses as places of rest, and has endowed you with [the skill to make] dwellings out of the skins of animals - easy for you to handle when you travel and when you camp -and [to make] furnishings and goods for temporary use of their [rough] wool and their soft, furry wool and their hair.
+[then,] O man - thou [that] hast, verily, been toiling towards thy Sustainer in painful toil - then shalt thou meet Him!
  <!--END_SECTION:quran-->
 
   
