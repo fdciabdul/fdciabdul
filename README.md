@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 15**
 
-"and from the evil of the black darkness whenever it descends,
+for none [of them] had any fear of what might befall them.
  <!--END_SECTION:quran-->
 
   
