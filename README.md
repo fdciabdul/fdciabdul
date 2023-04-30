@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 7**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 48**
 
-but, We see it as near!
+And so, of no benefit to them could be the intercession of any that would intercede for them.
  <!--END_SECTION:quran-->
 
   
