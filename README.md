@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 23**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 5**
 
-VERILY, [O believer,] it is We who have bestowed from on high this Qur’an upon thee, step by step - truly a bestowal from on high!
+HAVE THE STORIES of those who, in earlier times, refused to acknowledge the truth never yet come within your ken? [They denied it -] and so they had to taste the evil outcome of their own doings, with [more] grievous suffering awaiting them [in the life to come]:
  <!--END_SECTION:quran-->
 
   
