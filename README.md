@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 6**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 165**
 
-he has been created out of a seminal fluid
+AND DO YOU, now that a calamity has befallen you after you had inflicted twice as much [on your foes], ask yourselves, "How has this come about?" Say: "It has come from your own selves." Verily, God has the power to will anything:
  <!--END_SECTION:quran-->
 
   
