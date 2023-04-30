@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 81**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 16**
 
-And they say, "We do pay heed unto thee'' - but when they leave thy presence, some of them devise, in the dark of night, [beliefs] other than thou art voicing; and all the while God records what they thus devise in the dark of night. Leave them, then, alone, and place thy trust in God: for none is as worthy of trust as God.
+they have made their oaths a cover [for their falseness], and thus they turn others away from the path of God: hence, shameful suffering awaits them.
  <!--END_SECTION:quran-->
 
   
