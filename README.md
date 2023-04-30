@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 8**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 147**
 
-On that Day will [men's] hearts be throbbing,
+Hence, all who give the lie to Our messages, and [thus] to the truth of the life to come -in vain shall be all their doings: [for] are they to be rewarded for aught but what they were wont to do?
  <!--END_SECTION:quran-->
 
   
