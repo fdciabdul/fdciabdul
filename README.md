@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 12**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 23**
 
-[for] if those [to whom they have pledged themselves] are indeed driven away, they will not go forth with them; and if war is waged against them, they will not come to their succour; and even if they [try to] succour them, they will most certainly turn their backs [in flight], and in the end will [themselves] find no succour.
+For, if God had seen any good in them, He would certainly have made them hear: but [as it is,] even if He had made them hear, they would surely have turned away in their obstinacy.
  <!--END_SECTION:quran-->
 
   
