@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 11**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 18**
 
-wherein thou wilt hear no empty talk.
+And [know] that all worship is due to God [alone]: hence, do not invoke anyone side by side with God!
  <!--END_SECTION:quran-->
 
   
