@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 59**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 46**
 
-O Prophet! Tell thy wives and thy daughters, as well as all [other] believing women, that they should draw over themselves some of their outer garments [when in public]: this will be more con­ducive to their being recognized [as decent women] and not annoyed. But [withal,] God is indeed much- forgiving, a dispenser of grace!
+For, had they been [truly] desirous of setting out [with thee], they would surely have made some preparation therefor: but God was averse to their taking the field, and so He caused them to hold back when it was said, "[You may] stay at home with all [the others] who stay at home."
  <!--END_SECTION:quran-->
 
   
