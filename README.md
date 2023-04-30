@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 11**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
 
-O YOU who have attained to faith! When you are told, “Make room for one another in your collective life”, do make room: [and in return,] God will make room for you [in His grace]. And whenever you are told, “Rise up [for a good deed]”, do rise up; [and] God will exalt by [many] degrees those of you who have attained to faith and, [above all,] such as have been vouchsafed [true] knowledge: for God is fully aware of all that you do.
+Behold, it is this [kind of man] that thrusts the orphan away,
  <!--END_SECTION:quran-->
 
   
