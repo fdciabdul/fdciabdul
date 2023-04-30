@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 215**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 35**
 
-and spread the wings of thy tenderness over all of the believers who may follow thee;
+[for, resting in paradise] on couches, they will look on [and say to themselves]:
  <!--END_SECTION:quran-->
 
   
