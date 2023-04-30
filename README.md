@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 5**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 145**
 
-of fire fiercely burning [for all who have attained to faith]!
+Verily, the hypocrites shall be in the lowest depth of the fire, and thou wilt find none who could succour them.
  <!--END_SECTION:quran-->
 
   
