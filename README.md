@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 99**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 61**
 
-AND WHEN they [all arrived in Egypt and] presented themselves before Joseph, he drew his parents unto himself, saying, "Enter Egypt! If God so wills, you shall be secure [from all evil]!"
+But God will safeguard all who were conscious of Him, [and will grant them happiness] by virtue of their [inner] triumphs; no evil shall ever touch them, and neither shall they grieve.
  <!--END_SECTION:quran-->
 
   
