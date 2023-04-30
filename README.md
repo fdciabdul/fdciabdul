@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 20**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 8**
 
-it swept the people away as though they were palm-trunks uprooted:
+In this, behold, there is a message [unto men], even though most of them will not believe [in it].
  <!--END_SECTION:quran-->
 
   
