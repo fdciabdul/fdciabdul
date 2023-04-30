@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 9**
 
-secure in their winter and summer journeys,
+well-pleased with [the fruit of] their striving,
  <!--END_SECTION:quran-->
 
   
