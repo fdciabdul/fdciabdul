@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 3**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 38**
 
-and man cries out, "What has happened to her?" -
+And thus it is [with most people]: if thou ask them, “Who is it that has created the heavens and the earth?” - they will surely answer, “God.” Say: “Have you, then, ever considered what it is that you invoke instead of God? If God wills that harm should befall me, could those [imaginary powers] remove the harm inflicted by Him? Or, if He wills that grace should alight on me, could they withhold His grace [from me]?” Say: “God is enough for me! In Him [alone] place their trust all who have trust [in His existence].”
  <!--END_SECTION:quran-->
 
   
