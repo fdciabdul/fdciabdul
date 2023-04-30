@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 20**
+**Surah 38: سُورَةُ صٓ (Saad) - 48**
 
-reclining on couches [of happiness] ranged in rows!” And [in that paradise] We shall mate them with companions pure, most beautiful of eye.
+And call to mind Ishmael and Elisha, and every one who [like them] has pledged himself [unto Us]: for, each of them was of the truly good!
  <!--END_SECTION:quran-->
 
   
