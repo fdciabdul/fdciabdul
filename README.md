@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 38**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 3**
 
-Verily, God will ward off [all evil] from those who attain to faith; [and,] verily, God does not love anyone who betrays his trust and is bereft of gratitude.
+thinking that his wealth will make him live forever!
  <!--END_SECTION:quran-->
 
   
