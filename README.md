@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 64**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 14**
 
-[Moses] exclaimed: "That [was the place] which we were seeking!, And the two turned back, retracing their footsetps,
+"'Yet [it is true] that among us are such as have surrendered themselves to God - just as there are among us such as have abandoned themselves to wrongdoing. Now as for those who surrender themselves to Him - it is they that have attained to consciousness of what is right;
  <!--END_SECTION:quran-->
 
   
