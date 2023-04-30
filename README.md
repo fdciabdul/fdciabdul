@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 1**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 51**
 
-O THOU [in thy solitude] enfolded!
+And Pharaoh issued a call to his people, say­ing: “O my people! Does not the dominion over Egypt belong to me, since all these running waters flow at my feet? Can you not, then, see [that I am your lord supreme]?
  <!--END_SECTION:quran-->
 
   
