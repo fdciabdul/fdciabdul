@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 24**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 21**
 
-And He it is who, in the valley of Mecca, stayed their hands from you, and your hands from them, after He had enabled you to vanquish them; and God saw indeed what you were doing.
+And there are yet other [gains] which are still beyond your grasp, [but] which God has already encompassed [for you]: for God has the power to will anything.
  <!--END_SECTION:quran-->
 
   
