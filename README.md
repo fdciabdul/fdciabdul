@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 2**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 24**
 
-who creates [every thing], and thereupon forms it in accordance with what it is meant to be,
+[Such trials are imposed upon man] so that God may reward the truthful for having been true to their word, and cause the hypocrites to suffer - if that be His will - or [if they repent,] accept their repen­tance: for, verily, God is indeed much-forgiving, a dispenser of grace!
  <!--END_SECTION:quran-->
 
   
