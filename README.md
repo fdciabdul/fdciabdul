@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 9**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 2**
 
-[Think of] the time when He shall gather you all together unto the Day of the [Last] Gathering - that Day of Loss and Gain! For, as for him who shall have believed in God and done what is just and right, He will [on that Day] efface his bad deeds, and will admit him into gardens through which running waters flow, therein to abide beyond the count of time: that will be a triumph supreme!
+who creates [every thing], and thereupon forms it in accordance with what it is meant to be,
  <!--END_SECTION:quran-->
 
   
