@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 16**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 9**
 
-they have made their oaths a cover [for their falseness], and thus they turn others away from the path of God: hence, shameful suffering awaits them.
+[Think of] the time when He shall gather you all together unto the Day of the [Last] Gathering - that Day of Loss and Gain! For, as for him who shall have believed in God and done what is just and right, He will [on that Day] efface his bad deeds, and will admit him into gardens through which running waters flow, therein to abide beyond the count of time: that will be a triumph supreme!
  <!--END_SECTION:quran-->
 
   
