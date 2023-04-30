@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 5**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 116**
 
-HAVE THE STORIES of those who, in earlier times, refused to acknowledge the truth never yet come within your ken? [They denied it -] and so they had to taste the evil outcome of their own doings, with [more] grievous suffering awaiting them [in the life to come]:
+[But,] behold, as for those who are bent on denying the truth - neither their worldly possessions nor their children will in the least avail them against God: and it is they who are destined for the fire, therein to abide.
  <!--END_SECTION:quran-->
 
   
