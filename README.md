@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 1**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 25**
 
-IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:
+Say: "I do not know whether that [doom] of which you were forewarned is near, or whether my Sustainer has set for it a distant term."
  <!--END_SECTION:quran-->
 
   
