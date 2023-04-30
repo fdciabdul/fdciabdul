@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 14**
 
-[who bears] around her neck a rope of twisted strands!
+Invoke, then, God, sincere in your faith in Him alone, however hateful this may be to those who deny the truth!
  <!--END_SECTION:quran-->
 
   
