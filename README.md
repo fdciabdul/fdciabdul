@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 6**
 
-In the end you will indeed, most surely, behold it with the eye of certainty:
+O MAN! What is it that lures thee away from thy bountiful Sustainer,
  <!--END_SECTION:quran-->
 
   
