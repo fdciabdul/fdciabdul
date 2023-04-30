@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 49**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 4**
 
-And [thus, too,] they say, "After we will have become bones and dust, shall we, forsooth, be raised from the dead in a new act of creation?"
+Lord of the Day of Judgment!
  <!--END_SECTION:quran-->
 
   
