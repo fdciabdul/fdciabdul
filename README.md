@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 52**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 61**
 
-Are they, then, not aware that it is God who grants abundant sustenance, or gives it in scant measure, unto whomever He wills? In this, behold, there are messages indeed for peo­ple who will believe!
+And so, whenever they are told, "Come unto that which God has be­stowed from on high, and unto the Apostle," thou canst see these hypocrites turn away from thee with aversion.
  <!--END_SECTION:quran-->
 
   
