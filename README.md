@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 5**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
 
-and thereafter We reduce him to the lowest of low
+secure in their winter and summer journeys,
  <!--END_SECTION:quran-->
 
   
