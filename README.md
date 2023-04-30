@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 61**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
 
-But God will safeguard all who were conscious of Him, [and will grant them happiness] by virtue of their [inner] triumphs; no evil shall ever touch them, and neither shall they grieve.
+On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
  <!--END_SECTION:quran-->
 
   
