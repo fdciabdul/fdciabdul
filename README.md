@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 116**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 36**
 
-[But,] behold, as for those who are bent on denying the truth - neither their worldly possessions nor their children will in the least avail them against God: and it is they who are destined for the fire, therein to abide.
+Now whenever God and His Apostle have decided a matter, it is not for a believing man or a believing woman to claim freedom of choice insofar as they themselves are concerned: for he who [thus] rebels against God and His Apostle has already, most obviously, gone astray.
  <!--END_SECTION:quran-->
 
   
