@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 4**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 42**
 
-this, because they cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution!
+And [on that Day God will say]: “None of you [created beings] has today any power to benefit or to harm another!” And [then] We shall say unto those who had been bent on evildoing: “Taste [now] that suffering through fire which you were wont to call a lie!”
  <!--END_SECTION:quran-->
 
   
