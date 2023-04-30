@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 4**
 
-"from the evil of aught that He has created,
+this, because they cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution!
  <!--END_SECTION:quran-->
 
   
