@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 38**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
 
-"O our Sustainer! Thou truly knowest all that we may hide [in our hearts] as well as all that we bring into the open:' for nothing whatever, be it on earth or in heaven, remains hidden from God.
+"from the evil of aught that He has created,
  <!--END_SECTION:quran-->
 
   
