@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 38**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 22**
 
-And thus it is [with most people]: if thou ask them, “Who is it that has created the heavens and the earth?” - they will surely answer, “God.” Say: “Have you, then, ever considered what it is that you invoke instead of God? If God wills that harm should befall me, could those [imaginary powers] remove the harm inflicted by Him? Or, if He wills that grace should alight on me, could they withhold His grace [from me]?” Say: “God is enough for me! In Him [alone] place their trust all who have trust [in His existence].”
+But then, [when they beset him with their enmity,] he called out to his Sustainer, “These are [indeed] people lost in sin!”
  <!--END_SECTION:quran-->
 
   
