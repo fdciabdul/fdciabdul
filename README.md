@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 21**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 100**
 
-And there are yet other [gains] which are still beyond your grasp, [but] which God has already encompassed [for you]: for God has the power to will anything.
+he has power only over those who are willing to follow him, and who [thus] ascribe to him a share in God's divinity.
  <!--END_SECTION:quran-->
 
   
