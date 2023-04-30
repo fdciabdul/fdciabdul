@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 6**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 98**
 
-he has been created out of a seminal fluid
+NOW whenever thou happen to read this Qur'an, seek refuge with God from Satan, the accursed.
  <!--END_SECTION:quran-->
 
   
