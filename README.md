@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 2**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 3**
 
-If they could but overcome you, they would [still] remain your foes, and would stretch forth their hands and tongues against you with evil intent: for they desire that you [too] should deny the truth.
+and man cries out, "What has happened to her?" -
  <!--END_SECTION:quran-->
 
   
