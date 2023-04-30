@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 6**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 38**
 
-WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],
+Verily, God will ward off [all evil] from those who attain to faith; [and,] verily, God does not love anyone who betrays his trust and is bereft of gratitude.
  <!--END_SECTION:quran-->
 
   
