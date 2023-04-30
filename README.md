@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 18**
+**Surah 38: سُورَةُ صٓ (Saad) - 9**
 
-And [know] that all worship is due to God [alone]: hence, do not invoke anyone side by side with God!
+Or do they [think that they] own the treasures of thy Sustainer’s grace - [the grace] of the Almighty, the Giver of Gifts?
  <!--END_SECTION:quran-->
 
   
