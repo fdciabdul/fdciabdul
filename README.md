@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 17**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 20**
 
-Neither their worldly possessions nor their offspring will be of the least avail to them against God: it is they who are destined for the fire, therein to abide!
+it swept the people away as though they were palm-trunks uprooted:
  <!--END_SECTION:quran-->
 
   
