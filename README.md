@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 8**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 106**
 
-[And] they say, "Indeed, when we return to the City [we,] the ones most worthy of honour will surely drive out therefrom those most contemptible ones!" However, all honour belongs to God, and [thus] to His Apostle and those who believe [in God]: but of this the hypocrites are not aware.
+when their brother Noah said unto them: “Will you not be conscious of God?
  <!--END_SECTION:quran-->
 
   
