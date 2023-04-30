@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 42**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
 
-And [on that Day God will say]: “None of you [created beings] has today any power to benefit or to harm another!” And [then] We shall say unto those who had been bent on evildoing: “Taste [now] that suffering through fire which you were wont to call a lie!”
+"and from the evil of the black darkness whenever it descends,
  <!--END_SECTION:quran-->
 
   
