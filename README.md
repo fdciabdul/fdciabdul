@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
 
-and lifted from thee the burden
+What will his wealth avail him, and all that he has gained?
  <!--END_SECTION:quran-->
 
   
