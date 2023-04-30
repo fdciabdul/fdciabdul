@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 24**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 178**
 
-Woe, on that Day unto those who give the lie to the truth!
+Hence, turn thou aside for a while from them,
  <!--END_SECTION:quran-->
 
   
