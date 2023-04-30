@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 145**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 6**
 
-Verily, the hypocrites shall be in the lowest depth of the fire, and thou wilt find none who could succour them.
+such as, when all mankind is gathered [for judgment], will be enemies unto those [who worshipped them], and will utterly reject their worship?
  <!--END_SECTION:quran-->
 
   
