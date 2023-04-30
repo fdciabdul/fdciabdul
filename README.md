@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 12**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 6**
 
-Now from the very beginning We caused him to refuse the breast of [Egyptian] nurses; and [when his sister came to know this,] she said: “Shall I guide you to a family that might rear him for you, and look after him with good will?”
+[then,] O man - thou [that] hast, verily, been toiling towards thy Sustainer in painful toil - then shalt thou meet Him!
  <!--END_SECTION:quran-->
 
   
