@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 9**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 10**
 
-O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!
+for him shall We make easy the path towards hardship:
  <!--END_SECTION:quran-->
 
   
