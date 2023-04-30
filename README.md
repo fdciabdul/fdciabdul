@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 22**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 26**
 
-They answered: “Hast thou come to seduce us away from our gods? Bring, then, upon us that [doom] with which thou threaten us, if thou art a man of truth!”
+on that Day [it will become obvious to all that] true sover­eignty belongs to the Most Gracious [alone]: hence, a Day of distress will it be for all who deny the truth,
  <!--END_SECTION:quran-->
 
   
