@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 16**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 1**
 
-If He so wills, He can do away with you and bring forth a new mankind [in your stead]:
+SO THAT the Quraysh might remain secure,
  <!--END_SECTION:quran-->
 
   
