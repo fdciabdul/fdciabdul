@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 112**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 12**
 
-AND GOD propounds [to you] a parable: [Imagine] a town which was [once] secure and at ease, with its sustenance coming to it abundantly from all quarters, and which thereupon blasphemously refused to show gratitude for God's blessings: and therefore God caused it to taste the all-embracing misery of hunger and fear in result of all [the evil] that its people had so persistently wrought.
+Now from the very beginning We caused him to refuse the breast of [Egyptian] nurses; and [when his sister came to know this,] she said: “Shall I guide you to a family that might rear him for you, and look after him with good will?”
  <!--END_SECTION:quran-->
 
   
