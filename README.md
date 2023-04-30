@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 40**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 26**
 
-Dost thou not know that God's is the dominion over the heavens and the earth? He chastises whom He wills, and He forgives whom He wills: for God has the power to will anything.
+GOD GRANTS abundant sustenance, or gives it in scant measure, unto whomever He wills; and they [who are given abundance] rejoice in the life of this world - even though, as compared with the life to come, the life of this world is nought but -a fleeting pleasure.
  <!--END_SECTION:quran-->
 
   
