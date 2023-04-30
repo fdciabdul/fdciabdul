@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 26**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 4**
 
-on that Day [it will become obvious to all that] true sover­eignty belongs to the Most Gracious [alone]: hence, a Day of distress will it be for all who deny the truth,
+Lord of the Day of Judgment!
  <!--END_SECTION:quran-->
 
   
