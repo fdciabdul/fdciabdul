@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 27**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 22**
 
-But Moses said: “With [Him who is] my Sus­tainer as well as your Sustainer have I indeed found refuge from everyone who, immersed in false pride, will not believe in [the coming of] the Day of Reckon­ing!”
+and who are patient in adversity out of a longing for their Sustainer's countenance, and are constant in prayer, and spend on others, secretly and openly, out of what We provide for them as sustenance, and [who] repel evil with good. It is these that shall find their fulfilment in the hereafter:
  <!--END_SECTION:quran-->
 
   
