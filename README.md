@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 8**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
 
-through God’s bounty and favour; and God is all-knowing, truly wise.
+and lifted from thee the burden
  <!--END_SECTION:quran-->
 
   
