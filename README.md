@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 15**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
 
-O men! It is you, who stand in need of God, whereas He alone is self-sufficient, the One to whom all praise is due.
+"and from the evil of the black darkness whenever it descends,
  <!--END_SECTION:quran-->
 
   
