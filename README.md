@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 26**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 42**
 
-GOD GRANTS abundant sustenance, or gives it in scant measure, unto whomever He wills; and they [who are given abundance] rejoice in the life of this world - even though, as compared with the life to come, the life of this world is nought but -a fleeting pleasure.
+which spared nothing of what it came upon, but caused [all of] it to become like bones dead and decayed.
  <!--END_SECTION:quran-->
 
   
