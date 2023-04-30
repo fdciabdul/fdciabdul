@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 165**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 8**
 
-AND DO YOU, now that a calamity has befallen you after you had inflicted twice as much [on your foes], ask yourselves, "How has this come about?" Say: "It has come from your own selves." Verily, God has the power to will anything:
+through God’s bounty and favour; and God is all-knowing, truly wise.
  <!--END_SECTION:quran-->
 
   
