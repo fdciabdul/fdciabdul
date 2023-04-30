@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 6**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 70**
 
-such as, when all mankind is gathered [for judgment], will be enemies unto those [who worshipped them], and will utterly reject their worship?
+Such is the bounty of God - and none has the knowledge which God has.
  <!--END_SECTION:quran-->
 
   
