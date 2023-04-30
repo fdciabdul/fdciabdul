@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 7**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 1**
 
-and the fifth time, that God’s curse be upon him if he is telling a lie.
+WOE unto every slanderer, fault-finder!
  <!--END_SECTION:quran-->
 
   
