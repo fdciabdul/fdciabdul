@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 32**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
 
-[But the great ones] said: "O Noah! Thou hast contended with us in argument, and hast [needlessly] prolonged our controversy: bring upon us, therefore, that with which thou dost threaten us, if thou art a man of truth!"
+[who bears] around her neck a rope of twisted strands!
  <!--END_SECTION:quran-->
 
   
