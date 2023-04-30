@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 14**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 11**
 
-Invoke, then, God, sincere in your faith in Him alone, however hateful this may be to those who deny the truth!
+enveloping all mankind, [and causing the sinners to exclaim:] “Grievous is this suffering!
  <!--END_SECTION:quran-->
 
   
