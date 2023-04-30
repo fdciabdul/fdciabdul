@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 33**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 18**
 
-and has made the sun and the moon, both of them constant upon their courses, subservient [to His laws, so that they be of use] to you; and has made the night and the day subservient [to His laws, so that they be of use] to you.
+for God makes [His] messages clear unto you - and God is all-knowing, Wise!
  <!--END_SECTION:quran-->
 
   
