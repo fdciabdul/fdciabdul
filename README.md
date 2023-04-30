@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 22**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 52**
 
-and who are patient in adversity out of a longing for their Sustainer's countenance, and are constant in prayer, and spend on others, secretly and openly, out of what We provide for them as sustenance, and [who] repel evil with good. It is these that shall find their fulfilment in the hereafter:
+Are they, then, not aware that it is God who grants abundant sustenance, or gives it in scant measure, unto whomever He wills? In this, behold, there are messages indeed for peo­ple who will believe!
  <!--END_SECTION:quran-->
 
   
