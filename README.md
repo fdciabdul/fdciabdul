@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 10**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 7**
 
-O YOU who have attained to faith! Whenever believing women come unto you, forsaking the domain of evil, examine them, [although only] God is fully aware of their faith; and if you have thus ascertained that they are believers, do not send them back to the deniers of the truth, [since] they are [no longer] lawful to their erstwhile husbands, and these are [no longer] lawful to them. None the less, you shall return to them whatever they have spent [on their wives by way of dower]; and [then, O believers,] you will be committing no sin if you marry them after giving them their dowers. On the other hand, hold not to the marriage-tie with women who [continue to] deny the truth, and ask but for [the return of] whatever you have spent [by way of dower] -just as they [whose wives have gone over to you] have the right to demand [the return of] whatever they have spent. Such is God's judgment: He judges between you [in equity] - for God is all-knowing, wise.
+For, whenever Our messages are conveyed to such a one, he turns away in his arrogance as though he had not heard them - as though there were deafness in his ears. Give him, then, the tiding of grievous suffering [in the life to come].
  <!--END_SECTION:quran-->
 
   
