@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 35**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 8**
 
-And [so it happened; and] thereof, indeed, We have left a clear sign for people who use their reason.
+[And] they say, "Indeed, when we return to the City [we,] the ones most worthy of honour will surely drive out therefrom those most contemptible ones!" However, all honour belongs to God, and [thus] to His Apostle and those who believe [in God]: but of this the hypocrites are not aware.
  <!--END_SECTION:quran-->
 
   
