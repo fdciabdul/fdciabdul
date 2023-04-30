@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 19**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 6**
 
-And so, [in the course of time,] We awakened them; and they began to ask one another [as to what had happened to them]. One of them asked: "How long have you remained thus?" [The others] answered: "We have remained thus a day, or part of a day." Said they [who were endowed with deeper insight]: "Your Sustainer knows best how long you have thus remained. Let, then, one of you go with these silver coins to the town, and let him find out what food is purest there, and bring you thereof [some] provisions. But let him behave with great care and by no means make anyone aware of you:
+As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.
  <!--END_SECTION:quran-->
 
   
