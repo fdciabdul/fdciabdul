@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 36**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 11**
 
-Now whenever God and His Apostle have decided a matter, it is not for a believing man or a believing woman to claim freedom of choice insofar as they themselves are concerned: for he who [thus] rebels against God and His Apostle has already, most obviously, gone astray.
+Hast thou considered whether he is on the right way,
  <!--END_SECTION:quran-->
 
   
