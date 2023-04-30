@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 14**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 44**
 
-Nay, but their hearts are corroded by all [the evil] that they were wont to do!
+and, verily, this [revelation] shall indeed become [a source of] eminence for thee and thy people: but in time you all will be called to account [for what you have done with it].
  <!--END_SECTION:quran-->
 
   
