@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 86**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 22**
 
-[And he marched westwards] till, when he came to the setting of the sun, it appeared to him that it was setting in a dark, turbid sea; and nearby he found a people [given to every kind of wrongdoing]. We said: "O thou Two-Horned One! Thou mayest either cause [them] to suffer or treat them with kindness!"
+Your God is the One God: but because of their false pride, the hearts of those who do not believe in the life to come refuse to admit this [truth].
  <!--END_SECTION:quran-->
 
   
