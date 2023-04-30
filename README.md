@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 9**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 6**
 
-well-pleased with [the fruit of] their striving,
+O YOU who have attained to faith! Ward off from yourselves and those who are close to you that fire [of the hereafter] whose fuel is human beings and stones: [lording] over it are angelic powers awesome [and] severe, who do not disobey God in whatever He has commanded them, but [always] do what they are bidden to do.
  <!--END_SECTION:quran-->
 
   
