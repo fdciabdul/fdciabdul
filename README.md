@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 11**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 11**
 
-enveloping all mankind, [and causing the sinners to exclaim:] “Grievous is this suffering!
+wherein thou wilt hear no empty talk.
  <!--END_SECTION:quran-->
 
   
