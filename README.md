@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 15**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 24**
 
-ONLY THEY [truly] believe in Our messages who, whenever they are conveyed to them, fall down, prostrating themselves in adoration, and extol their Sustainer’s limitless glory and praise; and who are never filled with false pride;
+Woe, on that Day unto those who give the lie to the truth!
  <!--END_SECTION:quran-->
 
   
