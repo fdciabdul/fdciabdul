@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 3**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 3**
 
-The Night of Destiny is better than a thousand months:
+wherein there are ordinances of ever-true soundness and clarity.
  <!--END_SECTION:quran-->
 
   
