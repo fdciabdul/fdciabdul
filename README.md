@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 2**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 17**
 
-THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the All-Know­ing,
+Neither their worldly possessions nor their offspring will be of the least avail to them against God: it is they who are destined for the fire, therein to abide!
  <!--END_SECTION:quran-->
 
   
