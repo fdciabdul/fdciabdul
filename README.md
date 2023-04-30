@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 4**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 7**
 
-Lord of the Day of Judgment!
+And found thee lost on thy way, and guided thee?
  <!--END_SECTION:quran-->
 
   
