@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 14**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 24**
 
-But God’s is the dominion over the heavens and the earth: He forgives whomever He wills, and imposes suffering on whomever He wills - and [withal,] He is indeed much-forgiving, a dispenser of grace.
+And He it is who, in the valley of Mecca, stayed their hands from you, and your hands from them, after He had enabled you to vanquish them; and God saw indeed what you were doing.
  <!--END_SECTION:quran-->
 
   
