@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 46**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 32**
 
-For, had they been [truly] desirous of setting out [with thee], they would surely have made some preparation therefor: but God was averse to their taking the field, and so He caused them to hold back when it was said, "[You may] stay at home with all [the others] who stay at home."
+[But the great ones] said: "O Noah! Thou hast contended with us in argument, and hast [needlessly] prolonged our controversy: bring upon us, therefore, that with which thou dost threaten us, if thou art a man of truth!"
  <!--END_SECTION:quran-->
 
   
