@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 6**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 49**
 
-O YOU who have attained to faith! Ward off from yourselves and those who are close to you that fire [of the hereafter] whose fuel is human beings and stones: [lording] over it are angelic powers awesome [and] severe, who do not disobey God in whatever He has commanded them, but [always] do what they are bidden to do.
+And [thus, too,] they say, "After we will have become bones and dust, shall we, forsooth, be raised from the dead in a new act of creation?"
  <!--END_SECTION:quran-->
 
   
