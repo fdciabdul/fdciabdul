@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 196**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 12**
 
-LET IT NOT deceive thee that those who are bent on denying the truth seem to be able to do as they please on earth:
+[for] if those [to whom they have pledged themselves] are indeed driven away, they will not go forth with them; and if war is waged against them, they will not come to their succour; and even if they [try to] succour them, they will most certainly turn their backs [in flight], and in the end will [themselves] find no succour.
  <!--END_SECTION:quran-->
 
   
