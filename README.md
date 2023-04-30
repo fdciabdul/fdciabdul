@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 3**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 59**
 
-thinking that his wealth will make him live forever!
+O Prophet! Tell thy wives and thy daughters, as well as all [other] believing women, that they should draw over themselves some of their outer garments [when in public]: this will be more con­ducive to their being recognized [as decent women] and not annoyed. But [withal,] God is indeed much- forgiving, a dispenser of grace!
  <!--END_SECTION:quran-->
 
   
