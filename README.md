@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 44**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 28**
 
-Hence, warn men of the Day when this suffering may befall them, and when those who did wrong [in their lifetime] will exclaim: "O our Sustainer! Grant us respite for a short while, so that we might respond to Thy call and follow the apostles!" [But God will answer:] "Why - were you not aforetime wont to swear that no kind of resurrection and retribution awaited you?
+High has He reared its vault and formed it in accordance with what it was meant to be;
  <!--END_SECTION:quran-->
 
   
