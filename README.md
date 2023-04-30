@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 22**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 35**
 
-[And they will be told:] "Verily, all this is your reward since Your endeavour [in life] has met [God's] goodly acceptance!"
+And [so it happened; and] thereof, indeed, We have left a clear sign for people who use their reason.
  <!--END_SECTION:quran-->
 
   
