@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 18**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 2**
 
-for God makes [His] messages clear unto you - and God is all-knowing, Wise!
+an apostle from God, conveying [unto them] revelations blest with purity,
  <!--END_SECTION:quran-->
 
   
