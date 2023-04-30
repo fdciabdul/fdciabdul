@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 100**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 86**
 
-he has power only over those who are willing to follow him, and who [thus] ascribe to him a share in God's divinity.
+[And he marched westwards] till, when he came to the setting of the sun, it appeared to him that it was setting in a dark, turbid sea; and nearby he found a people [given to every kind of wrongdoing]. We said: "O thou Two-Horned One! Thou mayest either cause [them] to suffer or treat them with kindness!"
  <!--END_SECTION:quran-->
 
   
