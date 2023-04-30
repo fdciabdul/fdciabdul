@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 15**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 17**
 
-“‘[Revere thy parents;] yet should they endeavour to make thee ascribe divinity, side by side with Me, to something which thy mind cannot accept [as divine], obey them not; but [even then] bear them company in this world’s life with kindness, and follow the path of those who turn towards Me. In the end, unto Me you all must return; and thereupon I shall make you [truly] understand all that you were doing [in life].’
+so as to test them by this means: for he who shall turn away from the remembrance of his Sustainer, him will He cause to undergo suffering most grievous.
  <!--END_SECTION:quran-->
 
   
