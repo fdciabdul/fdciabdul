@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 33**
 
-Behold, it is this [kind of man] that thrusts the orphan away,
+and has made the sun and the moon, both of them constant upon their courses, subservient [to His laws, so that they be of use] to you; and has made the night and the day subservient [to His laws, so that they be of use] to you.
  <!--END_SECTION:quran-->
 
   
