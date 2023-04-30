@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 35**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 6**
 
-[for, resting in paradise] on couches, they will look on [and say to themselves]:
+he has been created out of a seminal fluid
  <!--END_SECTION:quran-->
 
   
