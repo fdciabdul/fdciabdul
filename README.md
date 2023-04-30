@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 11**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 64**
 
-Hast thou considered whether he is on the right way,
+Nay - who is it that creates [all life] in the first instance, and then brings it forth anew? And who is it that provides you with sustenance out of heaven and earth? Could there be any divine power besides God? Say: “[If you think so,] produce your evidence - if you truly believe in your claim!”
  <!--END_SECTION:quran-->
 
   
