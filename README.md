@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 1**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 5**
 
-SO THAT the Quraysh might remain secure,
+of fire fiercely burning [for all who have attained to faith]!
  <!--END_SECTION:quran-->
 
   
