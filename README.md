@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 34**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
 
-Verily, with God alone rests the knowledge of when the Last Hour will come: and He [it is who] sends down rain; and He [alone] knows what is in the wombs: whereas no one knows what he will reap tomorrow, and no one knows in what land he will die, Verily. God [alone] is all-knowing, all-aware.
+"and there is nothing that could be compared with Him.
  <!--END_SECTION:quran-->
 
   
