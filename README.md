@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 9**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 40**
 
-Or do they [think that they] own the treasures of thy Sustainer’s grace - [the grace] of the Almighty, the Giver of Gifts?
+Dost thou not know that God's is the dominion over the heavens and the earth? He chastises whom He wills, and He forgives whom He wills: for God has the power to will anything.
  <!--END_SECTION:quran-->
 
   
