@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 4**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 1**
 
-"and from the evil of all human beings bent on occult endeavours,
+NAY! I call to witness the Day of Resurrection!
  <!--END_SECTION:quran-->
 
   
