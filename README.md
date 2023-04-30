@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 17**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 21**
 
-so as to test them by this means: for he who shall turn away from the remembrance of his Sustainer, him will He cause to undergo suffering most grievous.
+and give no thought to the life to come [and to Judgment Day]!
  <!--END_SECTION:quran-->
 
   
