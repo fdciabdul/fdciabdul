@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 2**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
 
-and Mount Sinai,
+What will his wealth avail him, and all that he has gained?
  <!--END_SECTION:quran-->
 
   
