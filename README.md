@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 22**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 22**
 
-But then, [when they beset him with their enmity,] he called out to his Sustainer, “These are [indeed] people lost in sin!”
+and then, if it be His will, He shall raise him again to life,
  <!--END_SECTION:quran-->
 
   
