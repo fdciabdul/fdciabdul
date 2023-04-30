@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 6**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 6**
 
-But wouldst thou, perhaps, torment thyself to death with grief over them if they are not willing to believe in this message?
+WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],
  <!--END_SECTION:quran-->
 
   
