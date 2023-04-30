@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 76**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 10**
 
-And so, when the truth came to them from Us, they said, "Behold, this is clearly nothing but sorcery!"
+and when the mountains are scattered like dust,
  <!--END_SECTION:quran-->
 
   
