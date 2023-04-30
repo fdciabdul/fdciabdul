@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 36**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 3**
 
-AND THUS, all praise is due to God, Sustainer of the heavens and Sustainer of the earth: the Sustainer of all the worlds!
+Thy Sustainer has not forsaken thee, nor does He scorn thee:
  <!--END_SECTION:quran-->
 
   
