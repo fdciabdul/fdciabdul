@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 7**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 2**
 
-And found thee lost on thy way, and guided thee?
+He knows all that enters the earth, and all that comes out of it, as well as all that descends from the skies, and all that ascends to them. And He alone is a dispenser of grace, truly-forgiving.
  <!--END_SECTION:quran-->
 
   
