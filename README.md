@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 40**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 1**
 
-For, every one of them, did We take to task for his sin: and so, upon some of them We let loose a deadly storm wind; and some of them were overtaken by a [sudden] blast; and some of them We caused to be swallowed by the earth: and some of them We caused to drown. And it was not God who wronged them, but it was they who had wronged themselves.
+O YOU who have attained to faith! Do not take My enemies - who are your enemies as well - for your friends, showing them affection even though they are bent on denying whatever truth has come unto you, [and even though] they have driven the Apostle and yourselves away, [only] because you believe in God, your Sustainer! If [it be true that] you have gone forth [from your homes] to strive in My cause, and out of a longing for My goodly acceptance, [do not take them for your friends,] inclining towards them in secret affection: for I am fully aware of all that you may conceal as well as of all that you do openly. And any of you who does this has already strayed from the right path.
  <!--END_SECTION:quran-->
 
   
