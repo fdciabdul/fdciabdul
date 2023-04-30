@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 16**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 15**
 
-Say: “Do you, perchance, [want to] inform God of [the nature of] your faith although God knows all that is in the heavens and all that is on earth? Indeed, God has full knowledge of every­thing!”
+“‘[Revere thy parents;] yet should they endeavour to make thee ascribe divinity, side by side with Me, to something which thy mind cannot accept [as divine], obey them not; but [even then] bear them company in this world’s life with kindness, and follow the path of those who turn towards Me. In the end, unto Me you all must return; and thereupon I shall make you [truly] understand all that you were doing [in life].’
  <!--END_SECTION:quran-->
 
   
