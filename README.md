@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 98**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 5**
 
-NOW whenever thou happen to read this Qur'an, seek refuge with God from Satan, the accursed.
+and thereafter We reduce him to the lowest of low
  <!--END_SECTION:quran-->
 
   
