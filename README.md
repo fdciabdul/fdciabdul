@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 2**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 80**
 
-He it is who turned out of their homes, at the time of [their] first gathering [for war], such of the followers of earlier revelation as were bent on denying the truth. You did not think [O believers] that they would depart [without resistance] - just as they thought that their strongholds would protect them against God: but God came upon them in a manner which they had not expected, and cast terror into their hearts; [and thus] they destroyed their homes by their own hands as well as the hands of the believers. Learn a lesson, then, O you who are endowed with insight!
+And God has given you [the ability to build] your houses as places of rest, and has endowed you with [the skill to make] dwellings out of the skins of animals - easy for you to handle when you travel and when you camp -and [to make] furnishings and goods for temporary use of their [rough] wool and their soft, furry wool and their hair.
  <!--END_SECTION:quran-->
 
   
