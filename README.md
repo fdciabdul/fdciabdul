@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 23**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 62**
 
-For, if God had seen any good in them, He would certainly have made them hear: but [as it is,] even if He had made them hear, they would surely have turned away in their obstinacy.
+God grants abundant sustenance, or gives it in scant measure, to whichever He wills of His crea­tures: for, behold, God has full knowledge of every­thing.
  <!--END_SECTION:quran-->
 
   
