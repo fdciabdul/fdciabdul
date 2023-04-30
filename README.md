@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 3**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 16**
 
-[Both are equally guilty:] the adulterer couples with none other than an adulteress - that is, a woman who accords [to her own lust] a place side by side with God; and with the adulteress couples none other than an adulterer - that is, a man who accords [to his own lust] a place side by side with God: and this is forbidden unto the believers.
+If He so wills, He can do away with you and bring forth a new mankind [in your stead]:
  <!--END_SECTION:quran-->
 
   
