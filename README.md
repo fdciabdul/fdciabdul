@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 3**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
 
-that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,
+unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
  <!--END_SECTION:quran-->
 
   
