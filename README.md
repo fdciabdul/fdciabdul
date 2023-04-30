@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 22**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 34**
 
-Your God is the One God: but because of their false pride, the hearts of those who do not believe in the life to come refuse to admit this [truth].
+Verily, with God alone rests the knowledge of when the Last Hour will come: and He [it is who] sends down rain; and He [alone] knows what is in the wombs: whereas no one knows what he will reap tomorrow, and no one knows in what land he will die, Verily. God [alone] is all-knowing, all-aware.
  <!--END_SECTION:quran-->
 
   
