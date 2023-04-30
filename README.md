@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
 
-"and there is nothing that could be compared with Him.
+[who bears] around her neck a rope of twisted strands!
  <!--END_SECTION:quran-->
 
   
