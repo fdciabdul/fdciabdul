@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 6**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 5**
 
-O MAN! What is it that lures thee away from thy bountiful Sustainer,
+"who whispers in the hearts of men
  <!--END_SECTION:quran-->
 
   
