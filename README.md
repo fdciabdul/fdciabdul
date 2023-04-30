@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 34**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 38**
 
-Said she: “Verily, whenever kings enter a country they corrupt it, and turn the noblest of its people into the most abject. And this is the way they [always] behave?
+The evil of all this is odious in thy Sustainer's sight:
  <!--END_SECTION:quran-->
 
   
