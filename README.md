@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 5**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 40**
 
-"who whispers in the hearts of men
+For, every one of them, did We take to task for his sin: and so, upon some of them We let loose a deadly storm wind; and some of them were overtaken by a [sudden] blast; and some of them We caused to be swallowed by the earth: and some of them We caused to drown. And it was not God who wronged them, but it was they who had wronged themselves.
  <!--END_SECTION:quran-->
 
   
