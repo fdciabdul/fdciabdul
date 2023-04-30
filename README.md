@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 22**
 
-and, withal, deny all assistance [to their fellow-men]!
+[And they will be told:] "Verily, all this is your reward since Your endeavour [in life] has met [God's] goodly acceptance!"
  <!--END_SECTION:quran-->
 
   
