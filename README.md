@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 1**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 112**
 
-WOE unto every slanderer, fault-finder!
+AND GOD propounds [to you] a parable: [Imagine] a town which was [once] secure and at ease, with its sustenance coming to it abundantly from all quarters, and which thereupon blasphemously refused to show gratitude for God's blessings: and therefore God caused it to taste the all-embracing misery of hunger and fear in result of all [the evil] that its people had so persistently wrought.
  <!--END_SECTION:quran-->
 
   
