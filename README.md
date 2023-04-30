@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 61**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 38**
 
-And so, whenever they are told, "Come unto that which God has be­stowed from on high, and unto the Apostle," thou canst see these hypocrites turn away from thee with aversion.
+"O our Sustainer! Thou truly knowest all that we may hide [in our hearts] as well as all that we bring into the open:' for nothing whatever, be it on earth or in heaven, remains hidden from God.
  <!--END_SECTION:quran-->
 
   
