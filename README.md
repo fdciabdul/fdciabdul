@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 40**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 4**
 
-BUT WHETHER We let thee see [in thy lifetime, O Prophet, the fulfilment of] some of what We have promised them, or whether We cause thee to die [before its fulfilment] - thy duty is no more than to deliver the message; and the reckoning is Ours.
+"and from the evil of all human beings bent on occult endeavours,
  <!--END_SECTION:quran-->
 
   
