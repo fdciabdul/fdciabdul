@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 1**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 215**
 
-CONSIDER those [stars] that rise only to set,
+and spread the wings of thy tenderness over all of the believers who may follow thee;
  <!--END_SECTION:quran-->
 
   
