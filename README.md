@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 42**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 3**
 
-which spared nothing of what it came upon, but caused [all of] it to become like bones dead and decayed.
+[Both are equally guilty:] the adulterer couples with none other than an adulteress - that is, a woman who accords [to her own lust] a place side by side with God; and with the adulteress couples none other than an adulterer - that is, a man who accords [to his own lust] a place side by side with God: and this is forbidden unto the believers.
  <!--END_SECTION:quran-->
 
   
