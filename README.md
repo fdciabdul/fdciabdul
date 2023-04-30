@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 51**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 19**
 
-And Pharaoh issued a call to his people, say­ing: “O my people! Does not the dominion over Egypt belong to me, since all these running waters flow at my feet? Can you not, then, see [that I am your lord supreme]?
+And so, [in the course of time,] We awakened them; and they began to ask one another [as to what had happened to them]. One of them asked: "How long have you remained thus?" [The others] answered: "We have remained thus a day, or part of a day." Said they [who were endowed with deeper insight]: "Your Sustainer knows best how long you have thus remained. Let, then, one of you go with these silver coins to the town, and let him find out what food is purest there, and bring you thereof [some] provisions. But let him behave with great care and by no means make anyone aware of you:
  <!--END_SECTION:quran-->
 
   
