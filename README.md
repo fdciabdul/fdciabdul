@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 7**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 3**
 
-For, whenever Our messages are conveyed to such a one, he turns away in his arrogance as though he had not heard them - as though there were deafness in his ears. Give him, then, the tiding of grievous suffering [in the life to come].
+that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,
  <!--END_SECTION:quran-->
 
   
