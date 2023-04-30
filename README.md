@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 2**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 23**
 
-an apostle from God, conveying [unto them] revelations blest with purity,
+VERILY, [O believer,] it is We who have bestowed from on high this Qur’an upon thee, step by step - truly a bestowal from on high!
  <!--END_SECTION:quran-->
 
   
