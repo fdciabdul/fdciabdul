@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 51**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 5**
 
-and Thamud, leaving no trace [of them],
+Consider the vault [of heaven] raised high!
  <!--END_SECTION:quran-->
 
   
