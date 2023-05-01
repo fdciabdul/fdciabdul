@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 3**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 59**
 
-Nay, in time you will come to understand!
+And, verily, they who are bent on doing evil shall have their share [of evil] like unto the share of their fellows [of old]: so let them not ask Me to hasten [their doom]!
  <!--END_SECTION:quran-->
 
   
