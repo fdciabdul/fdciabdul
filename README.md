@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-and thou seest people enter God's religion in hosts,
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
