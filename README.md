@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 12**
 
-SAY: "I seek refuge with the Sustainer of the rising dawn,
+In gardens of bliss [will they dwell] -
  <!--END_SECTION:quran-->
 
   
