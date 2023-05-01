@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 17**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 94**
 
-God admonishes you [hereby] lest you ever revert to the like of this [sin], if you are [truly] believers;
+Hence, proclaim openly all that thou hast been bidden [to say], and leave alone all those who ascribe divinity to aught beside God:
  <!--END_SECTION:quran-->
 
   
