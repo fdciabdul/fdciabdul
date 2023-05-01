@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 19**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 44**
 
-This, verily, is a reminder: let him who wills, then set out on a way to his Sustainer!
+he who has denied the truth will have to bear [the burden of] his denial, whereas all who did what is right and just will have made goodly provision for themselves,
  <!--END_SECTION:quran-->
 
   
