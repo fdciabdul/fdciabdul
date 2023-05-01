@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 43**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 3**
 
-For [thus it is:] whenever Our messages are conveyed unto them in all their clarity, they [who are bent on denying the truth] say [to one another], “This [Muhammad] is nothing but a man who wants to turn you away from what your forefathers were wont to worship!” And they say, “This [Qur’an] is nothing but a falsehood invented [by man]!” And [finally,] they who are bent on denying the truth speak thus of the truth when it comes to them: “This is clearly nothing but spellbinding eloquence!”
+Consider the day as it reveals the world,
  <!--END_SECTION:quran-->
 
   
