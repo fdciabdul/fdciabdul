@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 5**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 15**
 
-Consider the vault [of heaven] raised high!
+for none [of them] had any fear of what might befall them.
  <!--END_SECTION:quran-->
 
   
