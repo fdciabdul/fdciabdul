@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 6**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 146**
 
-HAVE WE NOT made the earth a resting-place [for you],
+and caused a creeping plant to grow over him [out of the barren soil].
  <!--END_SECTION:quran-->
 
   
