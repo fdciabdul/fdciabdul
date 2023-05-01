@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 1**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 34**
 
-WHEN THE SUN is shrouded in darkness,
+and the morn when it dawns!
  <!--END_SECTION:quran-->
 
   
