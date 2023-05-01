@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 65**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-He is the Ever-Living; there is no deity save Him: call, then, unto Him [alone], sincere in your faith in Him. All praise is due to God, the Sustainer of all the worlds!
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
