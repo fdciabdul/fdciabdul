@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 94**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 10**
 
-Hence, proclaim openly all that thou hast been bidden [to say], and leave alone all those who ascribe divinity to aught beside God:
+and [man] will have neither strength nor helper!
  <!--END_SECTION:quran-->
 
   
