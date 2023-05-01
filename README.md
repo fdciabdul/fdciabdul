@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 4**
 
-Verily, man is bound to lose himself
+Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!
  <!--END_SECTION:quran-->
 
   
