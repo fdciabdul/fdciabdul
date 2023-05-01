@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 12**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 13**
 
-And He [it is who] decreed that they become seven heavens in two aeons, and imparted unto each heaven its function. And We adorned the skies nearest to the earth with lights, and made them secure: such is the ordaining of the Almighty, the All-Knowing.
+[Jacob] answered: "Behold, it grieves me indeed [to think] that you might take him with you, for I dread lest the wolf devour him at a moment when you are heedless of him!"
  <!--END_SECTION:quran-->
 
   
