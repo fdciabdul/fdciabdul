@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 93**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 7**
 
-But men have torn their unity wide asunder, [forgetting that] unto Us they all are bound to return.
+BEHOLD, all that you are told to expect will surely come to pass.
  <!--END_SECTION:quran-->
 
   
