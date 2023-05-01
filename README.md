@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 48**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 3**
 
-[His promise will be fulfilled] on the Day when the earth shall be changed into another earth, as shall be the heavens and when [all men] shall appear before God, the One who holds absolute sway over all that exists.
+and feels no urge to feed the needy.
  <!--END_SECTION:quran-->
 
   
