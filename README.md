@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 4**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 2**
 
-Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!
+and when the stars lose their light,
  <!--END_SECTION:quran-->
 
   
