@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 17**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 6**
 
-and then let him summon [to his aid] the counsels of his own [spurious] wisdom,
+Unto you, your moral law, and unto me, mine!"
  <!--END_SECTION:quran-->
 
   
