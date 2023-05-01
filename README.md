@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 12**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
 
-when it shall face them from afar, they will hear its angry roar and its hiss;
+together with his wife, that carrier of evil tales,
  <!--END_SECTION:quran-->
 
   
