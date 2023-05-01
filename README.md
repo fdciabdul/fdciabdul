@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 10**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 79**
 
-Have they, then, never journeyed about the earth and beheld what happened in the end to those [willful sinners] who lived before their time? God destroyed them utterly: and the like thereof awaits all who deny the truth.
+“Peace be upon Noah throughout all the worlds!”
  <!--END_SECTION:quran-->
 
   
