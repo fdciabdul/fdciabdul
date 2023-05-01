@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 12**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 1**
 
-In gardens of bliss [will they dwell] -
+O PROPHET! Why dost thou, out of a desire to please [one or another of] thy wives, impose [on thyself] a prohibition of something that God has made lawful to thee? But God is much-forgiving, a dispenser of grace:
  <!--END_SECTION:quran-->
 
   
