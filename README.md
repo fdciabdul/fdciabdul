@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 2**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 3**
 
-and when the stars lose their light,
+Nay, in time you will come to understand!
  <!--END_SECTION:quran-->
 
   
