@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 22**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 48**
 
-And you did not try to hide [your sins] lest your hearing or your sight or your skins bear witness against you: nay, but you thought that God did not know much of what you were doing –
+and defer not to [the likes and dislikes of] the deniers of the truth and the hypocrites, and disregard their hurtful talk, and place thy trust in God: for none is as worthy of trust as God.
  <!--END_SECTION:quran-->
 
   
