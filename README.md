@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 16**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 93**
 
-crystal-like, [but] of silver - the measure whereof they alone will determine.
+But men have torn their unity wide asunder, [forgetting that] unto Us they all are bound to return.
  <!--END_SECTION:quran-->
 
   
