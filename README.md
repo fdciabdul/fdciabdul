@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 15**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 77**
 
-for none [of them] had any fear of what might befall them.
+And so the two went on, till, when they came upon some village people, they asked them for food; but those [people] refused them all hospitality. And they saw in that (village] a wall which was on the point of tumbling down, and [the sage] rebuilt it [whereupon Moses] said: "Hadst thou so wished, surely thou couldst [at least] have obtained some payment for it?"
  <!--END_SECTION:quran-->
 
   
