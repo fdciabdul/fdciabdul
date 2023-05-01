@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 9**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 35**
 
-in endless columns!
+and ever nearer unto thee, and nearer!
  <!--END_SECTION:quran-->
 
   
