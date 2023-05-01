@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 7**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 1**
 
-although thou art not accountable for his failure to attain to purity;
+ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: His is all dominion, and to Him all praise is due; and He has the power to will anything.
  <!--END_SECTION:quran-->
 
   
