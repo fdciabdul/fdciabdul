@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 11**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 32**
 
-[And] behold: when the waters [of Noah's flood] burst beyond all limits, it was We who caused you to be borne [to safety] in that floating ark,
+Now they who are bent on denying the truth are wont to ask. “Why has not the Qur’an been bestowed on him from on high in one single re­velation?” [it has been revealed] in this manner so that We might strengthen thy heart thereby - for We have so arranged its component parts that they form one consistent whole -
  <!--END_SECTION:quran-->
 
   
