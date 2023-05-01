@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 19**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 30**
 
-Nay, pay thou no heed to him, but prostrate thyself [before God] and draw close [unto Him]!
+and how severe was the suffering which I inflicted when My warnings were disregarded!
  <!--END_SECTION:quran-->
 
   
