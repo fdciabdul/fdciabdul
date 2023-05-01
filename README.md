@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 36**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 25**
 
-Behold, those who are bent on denying the truth are spending their riches in order to turn others away from the path of God; and they will go on spending them until they become [a source of] intense regret for them; and then they will be overcome! And those who [until their death] have denied the truth shall be gathered unto hell,
+On that day God will pay them in full their just due, and they will come to know that God alone is the Ultimate Truth, manifest, and manifesting [the true nature of all that has ever been done].
  <!--END_SECTION:quran-->
 
   
