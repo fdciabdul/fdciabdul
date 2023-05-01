@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 21**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
 
-[And] Noah continued: "O my Sustainer! Behold, they have opposed me [throughout], for they follow people whose wealth and children lead them increasingly into ruin,
+CONSIDER the flight of time!
  <!--END_SECTION:quran-->
 
   
