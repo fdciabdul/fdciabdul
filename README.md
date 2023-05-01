@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 43**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 9**
 
-He it is who bestows His blessings upon you, with His angels [echoing Him], so that He might take you out of the depths of darkness into the light. And, indeed, a dispenser of grace is He unto the believers.
+in endless columns!
  <!--END_SECTION:quran-->
 
   
