@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 34**
 
-CONSIDER the flight of time!
+But then, [if they deem it the work of a mere mortal,] let them produce another discourse like it - if what they say be true!
  <!--END_SECTION:quran-->
 
   
