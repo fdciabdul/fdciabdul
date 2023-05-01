@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 145**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 7**
 
-Verily, the hypocrites shall be in the lowest depth of the fire, and thou wilt find none who could succour them.
+shall find himself in a happy' state of life;
  <!--END_SECTION:quran-->
 
   
