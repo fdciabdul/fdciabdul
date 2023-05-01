@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 59**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
 
-And, verily, they who are bent on doing evil shall have their share [of evil] like unto the share of their fellows [of old]: so let them not ask Me to hasten [their doom]!
+Thus, He let loose upon them great swarms of flying creatures
  <!--END_SECTION:quran-->
 
   
