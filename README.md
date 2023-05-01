@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 1**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 138**
 
-HEY WILL ASK thee about the spoils of war. Say: "All spoils of war belong to God and the Apostle." Remain, then, conscious of God, and keep alive the bonds of brotherhood among yourselves, and pay heed unto God and His Apostle, if you are [truly] believers!
+AND WE BROUGHT the children of Israel across the sea; and thereupon they came upon people who were devoted to the worship of some idols of theirs. Said [the children of Israel]: "O Moses, set up for us a god even as they have gods!" He replied: "Verily, you are people without any awareness [of right and wrong]!
  <!--END_SECTION:quran-->
 
   
