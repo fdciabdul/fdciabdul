@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 79**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 8**
 
-“Peace be upon Noah throughout all the worlds!”
+And found thee in want, and given thee sufficiency?
  <!--END_SECTION:quran-->
 
   
