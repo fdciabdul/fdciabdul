@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 78**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 8**
 
-And strive hard in God’s cause with all the striving that is due to Him: it is He who has elected you [to carry His message], and has laid no hardship on you in [anything that pertains to religion, [and made you follow] the creed of your forefather Abraham. It is He who has named you in bygone times as well as in this [divine writ] – “those who have surrendered themselves to God”, so that the Apostle might bear witness to the truth before you, and that you might bear witness to it before all mankind. Thus, be constant in prayer, and render the purifying dues, and hold fast unto God. He is your Lord Supreme: and how excellent is this Lord Supreme, and how excellent this Giver of Succour!
+As for such [of the unbelievers] as do not fight against you on account of [your] faith, and neither drive you forth from your homelands, God does not forbid you to show them kindness and to behave towards them with full equity: for, verily, God loves those who act equitably.
  <!--END_SECTION:quran-->
 
   
