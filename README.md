@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 16**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 4**
 
-[KNOW,] THEN, that if they [who have heard Our call] keep firmly to the [right] path, We shall certainly shower them with blessings abundant,
+Verily, [O Prophet,] as for those who call thee from without thy private apartments - most of them do not use their reason:
  <!--END_SECTION:quran-->
 
   
