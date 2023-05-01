@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 10**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 4**
 
-and [man] will have neither strength nor helper!
+Woe, then, unto those praying ones
  <!--END_SECTION:quran-->
 
   
