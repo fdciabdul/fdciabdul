@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 7**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 32**
 
-Verily, thy Sustainer alone is fully aware as to who has strayed from His path, Just as He alone is fully aware of those who have found the right way.
+AND PROPOUND unto them the parable of two men, upon one of whom We had bestowed two vinyards, and surrounded them with date-palms, and placed a field of grain in-between.
  <!--END_SECTION:quran-->
 
   
