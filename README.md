@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 28**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 34**
 
-"O my Sustainer! Grant Thy forgiveness unto me and unto my parents, and unto everyone who enters my house as a believer, and unto all believing men and believing women [of later times]; and grant Thou that the doers of evil shall increasingly meet with destruction!"'
+But then, [if they deem it the work of a mere mortal,] let them produce another discourse like it - if what they say be true!
  <!--END_SECTION:quran-->
 
   
