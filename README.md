@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 62**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 10**
 
-he said: "Behold, you are people unknown [here]!"
+a servant [of God] from praying?
  <!--END_SECTION:quran-->
 
   
