@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 7**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 24**
 
-If you are ingrate behold, God has no need of you; none the less, He does not approve of in­gratitude in His servants: whereas, if you show grati­tude, He approves it in you. And no bearer of burdens shall be made to bear another’s burden. In time, unto your Sustainer you all must return, and then He will make you [truly] understand all that you were doing [in life]: for, verily, He has full knowledge of what is in the hearts [of men].
+Say: “Who is it that provides for you sus­tenance out of the heavens and the earth?” Say: “It is God. And, behold, either we [who believe in Him] or you [who deny His oneness] are on the right path, or have clearly gone astray!”
  <!--END_SECTION:quran-->
 
   
