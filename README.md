@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 21**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 5**
 
-[On that Day,] verily, hell will lie in wait [for those who deny the truth] –
+It is they who follow the guidance [that comes to them] from their Sustainer; and it is they, they who shall attain to a happy state!
  <!--END_SECTION:quran-->
 
   
