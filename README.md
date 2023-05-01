@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 4**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 2**
 
-THE LIE gave [the tribes of] Thamud and ‘Ad to [all tidings of] that sudden calamity!
+and Mount Sinai,
  <!--END_SECTION:quran-->
 
   
