@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 40**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 13**
 
-Which, then, of your Sustainer’s powers can you disavow?
+and so they assert, "[Muhammad himself] has invented this [Qur'an)!" Say [unto them]: "Produce, then, ten surahs of similar merit, invented [by yourselves], and [to this end] call to your aid whomever you can, other than, God, if what you say is true!
  <!--END_SECTION:quran-->
 
   
