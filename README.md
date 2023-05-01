@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 6**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 145**
 
-VERILY, towards his Sustainer man is most ungrateful
+Verily, the hypocrites shall be in the lowest depth of the fire, and thou wilt find none who could succour them.
  <!--END_SECTION:quran-->
 
   
