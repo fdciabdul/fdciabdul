@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 56**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 48**
 
-lest any human being should say [on Judgment Day], “Alas for me for having been remiss in what is due to God, and for having been indeed one of those who scoffed [at the truth]!”
+BEAR THEN with patience thy Sustainer's will and be not like him of the great fish, who cried out [in distress] after having given in to anger.
  <!--END_SECTION:quran-->
 
   
