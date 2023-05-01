@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 4**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 11**
 
-Woe, then, unto those praying ones
+[To pay heed to God’s signs and messages:] this is [the meaning of] guidance; on the other hand, for those who are bent on denying the truth of their Sustainer’s messages there is grievous suffering in store as an outcome of [their] vileness.
  <!--END_SECTION:quran-->
 
   
