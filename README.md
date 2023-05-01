@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 10**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 32**
 
-a servant [of God] from praying?
+Said He: "O Iblis! What is thy reason for not being among those who have prostrated themselves?"
  <!--END_SECTION:quran-->
 
   
