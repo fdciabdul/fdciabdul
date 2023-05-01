@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 8**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 1**
 
-And found thee in want, and given thee sufficiency?
+HEY WILL ASK thee about the spoils of war. Say: "All spoils of war belong to God and the Apostle." Remain, then, conscious of God, and keep alive the bonds of brotherhood among yourselves, and pay heed unto God and His Apostle, if you are [truly] believers!
  <!--END_SECTION:quran-->
 
   
