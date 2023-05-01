@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 29**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 28**
 
-He it is who has created for you all that is on earth, and has applied His design to the heavens and fashioned them into seven heavens; and He alone has full knowledge of everything.
+"O my Sustainer! Grant Thy forgiveness unto me and unto my parents, and unto everyone who enters my house as a believer, and unto all believing men and believing women [of later times]; and grant Thou that the doers of evil shall increasingly meet with destruction!"'
  <!--END_SECTION:quran-->
 
   
