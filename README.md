@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 11**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 73**
 
-[To pay heed to God’s signs and messages:] this is [the meaning of] guidance; on the other hand, for those who are bent on denying the truth of their Sustainer’s messages there is grievous suffering in store as an outcome of [their] vileness.
+For it is out of His grace that He has made for you the night and the day, so that you might rest therein as well as seek to obtain [what you need] of His bounty: and [He gave you all this] so that you might have cause to be grateful.
  <!--END_SECTION:quran-->
 
   
