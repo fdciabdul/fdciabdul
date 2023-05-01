@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 3**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 13**
 
-and feels no urge to feed the needy.
+and food that chokes, and grievous suffering
  <!--END_SECTION:quran-->
 
   
