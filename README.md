@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 162**
 
-SAY: "I seek refuge with the Sustainer of the rising dawn,
+But those among them who were bent on wrongdoing substituted another saying for that which they had been given: and so We let loose against them a plague from heaven in requital of all their evil doings.
  <!--END_SECTION:quran-->
 
   
