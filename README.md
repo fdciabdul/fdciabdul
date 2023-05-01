@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 7**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
 
-However, they who are bent on denying the truth [refuse to believe and] say, "Why has no miraculous sign ever been bestowed on him from on high by his Sustainer?" [But] thou art only a warmer; and [in God] all people have a guide.
+"and from the evil of the black darkness whenever it descends,
  <!--END_SECTION:quran-->
 
   
