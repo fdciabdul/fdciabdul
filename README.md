@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 5**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 8**
 
-Today, all the good things of life have been made lawful to you. And the food of those who have been vouchsafed revelation aforetime is lawful to you, and your food is lawful to them. And [lawful to you are], in wedlock, women from among those who believe [in this divine writ], and, in wedlock, women from among those who have been vouchsafed revelation before your time -provided that you give them their dowers, taking them in honest wedlock, not in fornication, nor as secret love-companions. But as for him who rejects belief [in God] - in vain will be all his works: for in the life to come he shall be among the lost.
+Is, then, he to whom the evil of his own doings is [so] alluring that [in the end] he regards it as good [anything but a follower of Satan]? For, verily, God lets go astray him that wills [to go astray], just as He guides him that wills [to be guided]. Hence, [O believer,] do not waste thyself in sorrowing over them: verily, God has full knowledge of all that they do!
  <!--END_SECTION:quran-->
 
   
