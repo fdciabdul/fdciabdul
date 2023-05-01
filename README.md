@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 73**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 44**
 
-For it is out of His grace that He has made for you the night and the day, so that you might rest therein as well as seek to obtain [what you need] of His bounty: and [He gave you all this] so that you might have cause to be grateful.
+NOW [as for thee, O Muhammad,] thou wert not present on the sunset slope [of Mount Sinai] when We imposed the Law upon Moses, nor wert thou among those who witnessed [his times]:
  <!--END_SECTION:quran-->
 
   
