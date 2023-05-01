@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 15**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 10**
 
-and cushions ranged,
+Have they, then, never journeyed about the earth and beheld what happened in the end to those [willful sinners] who lived before their time? God destroyed them utterly: and the like thereof awaits all who deny the truth.
  <!--END_SECTION:quran-->
 
   
