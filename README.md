@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 7**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 7**
 
-BEHOLD, all that you are told to expect will surely come to pass.
+although thou art not accountable for his failure to attain to purity;
  <!--END_SECTION:quran-->
 
   
