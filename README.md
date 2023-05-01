@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 31**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 17**
 
-Art thou not aware how the ships speed through the sea by God’s favour, so that He might show you some of His wonders? Herein, behold, there are messages indeed for all who are wholly patient in adversity and deeply grate­ful [to God].
+God admonishes you [hereby] lest you ever revert to the like of this [sin], if you are [truly] believers;
  <!--END_SECTION:quran-->
 
   
