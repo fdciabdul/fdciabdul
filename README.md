@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 13**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 19**
 
-AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.
+"'And God has made the earth a wide expanse for you,
  <!--END_SECTION:quran-->
 
   
