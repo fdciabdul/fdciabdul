@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 38**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 5**
 
-And, truly, We sent forth apostles before thee, and We appointed for them wives and offspring; and it was not given to any apostle to produce a miracle save at God's behest. Every age has had its revelation:
+Today, all the good things of life have been made lawful to you. And the food of those who have been vouchsafed revelation aforetime is lawful to you, and your food is lawful to them. And [lawful to you are], in wedlock, women from among those who believe [in this divine writ], and, in wedlock, women from among those who have been vouchsafed revelation before your time -provided that you give them their dowers, taking them in honest wedlock, not in fornication, nor as secret love-companions. But as for him who rejects belief [in God] - in vain will be all his works: for in the life to come he shall be among the lost.
  <!--END_SECTION:quran-->
 
   
