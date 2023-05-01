@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 6**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 110**
 
-[This is] God’s promise. Never does God fail to fulfill His promise - but most people know [it] not:
+YOU ARE indeed the best community that has ever been brought forth for [the good of] mankind: you enjoin the doing of what is right and forbid the doing of what is wrong, and you believe in God. Now if the followers of earlier revelation had attained to [this kind of] faith, it would have been for their own good; [but only few] among them are believers, while most of them are iniquitous:
  <!--END_SECTION:quran-->
 
   
