@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 28**
 
-"from the evil of aught that He has created,
+High has He reared its vault and formed it in accordance with what it was meant to be;
  <!--END_SECTION:quran-->
 
   
