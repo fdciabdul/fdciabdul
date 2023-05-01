@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 50**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 18**
 
-and so [sudden will be their end that] no testament will they be able to make, - nor to their own people will they return!
+knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!
  <!--END_SECTION:quran-->
 
   
