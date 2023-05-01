@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 26**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 4**
 
-GOD GRANTS abundant sustenance, or gives it in scant measure, unto whomever He wills; and they [who are given abundance] rejoice in the life of this world - even though, as compared with the life to come, the life of this world is nought but -a fleeting pleasure.
+who has taught [man] the use of the pen –
  <!--END_SECTION:quran-->
 
   
