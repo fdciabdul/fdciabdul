@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 3**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 4**
 
-"the God of men,
+[It will occur] on the Day when men will be like moths swarming in confusion,
  <!--END_SECTION:quran-->
 
   
