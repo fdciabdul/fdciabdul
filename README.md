@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 21**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 16**
 
-and I fled from you because I feared you. But [since] then my Sustainer has endowed me with the ability to judge [between right and wrong], and has made me one of [His] message-­bearers.
+[KNOW,] THEN, that if they [who have heard Our call] keep firmly to the [right] path, We shall certainly shower them with blessings abundant,
  <!--END_SECTION:quran-->
 
   
