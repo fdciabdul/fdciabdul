@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 15**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 90**
 
-for none [of them] had any fear of what might befall them.
+And if one happens to be of those who have attained to righteousness,
  <!--END_SECTION:quran-->
 
   
