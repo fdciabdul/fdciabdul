@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 3**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 12**
 
-Consider the day as it reveals the world,
+when it shall face them from afar, they will hear its angry roar and its hiss;
  <!--END_SECTION:quran-->
 
   
