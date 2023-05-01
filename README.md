@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 6**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 15**
 
-Unto you, your moral law, and unto me, mine!"
+for none [of them] had any fear of what might befall them.
  <!--END_SECTION:quran-->
 
   
