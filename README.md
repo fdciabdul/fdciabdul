@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 25**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 5**
 
-On that day God will pay them in full their just due, and they will come to know that God alone is the Ultimate Truth, manifest, and manifesting [the true nature of all that has ever been done].
+Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store
  <!--END_SECTION:quran-->
 
   
