@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 4**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 47**
 
-Verily, [O Prophet,] as for those who call thee from without thy private apartments - most of them do not use their reason:
+[Hence, O men,] respond to your Sustainer before there comes, at God’s behest, a Day on which there will be no turning back: [for] on that Day you will have no place of refuge, and neither will you be able to deny aught [of the wrong that you have done].
  <!--END_SECTION:quran-->
 
   
