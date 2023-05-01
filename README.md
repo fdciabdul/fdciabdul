@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 34**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 29**
 
-But then, [if they deem it the work of a mere mortal,] let them produce another discourse like it - if what they say be true!
+He it is who has created for you all that is on earth, and has applied His design to the heavens and fashioned them into seven heavens; and He alone has full knowledge of everything.
  <!--END_SECTION:quran-->
 
   
