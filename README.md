@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 18**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 38**
 
-knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!
+And, truly, We sent forth apostles before thee, and We appointed for them wives and offspring; and it was not given to any apostle to produce a miracle save at God's behest. Every age has had its revelation:
  <!--END_SECTION:quran-->
 
   
