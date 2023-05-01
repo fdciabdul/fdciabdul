@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 40**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 6**
 
-But [remember that an attempt at] requiting evil may, too, become an evil: hence, whoever par­dons [his foe] and makes peace, his reward rests with God - for, verily, He does not love evildoers.
+those who want only to be seen and praised,
  <!--END_SECTION:quran-->
 
   
