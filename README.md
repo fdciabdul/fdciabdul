@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 76**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 7**
 
-For, when they meet those who have attained to faith. they say, "We believe [as you believe]" - but when they find themselves alone with one another, they say. "Do you inform them of what God has disclosed to you, so that they might use it in argument against you, quoting the words of your Sustainer? Will you not. then, use your reason?"
+Verily, thy Sustainer alone is fully aware as to who has strayed from His path, Just as He alone is fully aware of those who have found the right way.
  <!--END_SECTION:quran-->
 
   
