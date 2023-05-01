@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 1**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 27**
 
-Ha. Mim.
+NOW THOSE who are bent on denying the truth [of the Prophet's message] say, "Why has no miraculous sign ever been bestowed upon him from on high by his Sustainer?" Say: "Behold, God lets go astray him who wills [to go astray], just as He guides unto Himself all who turn unto Him-
  <!--END_SECTION:quran-->
 
   
