@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 4**
 
-"and from the evil of the black darkness whenever it descends,
+He it is who has created the heavens and the earth in six aeons, and is established on the throne of His almightiness. He knows all that enters the earth, and all that comes out of it, as well as all that descends from the skies, and all that ascends to them. And He is with you wherever you may be; and God sees all that you do.
  <!--END_SECTION:quran-->
 
   
