@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 8**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 12**
 
-whereas he whose weight is light in the balance
+Pay heed, then, unto God, and pay heed unto the Apostle; and if you turn away, [know that] Our Apostle's only duty is a clear delivery of this message:
  <!--END_SECTION:quran-->
 
   
