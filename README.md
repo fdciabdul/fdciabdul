@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 73**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 26**
 
-And He it is who has created the heavens and the earth in accordance with [an inner] truth - and whenever He says, "Be," His word comes true; and His will be the dominion on the Day when the trumpet [of resurrection] is blown. He knows all that is beyond the reach of a created being's perception, as well as all that can be witnessed by a creature's senses or mind: for He alone is truly wise, all-aware.
+God, save whom there is no deity - the Sustainer, in awesome almightiness enthroned!”
  <!--END_SECTION:quran-->
 
   
