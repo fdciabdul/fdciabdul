@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 147**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
 
-Hence, all who give the lie to Our messages, and [thus] to the truth of the life to come -in vain shall be all their doings: [for] are they to be rewarded for aught but what they were wont to do?
+CONSIDER the flight of time!
  <!--END_SECTION:quran-->
 
   
