@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 28**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 49**
 
-High has He reared its vault and formed it in accordance with what it was meant to be;
+Taste it - thou who [on earth] hast considered thyself so mighty, so noble!
  <!--END_SECTION:quran-->
 
   
