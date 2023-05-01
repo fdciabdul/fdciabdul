@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 45**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 50**
 
-[but] woe on that Day unto those who give the lie to the truth!
+and so [sudden will be their end that] no testament will they be able to make, - nor to their own people will they return!
  <!--END_SECTION:quran-->
 
   
