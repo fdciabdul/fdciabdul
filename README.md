@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 6**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 17**
 
-[promising] freedom from blame or [offering] a warning!
+and being, withal, of those who have attained to faith, and who enjoin upon one another patience in adversity, and enjoin upon one another compassion.
  <!--END_SECTION:quran-->
 
   
