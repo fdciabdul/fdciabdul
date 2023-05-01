@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 32**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 48**
 
-Said He: "O Iblis! What is thy reason for not being among those who have prostrated themselves?"
+[His promise will be fulfilled] on the Day when the earth shall be changed into another earth, as shall be the heavens and when [all men] shall appear before God, the One who holds absolute sway over all that exists.
  <!--END_SECTION:quran-->
 
   
