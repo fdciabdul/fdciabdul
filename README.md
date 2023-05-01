@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 8**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 46**
 
-and who give food - however great be their own want of it - unto the needy, and the orphan, and the captive,
+out of a [mere] drop of sperm as it is poured forth,
  <!--END_SECTION:quran-->
 
   
