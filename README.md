@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 36**
 
-CONSIDER the flight of time!
+Behold, those who are bent on denying the truth are spending their riches in order to turn others away from the path of God; and they will go on spending them until they become [a source of] intense regret for them; and then they will be overcome! And those who [until their death] have denied the truth shall be gathered unto hell,
  <!--END_SECTION:quran-->
 
   
