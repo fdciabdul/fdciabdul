@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 113**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 13**
 
-IT DOES NOT behove the Prophet and those who have attained to faith to pray that they who ascribed divinity to aught beside God be forgiven [by Him] even though they happened to be [their] near of kin -after it has been made clear unto them that those [dead sinners] are destined for. the blazing fire.
+AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.
  <!--END_SECTION:quran-->
 
   
