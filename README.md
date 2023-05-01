@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 27**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 15**
 
-For, if God were to grant [in this world] abundant sustenance to [all of] His servants, they would behave on earth with wanton insolence: but as it is, He bestows [His grace] from on high in due measure, as He wills: for, verily, He is fully aware of [the needs of] His creatures, and sees them all.
+and cushions ranged,
  <!--END_SECTION:quran-->
 
   
