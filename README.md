@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 30**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 6**
 
-and how severe was the suffering which I inflicted when My warnings were disregarded!
+But among men there is many a one that prefers a mere play with words [to divine guidance], so as to lead [those] without knowledge astray from the path of God, and to turn it to ridicule: for such there is shameful suffering in store.
  <!--END_SECTION:quran-->
 
   
