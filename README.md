@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 150**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 3**
 
-Hence, from wherever thou mayest come forth, turn thy face [in prayer] towards the Inviolable House of Worship; and wherever you all may be, turn your faces towards it, so that people should have no argument against you unless they are bent upon wrongdoing. And hold not them in awe, but stand in awe of Me, and [obey Me,] so that I might bestow upon you the full measure of My blessings., and that you might follow the right path.
+Nay, in time you will come to understand!
  <!--END_SECTION:quran-->
 
   
