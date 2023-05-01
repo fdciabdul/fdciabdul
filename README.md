@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 110**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 62**
 
-YOU ARE indeed the best community that has ever been brought forth for [the good of] mankind: you enjoin the doing of what is right and forbid the doing of what is wrong, and you believe in God. Now if the followers of earlier revelation had attained to [this kind of] faith, it would have been for their own good; [but only few] among them are believers, while most of them are iniquitous:
+he said: "Behold, you are people unknown [here]!"
  <!--END_SECTION:quran-->
 
   
