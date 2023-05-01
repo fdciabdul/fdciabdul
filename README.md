@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 84**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 65**
 
-Say: “Unto whom belongs the earth and all that lives there on? [Tell me this] if you happen to know [the answer]!”
+He is the Ever-Living; there is no deity save Him: call, then, unto Him [alone], sincere in your faith in Him. All praise is due to God, the Sustainer of all the worlds!
  <!--END_SECTION:quran-->
 
   
