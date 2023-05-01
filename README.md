@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 60**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 6**
 
-Hence, make ready against them whatever force and war mounts you are able to muster, so that you might deter thereby the enemies of God, who are your enemies as well, and others besides them of whom you may be unaware, [but] of whom God is aware; and whatever you may expend in God's cause shall be repaid to you in full, and you shall not be wronged.
+HAVE WE NOT made the earth a resting-place [for you],
  <!--END_SECTION:quran-->
 
   
