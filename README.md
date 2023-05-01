@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 16**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 19**
 
-tearing away his skin!
+Nay, pay thou no heed to him, but prostrate thyself [before God] and draw close [unto Him]!
  <!--END_SECTION:quran-->
 
   
