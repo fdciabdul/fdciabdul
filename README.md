@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 42**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 52**
 
-no falsehood can ever attain to it openly, and neither in a stealthy manner, [since it is] bestowed from on high by One who is truly wise, ever to be praised.
+As for those unto whom We have vouchsafed revelation aforetime - they [are bound to] believe in this one [as well];
  <!--END_SECTION:quran-->
 
   
