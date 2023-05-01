@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 90**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 16**
 
-And if one happens to be of those who have attained to righteousness,
+crystal-like, [but] of silver - the measure whereof they alone will determine.
  <!--END_SECTION:quran-->
 
   
