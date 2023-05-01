@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 4**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 27**
 
-[It will occur] on the Day when men will be like moths swarming in confusion,
+And thereupon We caused [other of] Our apostles to follow in their footsteps; and [in the course of time] We caused them to be followed by Jesus, the son of Mary, upon whom We bestowed the Gospel; and in the hearts of those who [truly] followed him We engendered compassion and mercy. But as for monastic asceticism - We did not enjoin it upon them: they invented it themselves out of a desire for God’s goodly acceptance. But then, they did not [always] observe it as it ought to have been observed: and so We granted their recompense unto such of them as had [truly] attained to faith, whereas many of them became iniquitous.
  <!--END_SECTION:quran-->
 
   
