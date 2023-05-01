@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
 
-"And I will not worship ~hat which you have [ever] worshipped,
+"God the Eternal, the Uncaused Cause of All Being.
  <!--END_SECTION:quran-->
 
   
