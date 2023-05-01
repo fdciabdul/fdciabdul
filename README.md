@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 46**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 11**
 
-out of a [mere] drop of sperm as it is poured forth,
+those who give the lie to the [coming of] Judgment Day:
  <!--END_SECTION:quran-->
 
   
