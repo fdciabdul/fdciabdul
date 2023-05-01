@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 17**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 19**
 
-and being, withal, of those who have attained to faith, and who enjoin upon one another patience in adversity, and enjoin upon one another compassion.
+This, verily, is a reminder: let him who wills, then set out on a way to his Sustainer!
  <!--END_SECTION:quran-->
 
   
