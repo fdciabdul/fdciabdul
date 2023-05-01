@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 3**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 4**
 
-Nay, in time you will come to understand!
+Do they not know that they are bound to be raised from the dead
  <!--END_SECTION:quran-->
 
   
