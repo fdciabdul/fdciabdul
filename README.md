@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 32**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 17**
 
-Now they who are bent on denying the truth are wont to ask. “Why has not the Qur’an been bestowed on him from on high in one single re­velation?” [it has been revealed] in this manner so that We might strengthen thy heart thereby - for We have so arranged its component parts that they form one consistent whole -
+and then let him summon [to his aid] the counsels of his own [spurious] wisdom,
  <!--END_SECTION:quran-->
 
   
