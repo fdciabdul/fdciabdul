@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 13**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 7**
 
-and so they assert, "[Muhammad himself] has invented this [Qur'an)!" Say [unto them]: "Produce, then, ten surahs of similar merit, invented [by yourselves], and [to this end] call to your aid whomever you can, other than, God, if what you say is true!
+If you are ingrate behold, God has no need of you; none the less, He does not approve of in­gratitude in His servants: whereas, if you show grati­tude, He approves it in you. And no bearer of burdens shall be made to bear another’s burden. In time, unto your Sustainer you all must return, and then He will make you [truly] understand all that you were doing [in life]: for, verily, He has full knowledge of what is in the hearts [of men].
  <!--END_SECTION:quran-->
 
   
