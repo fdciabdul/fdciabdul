@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 44**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 3**
 
-with downcast eyes, with ignominy overwhelming them: that Day which they were promised again and…
+The Night of Destiny is better than a thousand months:
  <!--END_SECTION:quran-->
 
   
