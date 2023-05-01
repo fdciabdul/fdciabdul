@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 146**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 12**
 
-and caused a creeping plant to grow over him [out of the barren soil].
+And He [it is who] decreed that they become seven heavens in two aeons, and imparted unto each heaven its function. And We adorned the skies nearest to the earth with lights, and made them secure: such is the ordaining of the Almighty, the All-Knowing.
  <!--END_SECTION:quran-->
 
   
