@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 113**
 
-Thus, He let loose upon them great swarms of flying creatures
+IT DOES NOT behove the Prophet and those who have attained to faith to pray that they who ascribed divinity to aught beside God be forgiven [by Him] even though they happened to be [their] near of kin -after it has been made clear unto them that those [dead sinners] are destined for. the blazing fire.
  <!--END_SECTION:quran-->
 
   
