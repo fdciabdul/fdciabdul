@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 4**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 37**
 
-He it is who has created the heavens and the earth in six aeons, and is established on the throne of His almightiness. He knows all that enters the earth, and all that comes out of it, as well as all that descends from the skies, and all that ascends to them. And He is with you wherever you may be; and God sees all that you do.
+For, unto him who shall have transgressed the bounds of what is right,
  <!--END_SECTION:quran-->
 
   
