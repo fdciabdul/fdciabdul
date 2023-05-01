@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 6**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 56**
 
-those who want only to be seen and praised,
+lest any human being should say [on Judgment Day], “Alas for me for having been remiss in what is due to God, and for having been indeed one of those who scoffed [at the truth]!”
  <!--END_SECTION:quran-->
 
   
