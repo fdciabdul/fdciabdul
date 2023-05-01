@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 13**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 76**
 
-[Jacob] answered: "Behold, it grieves me indeed [to think] that you might take him with you, for I dread lest the wolf devour him at a moment when you are heedless of him!"
+For, when they meet those who have attained to faith. they say, "We believe [as you believe]" - but when they find themselves alone with one another, they say. "Do you inform them of what God has disclosed to you, so that they might use it in argument against you, quoting the words of your Sustainer? Will you not. then, use your reason?"
  <!--END_SECTION:quran-->
 
   
