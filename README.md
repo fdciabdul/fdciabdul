@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 131**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 21**
 
-and beware of the fire which awaits those who deny the truth!
+and I fled from you because I feared you. But [since] then my Sustainer has endowed me with the ability to judge [between right and wrong], and has made me one of [His] message-­bearers.
  <!--END_SECTION:quran-->
 
   
