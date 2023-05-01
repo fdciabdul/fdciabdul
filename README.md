@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 3**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
 
-The Night of Destiny is better than a thousand months:
+SAY: "I seek refuge with the Sustainer of the rising dawn,
  <!--END_SECTION:quran-->
 
   
