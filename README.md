@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 5**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
 
-It is they who follow the guidance [that comes to them] from their Sustainer; and it is they, they who shall attain to a happy state!
+"And I will not worship ~hat which you have [ever] worshipped,
  <!--END_SECTION:quran-->
 
   
