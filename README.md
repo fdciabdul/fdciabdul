@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 8**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 22**
 
-And why should you not believe in God, seeing that the Apostle calls you to believe in [Him who is] your Sustainer, and [seeing that] He has taken a pledge from you? [Why should you not believe in Him] if you are able to believe [in anything]?
+And you did not try to hide [your sins] lest your hearing or your sight or your skins bear witness against you: nay, but you thought that God did not know much of what you were doing –
  <!--END_SECTION:quran-->
 
   
