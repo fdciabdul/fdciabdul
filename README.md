@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 2**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 7**
 
-and Mount Sinai,
+However, they who are bent on denying the truth [refuse to believe and] say, "Why has no miraculous sign ever been bestowed on him from on high by his Sustainer?" [But] thou art only a warmer; and [in God] all people have a guide.
  <!--END_SECTION:quran-->
 
   
