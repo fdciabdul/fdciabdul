@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 6**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 8**
 
-But among men there is many a one that prefers a mere play with words [to divine guidance], so as to lead [those] without knowledge astray from the path of God, and to turn it to ridicule: for such there is shameful suffering in store.
+and who give food - however great be their own want of it - unto the needy, and the orphan, and the captive,
  <!--END_SECTION:quran-->
 
   
