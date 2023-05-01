@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 7**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 29**
 
-shall find himself in a happy' state of life;
+and neither sky nor earth shed tears over them, nor were they allowed a respite.
  <!--END_SECTION:quran-->
 
   
