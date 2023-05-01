@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 29**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-and neither sky nor earth shed tears over them, nor were they allowed a respite.
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
