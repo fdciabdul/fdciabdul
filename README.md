@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 49**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 43**
 
-Taste it - thou who [on earth] hast considered thyself so mighty, so noble!
+He it is who bestows His blessings upon you, with His angels [echoing Him], so that He might take you out of the depths of darkness into the light. And, indeed, a dispenser of grace is He unto the believers.
  <!--END_SECTION:quran-->
 
   
