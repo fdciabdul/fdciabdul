@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 4**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 35**
 
-Do they not know that they are bound to be raised from the dead
+These it is who in the gardens [of paradise] shall be honoured!
  <!--END_SECTION:quran-->
 
   
