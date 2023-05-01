@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 6**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 1**
 
-and the earth and all its expanse!
+Ha. Mim.
  <!--END_SECTION:quran-->
 
   
