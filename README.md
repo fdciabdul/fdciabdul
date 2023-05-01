@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 3**
 
-and thou seest people enter God's religion in hosts,
+"the God of men,
  <!--END_SECTION:quran-->
 
   
