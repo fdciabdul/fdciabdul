@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 162**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 38**
 
-But those among them who were bent on wrongdoing substituted another saying for that which they had been given: and so We let loose against them a plague from heaven in requital of all their evil doings.
+And though some be too proud [to listen to this call], they who [in their hearts] are with thy Sustainer extol His limitless glory by night and by day, and never grow weary [thereof].
  <!--END_SECTION:quran-->
 
   
