@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 76**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 6**
 
-Said [Moses]: "If, after this, I should ever question thee, keep me not in thy company: [for by] now thou hast heard enough excuses from me."
+[This is] God’s promise. Never does God fail to fulfill His promise - but most people know [it] not:
  <!--END_SECTION:quran-->
 
   
