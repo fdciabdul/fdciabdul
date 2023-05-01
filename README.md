@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 138**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 1**
 
-AND WE BROUGHT the children of Israel across the sea; and thereupon they came upon people who were devoted to the worship of some idols of theirs. Said [the children of Israel]: "O Moses, set up for us a god even as they have gods!" He replied: "Verily, you are people without any awareness [of right and wrong]!
+WHEN THE SUN is shrouded in darkness,
  <!--END_SECTION:quran-->
 
   
