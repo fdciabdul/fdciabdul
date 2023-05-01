@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 38**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 6**
 
-And, truly, We sent forth apostles before thee, and We appointed for them wives and offspring; and it was not given to any apostle to produce a miracle save at God's behest. Every age has had its revelation:
+and the earth and all its expanse!
  <!--END_SECTION:quran-->
 
   
