@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 77**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 40**
 
-And so the two went on, till, when they came upon some village people, they asked them for food; but those [people] refused them all hospitality. And they saw in that (village] a wall which was on the point of tumbling down, and [the sage] rebuilt it [whereupon Moses] said: "Hadst thou so wished, surely thou couldst [at least] have obtained some payment for it?"
+Which, then, of your Sustainer’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
