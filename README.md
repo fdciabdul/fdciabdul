@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 52**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 84**
 
-As for those unto whom We have vouchsafed revelation aforetime - they [are bound to] believe in this one [as well];
+Say: “Unto whom belongs the earth and all that lives there on? [Tell me this] if you happen to know [the answer]!”
  <!--END_SECTION:quran-->
 
   
