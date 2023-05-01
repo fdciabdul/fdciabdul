@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 4**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 10**
 
-who has taught [man] the use of the pen –
+and him that seeks [thy] help shalt thou never chide,
  <!--END_SECTION:quran-->
 
   
