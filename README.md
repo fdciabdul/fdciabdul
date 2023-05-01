@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 44**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
 
-he who has denied the truth will have to bear [the burden of] his denial, whereas all who did what is right and just will have made goodly provision for themselves,
+"from the evil of aught that He has created,
  <!--END_SECTION:quran-->
 
   
