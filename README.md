@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 21**
 
-"God the Eternal, the Uncaused Cause of All Being.
+[And] Noah continued: "O my Sustainer! Behold, they have opposed me [throughout], for they follow people whose wealth and children lead them increasingly into ruin,
  <!--END_SECTION:quran-->
 
   
