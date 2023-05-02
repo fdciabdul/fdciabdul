@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 4**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 109**
 
-Such is God's bounty: He grants it to anyone who is willing [to receive it]: for God is limitless in His great bounty.
+Oh, you might well argue in their behalf in the life of this world: but who will argue in their behalf with God on the Day of Resurrection, or who will be their defender?
  <!--END_SECTION:quran-->
 
   
