@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 51**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 2**
 
-Which, then, of your Sustainer’s powers can you disavow?
+and the moon as it reflects the sun!
  <!--END_SECTION:quran-->
 
   
