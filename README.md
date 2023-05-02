@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 42**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 5**
 
-they, too, gave the lie to all Our messages: and thereupon We took them to task as only the Almighty, who determines all things, can take to task.
+and thereupon causes it to decay into rust-brown stubble!
  <!--END_SECTION:quran-->
 
   
