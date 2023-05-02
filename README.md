@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 31**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-and waters gushing,
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
