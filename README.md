@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 41**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 2**
 
-Now surely, unto Pharaoh’s folk [too] came such warnings;
+Did He not utterly confound their artful planning?
  <!--END_SECTION:quran-->
 
   
