@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 3**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 5**
 
-Thy Sustainer has not forsaken thee, nor does He scorn thee:
+and so they say, [as it were:] “Our hearts are veiled from whatever thou callest us to, [O Muhammad,] and in our ears is deafness, and between us and thee is a barrier. Do, then, [whatever thou wilt, whereas,] behold, we shall do [as we have always done]!”
  <!--END_SECTION:quran-->
 
   
