@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 35**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 3**
 
-And in the course of time We brought out [of Lot ’s city] such [few] believers as were there:
+that had weighed so heavily on thy back?
  <!--END_SECTION:quran-->
 
   
