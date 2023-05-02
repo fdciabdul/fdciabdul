@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 7**
 
-extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
+and to this, behold, he [himself] bears witness indeed:
  <!--END_SECTION:quran-->
 
   
