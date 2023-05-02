@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 10**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 39**
 
-and [man] will have neither strength nor helper!
+“O my people! This worldly life is but a brief enjoyment, whereas, behold, the life to come is the home abiding.
  <!--END_SECTION:quran-->
 
   
