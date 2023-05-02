@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 66**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 5**
 
-seeing that it is He who gave you life, and then will cause you to die, and then will bring you back to life: [but,] verily, bereft of all gratitude is man!
+for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
