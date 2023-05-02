@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 76**
 
-SAY: "I seek refuge with the Sustainer of men,
+And [since they see that they cannot persuade thee,] they endeavour to estrange thee from the land [of thy birth] with a view to driving thee away from, it-but, then, after thou wilt have left, they themselves will not remain [in it] for more than a little while:
  <!--END_SECTION:quran-->
 
   
