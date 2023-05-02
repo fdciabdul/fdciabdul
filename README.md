@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 24**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 66**
 
-And His are the lofty ships that sail like [floating] mountains through the seas.
+For the time being, [however,] God has lightened your burden. for He knows that you are weak: and so, if there be one hundred of you who are patient in adversity, they should [be able to]' overcome two hundred; and if there be one thousand of you, they should [be able to] overcome two thousand by God's leave: for God is with those who are patient in adversity.
  <!--END_SECTION:quran-->
 
   
