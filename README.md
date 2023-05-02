@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 10**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 4**
 
-Said the apostles sent unto them: "Can there be any doubt about [the existence and oneness of] God, the Originator of the heavens and the earth? It is He who calls unto you, so that He may forgive you [whatever is past] of your sins and grant you respite until a term [set by Him is fulfilled]." [But] they replied: "You are nothing but mortal men like ourselves! You want to turn us away from what our forefathers were wont to worship: well, then, bring us a clear proof [of your being God's message-bearers]!"
+who has taught [man] the use of the pen –
  <!--END_SECTION:quran-->
 
   
