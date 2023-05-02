@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 72**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 38**
 
-And so, by Our grace, We saved him and those who stood by him, the while We wiped out the last remnant of those who gave the lie to Our messages and would not believe.
+and thereafter became a germ-cell - whereupon He created and formed [it] in accordance with what [it] was meant to be,
  <!--END_SECTION:quran-->
 
   
