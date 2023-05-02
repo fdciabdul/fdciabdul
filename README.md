@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 7**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 42**
 
-whereas such as seek to go beyond that [limit] are truly transgressors;
+and neither is it - however little you may [be prepared to] take it to heart - the word of a soothsayer:
  <!--END_SECTION:quran-->
 
   
