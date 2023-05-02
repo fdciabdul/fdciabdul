@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 1**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
 
-OH, the sudden calamity!
+Thus, He let loose upon them great swarms of flying creatures
  <!--END_SECTION:quran-->
 
   
