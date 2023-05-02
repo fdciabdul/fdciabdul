@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 9**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 35**
 
-[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!
+and they would add, “Richer [than you] are we in wealth and in children, and [so] we are not going to be made to suffer!”
  <!--END_SECTION:quran-->
 
   
