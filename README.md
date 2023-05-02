@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 4**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 3**
 
-to the end that He may reward those who believe and do right­eous deeds: [for] it is they whom forgiveness of sins awaits, and a most excellent sustenance
+Thy Sustainer has not forsaken thee, nor does He scorn thee:
  <!--END_SECTION:quran-->
 
   
