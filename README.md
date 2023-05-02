@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 8**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 6**
 
-VERILY, [O Muhammad,] We have sent thee as a witness [to the truth], and as a herald of glad tidings and a warner –
+He has created you [all] out of one living entity, and out of it fashioned its mate; and he has be­stowed upon you four kinds of cattle of either sex; [and] He creates you in your mothers’ wombs, one act of creation after another, in threefold depths of darkness. Thus is God, your Sustainer: unto Him belongs all dominion: there is no deity save Him: how, then, can you lose sight of the truth?
  <!--END_SECTION:quran-->
 
   
