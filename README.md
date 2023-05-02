@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 75**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 6**
 
-And among them are such as vow unto God, "If indeed He grant us [something] out of His bounty, we shall most certainly spend in charity, and shall most certainly be among the righteous!"
+VERILY, towards his Sustainer man is most ungrateful
  <!--END_SECTION:quran-->
 
   
