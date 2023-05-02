@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 5**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 8**
 
-for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.
+and unto thy Sustainer turn with love.
  <!--END_SECTION:quran-->
 
   
