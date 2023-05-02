@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 3**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 83**
 
-that had weighed so heavily on thy back?
+But none save a few of his people declared their faith in Moses, [while others held back] for fear of Pharaoh and their great ones, lest they persecute them: for, verily, Pharaoh was mighty on earth and was, verily, of those who are given to excesses.
  <!--END_SECTION:quran-->
 
   
