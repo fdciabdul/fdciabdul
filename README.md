@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 2**
 
-ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
+for, behold, it is We who have bestowed this revela­tion upon thee from on high, setting forth the truth: so worship Him, sincere in thy faith in Him alone!
  <!--END_SECTION:quran-->
 
   
