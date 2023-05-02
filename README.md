@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 41**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 35**
 
-Hell will be their resting-place and their covering as well: for thus do We requite the evildoers.
+AND SO, [when you fight in a just cause,] do not lose heart and [never] beg for peace: for, seeing that God is with you, you are bound to rise high [in the end]; and never will He let your [good] deeds go to waste.
  <!--END_SECTION:quran-->
 
   
