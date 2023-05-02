@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 35**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 33**
 
-AND SO, [when you fight in a just cause,] do not lose heart and [never] beg for peace: for, seeing that God is with you, you are bound to rise high [in the end]; and never will He let your [good] deeds go to waste.
+[all this] as a means of livelihood for you and your animals.
  <!--END_SECTION:quran-->
 
   
