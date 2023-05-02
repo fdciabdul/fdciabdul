@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 59**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 17**
 
-Do you, perchance, find this tiding strange?
+and the night, and what it [step by step] unfolds,
  <!--END_SECTION:quran-->
 
   
