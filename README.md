@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 6**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 2**
 
-And then, he whose weight [of good deeds] is heavy in the balance
+As for those of you who [henceforth] separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, [let them bear in mind that] they can never be [as] their mothers: none are their mothers save those who gave them birth: and so, behold, they but utter a saying that runs counter to reason, and is [therefore] false. But, behold, God is indeed an absolver of sins, much-forgiving:
  <!--END_SECTION:quran-->
 
   
