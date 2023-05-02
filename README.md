@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 5**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 92**
 
-Whatever [of their] palm trees you may have cut down, [O believers,] or left standing on their roots, was [done] by God’s leave, and in order that He might confound the iniquitous.
+VERILY, [O you who believe in Me,] this community of yours is one single community, since I am the Sustainer of you all: worship, then, Me [alone]!
  <!--END_SECTION:quran-->
 
   
