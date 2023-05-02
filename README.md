@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 13**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 46**
 
-and food that chokes, and grievous suffering
+Said [Salih to the erring ones]: Why do you seek to hasten the coming upon you of evil instead of hoping for the good?” Why do you not, rather, ask God to forgive you your sins, so that you might be graced with His mercy?”
  <!--END_SECTION:quran-->
 
   
