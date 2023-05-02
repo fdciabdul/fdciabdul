@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 1**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 35**
 
-In the name of God, The Most Gracious, The Dispenser of Grace:
+And in the course of time We brought out [of Lot ’s city] such [few] believers as were there:
  <!--END_SECTION:quran-->
 
   
