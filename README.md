@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 13**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 10**
 
-Nay, [O believers,] you arouse in their bosoms a fear more intense than [even their fear of] God: this, because they are people who fail to grasp the truth.
+Said the apostles sent unto them: "Can there be any doubt about [the existence and oneness of] God, the Originator of the heavens and the earth? It is He who calls unto you, so that He may forgive you [whatever is past] of your sins and grant you respite until a term [set by Him is fulfilled]." [But] they replied: "You are nothing but mortal men like ourselves! You want to turn us away from what our forefathers were wont to worship: well, then, bring us a clear proof [of your being God's message-bearers]!"
  <!--END_SECTION:quran-->
 
   
