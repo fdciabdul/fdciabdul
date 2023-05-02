@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 2**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 2**
 
-and the moon as it reflects the sun!
+O you who have attained to faith! Do not raise your voices above the voice of the Prophet, and neither speak loudly to him, as you would speak loudly to one another, lest all your [good] deeds come to nought without your perceiving it.
  <!--END_SECTION:quran-->
 
   
