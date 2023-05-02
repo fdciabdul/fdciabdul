@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 101**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 9**
 
-And how could you deny the truth when it is unto you that God's messages are being conveyed, and it is in your midst that His Apostle lives? But he who holds fast unto God has already been guided onto a straight way.
+[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!
  <!--END_SECTION:quran-->
 
   
