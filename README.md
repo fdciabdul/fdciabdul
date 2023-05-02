@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 35**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 66**
 
-And having [thus] sinned against himself, he entered his garden, saying, "I do not think that this will ever perish!
+seeing that it is He who gave you life, and then will cause you to die, and then will bring you back to life: [but,] verily, bereft of all gratitude is man!
  <!--END_SECTION:quran-->
 
   
