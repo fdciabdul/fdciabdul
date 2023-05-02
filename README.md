@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 59**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 54**
 
-barring Lot's household, all of whom, behold, we shall save -
+“Today, then, no human being shall be wronged in the least, nor shalt you be requited for aught but what you were doing [on earth].
  <!--END_SECTION:quran-->
 
   
