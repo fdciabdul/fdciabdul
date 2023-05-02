@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 2**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 94**
 
-Did He not utterly confound their artful planning?
+And do not use your oaths as a means of deceiving one another-or else [your] foot will slip after having been firm, and then you will have to taste the evil [consequences] of your having turned away from the path of God, with tremendous suffering awaiting you [in the life to come].
  <!--END_SECTION:quran-->
 
   
