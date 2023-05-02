@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 13**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 41**
 
-In that [garden] they will on couches recline, and will know therein neither [burning] sun nor cold severe,
+Now surely, unto Pharaoh’s folk [too] came such warnings;
  <!--END_SECTION:quran-->
 
   
