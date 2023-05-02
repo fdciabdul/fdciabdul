@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 17**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 9**
 
-[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,
+Therefore, the orphan shalt thou never wrong,
  <!--END_SECTION:quran-->
 
   
