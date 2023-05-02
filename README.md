@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 43**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 17**
 
-Verily, it is We who grant life and deal death; and with Us will be all journeys’ end
+And We shall let them be followed by those of later times:
  <!--END_SECTION:quran-->
 
   
