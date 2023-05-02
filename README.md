@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 8**
 
-BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
+Have We not given him two eyes,
  <!--END_SECTION:quran-->
 
   
