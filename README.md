@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 48**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
 
-and obvious to them will have become the evil that they had wrought [in life]: and thus shall they be overwhelmed by the very truth which they were wont to deride.
+CONSIDER the flight of time!
  <!--END_SECTION:quran-->
 
   
