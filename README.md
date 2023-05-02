@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 7**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 26**
 
-[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.
+GOD GRANTS abundant sustenance, or gives it in scant measure, unto whomever He wills; and they [who are given abundance] rejoice in the life of this world - even though, as compared with the life to come, the life of this world is nought but -a fleeting pleasure.
  <!--END_SECTION:quran-->
 
   
