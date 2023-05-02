@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 33**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 17**
 
-[all this] as a means of livelihood for you and your animals.
+and the night as it darkly falls,
  <!--END_SECTION:quran-->
 
   
