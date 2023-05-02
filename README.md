@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 102**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 4**
 
-Say: "Holy inspiration has brought it down from thy Sustainer by stages, setting forth the truth, so that it might give firmness unto those who have attained to faith, and provide guidance and a glad tiding unto all who have surrendered themselves to God."
+Such is God's bounty: He grants it to anyone who is willing [to receive it]: for God is limitless in His great bounty.
  <!--END_SECTION:quran-->
 
   
