@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 94**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 159**
 
-And do not use your oaths as a means of deceiving one another-or else [your] foot will slip after having been firm, and then you will have to taste the evil [consequences] of your having turned away from the path of God, with tremendous suffering awaiting you [in the life to come].
+limitless is God in His glory, above anything that men may devise by way of definition!
  <!--END_SECTION:quran-->
 
   
