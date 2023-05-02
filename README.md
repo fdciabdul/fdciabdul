@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 5**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 28**
 
-and thereupon causes it to decay into rust-brown stubble!
+O PROPHET! Say unto thy wives: “If you desire [but] the life of this world and its charms - well, then, I shall provide for you and release you in a becoming manner;
  <!--END_SECTION:quran-->
 
   
