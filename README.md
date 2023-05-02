@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 89**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 69**
 
-We should be guilty of blaspheming against God were we to return to your ways after God has saved us from them! It is not conceivable that we should return to them-unless God, our Sustainer, so wills. All things does our Sustainer embrace within His knowledge; in God do we place our trust. O our Sustainer! Lay Thou open the truth between us and our people -for Thou art the best of all to lay open the truth!”
+Is it you who cause it to come down from the clouds - or are We the cause of its coming down?
  <!--END_SECTION:quran-->
 
   
