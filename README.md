@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 17**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
 
-And We shall let them be followed by those of later times:
+together with his wife, that carrier of evil tales,
  <!--END_SECTION:quran-->
 
   
