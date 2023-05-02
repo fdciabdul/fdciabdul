@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 19**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 6**
 
-and be not like those who are oblivious of God, and whom He therefore causes to be oblivious of [what is good for] their own selves: [for] it is they, they who are truly depraved!
+And then, he whose weight [of good deeds] is heavy in the balance
  <!--END_SECTION:quran-->
 
   
