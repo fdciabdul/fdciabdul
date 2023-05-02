@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 59**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 104**
 
-[But God will reply:] “Yea, indeed! My mes­sages did come unto thee; but thou gavest them the lie, and wert filled with false pride, and wert among those who deny the truth!”
+And be not faint of heart when you seek out the [enemy] host. If you happen to suffer pain, behold, they suffer pain even as you suffer it: but you are hoping [to receive] from God what they cannot hope for. And God is indeed all-knowing, wise.
  <!--END_SECTION:quran-->
 
   
