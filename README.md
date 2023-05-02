@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 5**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 4**
 
-Does he, then, think that no one has power over him?
+IT IS GOD who has created the heavens and the earth and all that is between them in six aeons, and is established on the throne of His almightiness. You have none to protect you from God, and none to intercede for you [on Judgment Day]: will you not, then, bethink yourselves?
  <!--END_SECTION:quran-->
 
   
