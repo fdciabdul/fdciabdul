@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 4**
 
-and thou seest people enter God's religion in hosts,
+Unto God you all must return: and He has the power to will anything."
  <!--END_SECTION:quran-->
 
   
