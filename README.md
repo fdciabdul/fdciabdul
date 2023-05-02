@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 41**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 1**
 
-Grant Thy forgiveness unto me, and my parents, and all the believers, on the Day on which the [last] reckoning will come to pass!"
+WOE unto every slanderer, fault-finder!
  <!--END_SECTION:quran-->
 
   
