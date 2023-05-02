@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 9**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 90**
 
-Therefore, the orphan shalt thou never wrong,
+But they who shall come with evil deeds – their faces will be thrust into the fire, [and they will be asked:] “Is this aught but a just requital for what you were doing [in life]?”
  <!--END_SECTION:quran-->
 
   
