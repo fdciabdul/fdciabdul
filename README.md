@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 1**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 41**
 
-WOE unto every slanderer, fault-finder!
+Hell will be their resting-place and their covering as well: for thus do We requite the evildoers.
  <!--END_SECTION:quran-->
 
   
