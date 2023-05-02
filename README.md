@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 59**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 10**
 
-For, with Him are the keys to the things that are beyond the reach of a created being's perception: none knows them but He. And He knows all that is on land and in the sea; and not a leaf falls but He knows it; and neither is there a grain in the earth's deep darkness, nor anything: living or dead, but is recorded in [His] clear decree.
+Have they, then, never journeyed about the earth and beheld what happened in the end to those [willful sinners] who lived before their time? God destroyed them utterly: and the like thereof awaits all who deny the truth.
  <!--END_SECTION:quran-->
 
   
