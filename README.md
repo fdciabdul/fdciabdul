@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 17**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 59**
 
-and the night as it darkly falls,
+barring Lot's household, all of whom, behold, we shall save -
  <!--END_SECTION:quran-->
 
   
