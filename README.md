@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 8**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 13**
 
-but as for him who came unto thee full of eagerness
+Nay, [O believers,] you arouse in their bosoms a fear more intense than [even their fear of] God: this, because they are people who fail to grasp the truth.
  <!--END_SECTION:quran-->
 
   
