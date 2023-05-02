@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 66**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 57**
 
-For the time being, [however,] God has lightened your burden. for He knows that you are weak: and so, if there be one hundred of you who are patient in adversity, they should [be able to]' overcome two hundred; and if there be one thousand of you, they should [be able to] overcome two thousand by God's leave: for God is with those who are patient in adversity.
+[But withal,] no sustenance do I ever demand of them, nor do I demand that they feed Me:
  <!--END_SECTION:quran-->
 
   
