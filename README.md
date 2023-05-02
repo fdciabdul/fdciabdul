@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 42**
 
-Thus, He let loose upon them great swarms of flying creatures
+they, too, gave the lie to all Our messages: and thereupon We took them to task as only the Almighty, who determines all things, can take to task.
  <!--END_SECTION:quran-->
 
   
