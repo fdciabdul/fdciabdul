@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 28**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 98**
 
-O PROPHET! Say unto thy wives: “If you desire [but] the life of this world and its charms - well, then, I shall provide for you and release you in a becoming manner;
+Such will be their requital for having rejected Our messages and having said, "After we will have become bones and dust, shall we, forsooth, be raised from the dead in a new act of creation?"
  <!--END_SECTION:quran-->
 
   
