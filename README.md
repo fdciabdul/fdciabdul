@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 39**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 13**
 
-“O my people! This worldly life is but a brief enjoyment, whereas, behold, the life to come is the home abiding.
+Behold, [in the life to come] the truly virtuous: will indeed be in bliss,
  <!--END_SECTION:quran-->
 
   
