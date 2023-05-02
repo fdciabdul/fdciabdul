@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 109**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 35**
 
-Oh, you might well argue in their behalf in the life of this world: but who will argue in their behalf with God on the Day of Resurrection, or who will be their defender?
+And having [thus] sinned against himself, he entered his garden, saying, "I do not think that this will ever perish!
  <!--END_SECTION:quran-->
 
   
