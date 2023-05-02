@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 69**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
 
-Is it you who cause it to come down from the clouds - or are We the cause of its coming down?
+extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
  <!--END_SECTION:quran-->
 
   
