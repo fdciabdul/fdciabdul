@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 4**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-Nay, but in time they will come to understand [it]!
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
