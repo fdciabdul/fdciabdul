@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 19**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 8**
 
-This, verily, is a reminder: let him who wills, then set out on a way to his Sustainer!
+VERILY, [O Muhammad,] We have sent thee as a witness [to the truth], and as a herald of glad tidings and a warner –
  <!--END_SECTION:quran-->
 
   
