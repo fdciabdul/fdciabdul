@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 159**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
 
-limitless is God in His glory, above anything that men may devise by way of definition!
+BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
  <!--END_SECTION:quran-->
 
   
