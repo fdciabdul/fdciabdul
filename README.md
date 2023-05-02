@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 83**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 101**
 
-But none save a few of his people declared their faith in Moses, [while others held back] for fear of Pharaoh and their great ones, lest they persecute them: for, verily, Pharaoh was mighty on earth and was, verily, of those who are given to excesses.
+And how could you deny the truth when it is unto you that God's messages are being conveyed, and it is in your midst that His Apostle lives? But he who holds fast unto God has already been guided onto a straight way.
  <!--END_SECTION:quran-->
 
   
