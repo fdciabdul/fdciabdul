@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 29**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 2**
 
-and He has made dark its night and brought forth its light of day.
+and restraining [from evil] by a call to restraint,
  <!--END_SECTION:quran-->
 
   
