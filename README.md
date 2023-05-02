@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 22**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 24**
 
-[Yet] on that Day - the Day on which they shall see the angels there will be no glad tiding for those who were lost in sin; and they will exclaim, “By a forbidding ban [are we from God’s grace debarred]!” –
+Now [as for Abraham,] his people’s only answer was, “Slay him, or burn him!” – but God saved him from the fire. Behold, in this [story] there are messages indeed for people who will believe!
  <!--END_SECTION:quran-->
 
   
