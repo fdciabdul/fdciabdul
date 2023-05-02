@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 7**
 
-CONSIDER the flight of time!
+whereas such as seek to go beyond that [limit] are truly transgressors;
  <!--END_SECTION:quran-->
 
   
