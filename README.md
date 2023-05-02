@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 1**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 72**
 
-ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!
+And so, by Our grace, We saved him and those who stood by him, the while We wiped out the last remnant of those who gave the lie to Our messages and would not believe.
  <!--END_SECTION:quran-->
 
   
