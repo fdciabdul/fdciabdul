@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 25**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 48**
 
-[every] withholder of good [and] sinful aggressor [and] fomentor of distrust [between man and man – everyone]
+and that it is He alone who frees from want and causes to possess;
  <!--END_SECTION:quran-->
 
   
