@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 2**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 41**
 
-for, behold, it is We who have bestowed this revela­tion upon thee from on high, setting forth the truth: so worship Him, sincere in thy faith in Him alone!
+Grant Thy forgiveness unto me, and my parents, and all the believers, on the Day on which the [last] reckoning will come to pass!"
  <!--END_SECTION:quran-->
 
   
