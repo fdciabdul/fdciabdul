@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 4**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 102**
 
-Unto God you all must return: and He has the power to will anything."
+Say: "Holy inspiration has brought it down from thy Sustainer by stages, setting forth the truth, so that it might give firmness unto those who have attained to faith, and provide guidance and a glad tiding unto all who have surrendered themselves to God."
  <!--END_SECTION:quran-->
 
   
