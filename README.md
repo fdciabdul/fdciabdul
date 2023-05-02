@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 4**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 59**
 
-And [have We not] raised thee high in dignity?
+Do you, perchance, find this tiding strange?
  <!--END_SECTION:quran-->
 
   
