@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 57**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
 
-[But withal,] no sustenance do I ever demand of them, nor do I demand that they feed Me:
+ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
  <!--END_SECTION:quran-->
 
   
