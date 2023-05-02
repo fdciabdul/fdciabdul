@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 7**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 59**
 
-[In all these respects,] let him who has ample means spend in accordance with his amplitude; and let him whose means of subsistence are scanty spend in accordance with what God has given him: God does not burden any human being with more than He has given him - [and it may well be that] God will grant, after hardship, ease.
+[But God will reply:] “Yea, indeed! My mes­sages did come unto thee; but thou gavest them the lie, and wert filled with false pride, and wert among those who deny the truth!”
  <!--END_SECTION:quran-->
 
   
