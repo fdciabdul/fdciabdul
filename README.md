@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 4**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 25**
 
-"and from the evil of all human beings bent on occult endeavours,
+[every] withholder of good [and] sinful aggressor [and] fomentor of distrust [between man and man – everyone]
  <!--END_SECTION:quran-->
 
   
