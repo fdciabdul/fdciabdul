@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 29**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 91**
 
-Indeed, he led me astray from the remembrance [of God] after it had come unto me!” For [thus it is:] Satan is ever a betrayer of man.
+AND [remember] her who guarded her chastity, whereupon We breathed into her of Our spirit and caused her, together with her son, to become a symbol [of Our grace] unto all people.
  <!--END_SECTION:quran-->
 
   
