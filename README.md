@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 129**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 17**
 
-and make for yourselves mighty castles, [hoping] that you might become immortal?
+[But] know that God gives life to the earth after it has been lifeless! We have indeed made Our messages clear unto you, so that you might use your reason.
  <!--END_SECTION:quran-->
 
   
