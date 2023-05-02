@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 90**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 11**
 
-But they who shall come with evil deeds – their faces will be thrust into the fire, [and they will be asked:] “Is this aught but a just requital for what you were doing [in life]?”
+But he would not try to ascend the steep uphill road...
  <!--END_SECTION:quran-->
 
   
