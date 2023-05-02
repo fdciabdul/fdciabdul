@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 6**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 2**
 
-VERILY, towards his Sustainer man is most ungrateful
+Did He not utterly confound their artful planning?
  <!--END_SECTION:quran-->
 
   
