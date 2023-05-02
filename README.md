@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 11**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 75**
 
-Consider the heavens, ever-revolving,
+And among them are such as vow unto God, "If indeed He grant us [something] out of His bounty, we shall most certainly spend in charity, and shall most certainly be among the righteous!"
  <!--END_SECTION:quran-->
 
   
