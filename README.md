@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 26**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 13**
 
-God, save whom there is no deity - the Sustainer, in awesome almightiness enthroned!”
+In that [garden] they will on couches recline, and will know therein neither [burning] sun nor cold severe,
  <!--END_SECTION:quran-->
 
   
