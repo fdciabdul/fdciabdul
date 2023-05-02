@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 98**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 3**
 
-Such will be their requital for having rejected Our messages and having said, "After we will have become bones and dust, shall we, forsooth, be raised from the dead in a new act of creation?"
+The Most Gracious, the Dispenser of Grace,
  <!--END_SECTION:quran-->
 
   
