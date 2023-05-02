@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 2**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 4**
 
-Did He not utterly confound their artful planning?
+And [have We not] raised thee high in dignity?
  <!--END_SECTION:quran-->
 
   
