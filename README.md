@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 8**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 24**
 
-and unto thy Sustainer turn with love.
+And His are the lofty ships that sail like [floating] mountains through the seas.
  <!--END_SECTION:quran-->
 
   
