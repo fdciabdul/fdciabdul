@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 103**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
 
-And hold fast, all together, unto the bond with God, and do not draw apart from one another. And remember the blessings which God has bestowed upon you: how, when you were enemies, He brought your hearts together, so that through His blessing you became brethren; and [how, when] you were on the brink of a fiery abyss. He saved you from it. In this way God makes clear His messages unto you, so that you might find guidance,
+In the end you will indeed, most surely, behold it with the eye of certainty:
  <!--END_SECTION:quran-->
 
   
