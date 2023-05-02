@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
 
-Verily, man is bound to lose himself
+SAY: "I seek refuge with the Sustainer of men,
  <!--END_SECTION:quran-->
 
   
