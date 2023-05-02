@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 5**
 
-together with his wife, that carrier of evil tales,
+Does he, then, think that no one has power over him?
  <!--END_SECTION:quran-->
 
   
