@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 10**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 64**
 
-Have they, then, never journeyed about the earth and beheld what happened in the end to those [willful sinners] who lived before their time? God destroyed them utterly: and the like thereof awaits all who deny the truth.
+endure it today as an outcome of your persistent denial of the truth!”
  <!--END_SECTION:quran-->
 
   
