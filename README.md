@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 38**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 1**
 
-and thereafter became a germ-cell - whereupon He created and formed [it] in accordance with what [it] was meant to be,
+In the name of God, The Most Gracious, The Dispenser of Grace:
  <!--END_SECTION:quran-->
 
   
