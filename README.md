@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 3**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 29**
 
-O men! Call to mind the blessings which God has bestowed upon you! Is there any creator, other than God, that could provide for you sustenance out of heaven and earth? There is no deity save Him: and yet, how perverted are your minds!
+Indeed, he led me astray from the remembrance [of God] after it had come unto me!” For [thus it is:] Satan is ever a betrayer of man.
  <!--END_SECTION:quran-->
 
   
