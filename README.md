@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 24**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 1**
 
-Now [as for Abraham,] his people’s only answer was, “Slay him, or burn him!” – but God saved him from the fire. Behold, in this [story] there are messages indeed for people who will believe!
+OH, the sudden calamity!
  <!--END_SECTION:quran-->
 
   
