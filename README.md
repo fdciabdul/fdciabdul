@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 75**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 42**
 
-And, indeed, [it was for this reason that] Noah cried unto Us - and how excellent was Our response:
+And [on that Day God will say]: “None of you [created beings] has today any power to benefit or to harm another!” And [then] We shall say unto those who had been bent on evildoing: “Taste [now] that suffering through fire which you were wont to call a lie!”
  <!--END_SECTION:quran-->
 
   
