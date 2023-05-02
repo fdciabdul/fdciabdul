@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 42**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 35**
 
-and neither is it - however little you may [be prepared to] take it to heart - the word of a soothsayer:
+“That [which is ahead of us] is but our first [and only] death, and we shall not be raised to life again.
  <!--END_SECTION:quran-->
 
   
