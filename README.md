@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 4**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 75**
 
-who has taught [man] the use of the pen –
+And, indeed, [it was for this reason that] Noah cried unto Us - and how excellent was Our response:
  <!--END_SECTION:quran-->
 
   
