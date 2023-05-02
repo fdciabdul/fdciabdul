@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 2**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 17**
 
-and restraining [from evil] by a call to restraint,
+[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,
  <!--END_SECTION:quran-->
 
   
