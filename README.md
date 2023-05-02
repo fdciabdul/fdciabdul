@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 5**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 7**
 
-does it make secure, until the rise of dawn.
+[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.
  <!--END_SECTION:quran-->
 
   
