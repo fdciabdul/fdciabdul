@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 11**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 33**
 
-But he would not try to ascend the steep uphill road...
+and who stand firm whenever they bear witness;
  <!--END_SECTION:quran-->
 
   
