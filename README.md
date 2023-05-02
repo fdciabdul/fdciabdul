@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 33**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 1**
 
-and who stand firm whenever they bear witness;
+CONSIDER the fig and the olive,
  <!--END_SECTION:quran-->
 
   
