@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 7**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-and to this, behold, he [himself] bears witness indeed:
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
