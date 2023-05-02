@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 43**
 
-and thou seest people enter God's religion in hosts,
+Verily, it is We who grant life and deal death; and with Us will be all journeys’ end
  <!--END_SECTION:quran-->
 
   
