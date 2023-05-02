@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 3**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 4**
 
-The Most Gracious, the Dispenser of Grace,
+"and from the evil of all human beings bent on occult endeavours,
  <!--END_SECTION:quran-->
 
   
