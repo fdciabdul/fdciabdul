@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 17**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 19**
 
-and the night, and what it [step by step] unfolds,
+and thus he destroys himself, the way he meditates:
  <!--END_SECTION:quran-->
 
   
