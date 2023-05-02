@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 6**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 13**
 
-"from all [temptation to evil by] invisible forces as well as men,"
+and food that chokes, and grievous suffering
  <!--END_SECTION:quran-->
 
   
