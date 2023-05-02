@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 8**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 4**
 
-Have We not given him two eyes,
+Nay, but in time they will come to understand [it]!
  <!--END_SECTION:quran-->
 
   
