@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 76**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 4**
 
-And [since they see that they cannot persuade thee,] they endeavour to estrange thee from the land [of thy birth] with a view to driving thee away from, it-but, then, after thou wilt have left, they themselves will not remain [in it] for more than a little while:
+to the end that He may reward those who believe and do right­eous deeds: [for] it is they whom forgiveness of sins awaits, and a most excellent sustenance
  <!--END_SECTION:quran-->
 
   
