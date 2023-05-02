@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 48**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 10**
 
-and that it is He alone who frees from want and causes to possess;
+and [man] will have neither strength nor helper!
  <!--END_SECTION:quran-->
 
   
