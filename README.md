@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 17**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 48**
 
-and then let him summon [to his aid] the counsels of his own [spurious] wisdom,
+and obvious to them will have become the evil that they had wrought [in life]: and thus shall they be overwhelmed by the very truth which they were wont to deride.
  <!--END_SECTION:quran-->
 
   
