@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 14**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 17**
 
-But they gave him the lie, and cruelly slaughtered her - whereupon their Sustainer visited them with utter destruction for this their sin, destroying them all alike:
+and then let him summon [to his aid] the counsels of his own [spurious] wisdom,
  <!--END_SECTION:quran-->
 
   
