@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 23**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 5**
 
-And, before Him, intercession can be of no avail [to any] save one in whose case He may have granted leave [there for]: so much so that when the terror [of the Last Hour] is lifted from their hearts, they [who have been resurrected] will ask [one an­other], “What has your Sustainer decreed [for you]?” - [to which] the others will answer, “Whatever is true and deserved - for He alone is exalted, great!”
+does it make secure, until the rise of dawn.
  <!--END_SECTION:quran-->
 
   
