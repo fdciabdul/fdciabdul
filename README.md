@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 18**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 18**
 
-NAY, VERILY - the record of the truly virtuous is [set down] in a mode most lofty!
+he that spends his possessions [on others] so that he might grow in purity –
  <!--END_SECTION:quran-->
 
   
