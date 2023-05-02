@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 92**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 11**
 
-VERILY, [O you who believe in Me,] this community of yours is one single community, since I am the Sustainer of you all: worship, then, Me [alone]!
+Consider the heavens, ever-revolving,
  <!--END_SECTION:quran-->
 
   
