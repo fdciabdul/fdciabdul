@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 33**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 1**
 
-And [yet,] they have a sign [of Our power to create and to resurrect] in the lifeless earth which We make alive, and out of which We bring forth grain, whereof they may eat;
+ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!
  <!--END_SECTION:quran-->
 
   
