@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 54**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 18**
 
-“Today, then, no human being shall be wronged in the least, nor shalt you be requited for aught but what you were doing [on earth].
+NAY, VERILY - the record of the truly virtuous is [set down] in a mode most lofty!
  <!--END_SECTION:quran-->
 
   
