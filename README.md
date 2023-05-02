@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 5**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 19**
 
-and then giving forth a reminder,
+This, verily, is a reminder: let him who wills, then set out on a way to his Sustainer!
  <!--END_SECTION:quran-->
 
   
