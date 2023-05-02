@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 73**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 14**
 
-and may have [yet other] benefits from them, and [milk] to drink? Will they not, then, be grateful? (
+But they gave him the lie, and cruelly slaughtered her - whereupon their Sustainer visited them with utter destruction for this their sin, destroying them all alike:
  <!--END_SECTION:quran-->
 
   
