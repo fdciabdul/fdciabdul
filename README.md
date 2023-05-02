@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 57**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 135**
 
-[And] think not that those who are bent on denying the truth can elude [their final reckoning even if they remain unscathed] on earth: the fire is their goal [in the life to come] - and vile indeed is such a journey’s end!
+O YOU who have attained to faith! Be ever steadfast in upholding equity, bearing witness to the truth for the sake of God, even though it be against your own selves or your parents and kinsfolk. Whether the person concerned be rich or poor, God's claim takes precedence over [the claims of] either of them. Do not, then, follow your own desires, lest you swerve from justice: for if you distort [the truth], behold, God is indeed aware of all that you do!
  <!--END_SECTION:quran-->
 
   
