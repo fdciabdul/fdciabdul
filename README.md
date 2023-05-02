@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 2**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 73**
 
-As for those of you who [henceforth] separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, [let them bear in mind that] they can never be [as] their mothers: none are their mothers save those who gave them birth: and so, behold, they but utter a saying that runs counter to reason, and is [therefore] false. But, behold, God is indeed an absolver of sins, much-forgiving:
+and may have [yet other] benefits from them, and [milk] to drink? Will they not, then, be grateful? (
  <!--END_SECTION:quran-->
 
   
