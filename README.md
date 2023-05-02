@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 19**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 22**
 
-And at the mountains, how firmly they are reared?
+[Yet] on that Day - the Day on which they shall see the angels there will be no glad tiding for those who were lost in sin; and they will exclaim, “By a forbidding ban [are we from God’s grace debarred]!” –
  <!--END_SECTION:quran-->
 
   
