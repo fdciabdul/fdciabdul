@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 23**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 3**
 
-NOW WHEN he arrived at the wells of Madyan, he found there a large group of men who were watering [their herds and flocks]; and at some distance from them he came upon two women who were keeping back their flock. He asked [them]: “What is the matter with you?” They answered: “We cannot water [our animals] until the herdsmen drive [theirs] home - for [we are weak and] our father is a very old man.”
+O men! Call to mind the blessings which God has bestowed upon you! Is there any creator, other than God, that could provide for you sustenance out of heaven and earth? There is no deity save Him: and yet, how perverted are your minds!
  <!--END_SECTION:quran-->
 
   
