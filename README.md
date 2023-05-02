@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 39**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 22**
 
-And [remember:] whatever you may give out in usury so that it might increase through [other] people’s possessions will bring [you] no increase in the sight of God whereas all that you give out in charity, seeking God’s countenance, [will be blessed by Him:] for it is they, they [who thus seek His countenance] that shall have their recompense mul­tiplied!
+They answered: “Hast thou come to seduce us away from our gods? Bring, then, upon us that [doom] with which thou threaten us, if thou art a man of truth!”
  <!--END_SECTION:quran-->
 
   
