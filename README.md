@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 32**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 175**
 
-And among His signs are the ships that sail like [floating] mountains through the seas:
+It is but Satan who instils [into you] fear of his allies: so fear them not, but fear Me, if you are [truly] believers!
  <!--END_SECTION:quran-->
 
   
