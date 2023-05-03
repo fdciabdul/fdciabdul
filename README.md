@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 4**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 35**
 
-Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!
+Yet [to achieve] this is not given to any but those who are wont to be patient in adversity: it is not given to any but those endowed with the greatest good fortune!
  <!--END_SECTION:quran-->
 
   
