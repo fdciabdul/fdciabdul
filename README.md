@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 42**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 5**
 
-"What has brought you into hell-fire?"
+"who whispers in the hearts of men
  <!--END_SECTION:quran-->
 
   
