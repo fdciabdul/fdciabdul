@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 28**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 17**
 
-And lo! Thy Sustainer said unto the angels: "Behold, I am about to create mortal man out of sounding clay, out of dark slime transmuted;
+And [as for all such believers,] no human being can imagine what blissful delights, as yet hidden, await them [in the life to come] as a reward for all that they did.
  <!--END_SECTION:quran-->
 
   
