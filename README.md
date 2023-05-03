@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 13**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 2**
 
-[and] there will be thrones [of happiness] raised high,
+[Woe unto him who amasses wealth and counts it a safeguard,
  <!--END_SECTION:quran-->
 
   
