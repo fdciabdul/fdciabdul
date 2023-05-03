@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 4**
 
-Behold, it is this [kind of man] that thrusts the orphan away,
+Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!
  <!--END_SECTION:quran-->
 
   
