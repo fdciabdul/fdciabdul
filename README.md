@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 4**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 40**
 
-Lord of the Day of Judgment!
+Ask them which of them is able to vouch for this!
  <!--END_SECTION:quran-->
 
   
