@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 10**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 54**
 
-and him that seeks [thy] help shalt thou never chide,
+But leave them alone, lost in their ignorance, until a [future] time.
  <!--END_SECTION:quran-->
 
   
