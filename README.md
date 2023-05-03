@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 12**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
 
-O YOU who have attained to faith! Whenever you [intend to] consult the Apostle, offer up something in charity on the occasion of your consultation: this will be for your own good, and more conducive to your [inner] purity. Yet if you are unable to do so, [know that,] verily, God is much-forgiving, a dispen­ser of grace.
+which smote them with stone-hard blows of chastisement pre-ordained,
  <!--END_SECTION:quran-->
 
   
