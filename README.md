@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 55**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 56**
 
-and whoever wills may take it to heart.
+But his people’s only answer was this: “Expel [Lot and] Lot’s followers from your township! Verily, they are folk who make themselves out to be pure!”
  <!--END_SECTION:quran-->
 
   
