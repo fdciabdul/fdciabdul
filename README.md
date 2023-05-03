@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 36**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
 
-For he had truly warned them of Our punishing might; but they stubbornly cast doubt on these warn­ings,
+"and there is nothing that could be compared with Him.
  <!--END_SECTION:quran-->
 
   
