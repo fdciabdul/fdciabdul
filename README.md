@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 8**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 12**
 
-But [whether by night or by day,] remember thy Sustainer's name, and devote thyself unto Him with utter devotion.
+O YOU who have attained to faith! Whenever you [intend to] consult the Apostle, offer up something in charity on the occasion of your consultation: this will be for your own good, and more conducive to your [inner] purity. Yet if you are unable to do so, [know that,] verily, God is much-forgiving, a dispen­ser of grace.
  <!--END_SECTION:quran-->
 
   
