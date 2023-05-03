@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 9**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 14**
 
-Say: “I am not the first of [God’s] apostles; and [like all of them,] I do not know what will be done with me or with you: for I am nothing but a plain warner.”
+on the Day when the earth and the mountains will be convulsed and the mountains will [crumble and] become like a sand-dune on the move!
  <!--END_SECTION:quran-->
 
   
