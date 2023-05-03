@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 9**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 3**
 
-O YOU who have attained to faith! Call to mind the blessings which God bestowed on you (at the time) when [enemy] hosts came down upon you, where­upon We let loose against them a storm wind and [heavenly] hosts that you could not see: yet God saw all that you did.
+[In the life to come] he shall have to endure a fire fiercely glowing;
  <!--END_SECTION:quran-->
 
   
