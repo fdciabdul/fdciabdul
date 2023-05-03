@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 7**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 9**
 
-but, We see it as near!
+SAY: “Would you indeed deny Him who has created the earth in two aeons? And do you claim that there is any power that could rival Him, the Sustainer of all the worlds?”
  <!--END_SECTION:quran-->
 
   
