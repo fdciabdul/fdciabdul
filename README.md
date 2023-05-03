@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 23**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 39**
 
-Which, then, of your Sustainer’s powers can you disavow?
+Said a bold one of the invisible beings [subject to Solomon]: “I shall bring it to thee ere thou rise from thy council-seat - for, behold, I am powerful enough to do it, [and] worthy of trust!”
  <!--END_SECTION:quran-->
 
   
