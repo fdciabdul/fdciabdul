@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 3**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
 
-[In the life to come] he shall have to endure a fire fiercely glowing;
+secure in their winter and summer journeys,
  <!--END_SECTION:quran-->
 
   
