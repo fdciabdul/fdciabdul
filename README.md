@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 14**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
 
-on the Day when the earth and the mountains will be convulsed and the mountains will [crumble and] become like a sand-dune on the move!
+Behold, it is this [kind of man] that thrusts the orphan away,
  <!--END_SECTION:quran-->
 
   
