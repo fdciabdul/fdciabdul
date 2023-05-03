@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 1**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 84**
 
-NAY! I call to witness this land –
+And Moses said: "O my people! If you believe in God, place your trust in Him -if you have [truly] surrendered yourselves unto Him!"
  <!--END_SECTION:quran-->
 
   
