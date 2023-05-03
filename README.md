@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 19**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
 
-But as for those who care for the [good of the] life to come, and strive for it as it ought to be striven for, and are [true] believers withal -they are the ones whose striving finds favour [with God]!
+WHEN GOD'S SUCCOUR comes, and victory,
  <!--END_SECTION:quran-->
 
   
