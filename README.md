@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 17**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 35**
 
-Or can you ever feel secure that He who is in heaven will not let loose against you a deadly stormwind, whereupon you would come to know how [true] My warning was?
+THE PARABLE of the paradise promised to those who are conscious of God [is that of a garden] through which running waters flow: [but, unlike an earthly garden,] its fruits will be everlasting, and [so will be] its shade. Such will be the destiny of those who remain conscious of God-just as the destiny of those who deny the truth will be the fire.
  <!--END_SECTION:quran-->
 
   
