@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 7**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 28**
 
-But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.
+the while he [himself] knows that this is the parting,
  <!--END_SECTION:quran-->
 
   
