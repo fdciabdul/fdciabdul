@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 161**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 9**
 
-And [remember] when you were told: "Dwell in this land and eat of its food as you may desire; but say, `Remove Thou from us the burden of our sins,' and enter the gate humbly - [whereupon] We shall forgive you your sins [and] shall amply reward the doers of good."
+Say: “I am not the first of [God’s] apostles; and [like all of them,] I do not know what will be done with me or with you: for I am nothing but a plain warner.”
  <!--END_SECTION:quran-->
 
   
