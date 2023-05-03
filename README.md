@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 20**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 4**
 
-for, behold, if they should come to know of you, they might stone you to death or force you back to their faith-in which case you would never attain to any good!"
+Lord of the Day of Judgment!
  <!--END_SECTION:quran-->
 
   
