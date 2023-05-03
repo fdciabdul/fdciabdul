@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 8**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 11**
 
-and on that Day you will most surely be called to account for [what you did with] the boon of life!
+WHO IS IT that will offer up unto God a goodly loan, which He will amply repay For, such [as do so] shall have a noble reward
  <!--END_SECTION:quran-->
 
   
