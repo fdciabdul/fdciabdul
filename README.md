@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 5**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 51**
 
-[and] that He might admit the believers, both men and women, into gardens through which running waters flow, therein to abide, and that He might efface their [past bad] deeds: and that is, in the sight of God, indeed a triumph supreme!
+or any [other] substance which, to your minds, appears yet farther removed [from life]!" And [if] thereupon they ask, "Who is it that will' bring us back [to life]?"-say thou: "He who has brought you into being in the first instance." And [if] thereupon they shake their heads at thee [in disbelief] and ask, "When shall this be?"-say thou: "It may well be soon,
  <!--END_SECTION:quran-->
 
   
