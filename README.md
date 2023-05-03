@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 79**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 17**
 
-Have, then, they [who deny the truth] never considered the birds, enabled [by God] to fly in mid-air, with none but God holding them aloft? In this, behold, there are messages indeed for people who will believe!
+Or can you ever feel secure that He who is in heaven will not let loose against you a deadly stormwind, whereupon you would come to know how [true] My warning was?
  <!--END_SECTION:quran-->
 
   
