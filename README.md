@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 64**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 50**
 
-Such, behold, will in truth be the [confusion and] mutual wrangling of the people of the fire!
+And yet they say, “Why have no miraculous signs ever been bestowed upon him from on high by his Sustainer?” Say: “Miracles are in the power of God alone; and as for me - I am but a plain warner.”
  <!--END_SECTION:quran-->
 
   
