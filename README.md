@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 2**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 15**
 
-there will be nought that could give the lie to its having come to pass,
+And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –
  <!--END_SECTION:quran-->
 
   
