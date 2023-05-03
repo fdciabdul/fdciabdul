@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 80**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
 
-Or do they, perchance, think that We do not hear their hidden thoughts and their secret confabulations? Yea, indeed, [We do,] and Our heavenly forces are with them, recording [all].
+"and from the evil of the envious when he envies."
  <!--END_SECTION:quran-->
 
   
