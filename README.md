@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 17**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 76**
 
-God admonishes you [hereby] lest you ever revert to the like of this [sin], if you are [truly] believers;
+And God endows those who avail themselves of [His] guidance with an ever-deeper consciousness of the right way; and good deeds, the fruit whereof endures forever, are, in thy Sustainer's sight, of far greater merit [than any worldly goods], and yield far better returns.
  <!--END_SECTION:quran-->
 
   
