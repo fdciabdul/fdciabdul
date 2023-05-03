@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 12**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
 
-GOD is He who has created seven heavens, and, like them, [the many aspects] of the earth. Through all of them flows down from on high, unceasingly, His [creative] will, so that you might come to know that God has the power to will anything, and that God encompasses all things with His knowledge.
+which smote them with stone-hard blows of chastisement pre-ordained,
  <!--END_SECTION:quran-->
 
   
