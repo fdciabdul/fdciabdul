@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 15**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 5**
 
-Said He: “Not so, indeed! Go forth, then, both of you, with Our messages: verify, We shall be with you, listening [to your call]!
+Does he, then, think that no one has power over him?
  <!--END_SECTION:quran-->
 
   
