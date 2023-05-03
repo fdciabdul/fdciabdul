@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 7**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 4**
 
-As against this, they who are bent on denying the truth say [unto all who are of like mind]: “Shall we point out to you a man who will tell you that [after your death,] when you will have been scattered in countless fragments, you shall - lo and behold! - be [restored to life] in a new act of creation?
+And [have We not] raised thee high in dignity?
  <!--END_SECTION:quran-->
 
   
