@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 2**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 74**
 
-created man out of a germ-cell
+and We turned those [sinful towns} upside down, and rained down upon them stone-hard blows of chastisement pre-ordained.
  <!--END_SECTION:quran-->
 
   
