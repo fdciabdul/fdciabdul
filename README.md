@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 22**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 161**
 
-[and will be told:] “Indeed, unmindful hast thou been of this [Day of Judgment]; but now We have lifted from thee thy veil, and sharp is thy sight today!”
+And [remember] when you were told: "Dwell in this land and eat of its food as you may desire; but say, `Remove Thou from us the burden of our sins,' and enter the gate humbly - [whereupon] We shall forgive you your sins [and] shall amply reward the doers of good."
  <!--END_SECTION:quran-->
 
   
