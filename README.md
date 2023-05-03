@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 37**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 80**
 
-Are they, then, better than the people of Tubba and those before them, whom We destroyed because they were truly lost in [the same] sin?
+Or do they, perchance, think that We do not hear their hidden thoughts and their secret confabulations? Yea, indeed, [We do,] and Our heavenly forces are with them, recording [all].
  <!--END_SECTION:quran-->
 
   
