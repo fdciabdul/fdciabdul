@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
 
-On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
+Let them, therefore, worship the Sustainer of this Temple;
  <!--END_SECTION:quran-->
 
   
