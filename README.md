@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 26**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 53**
 
-[In the nature of things,] corrupt women are for corrupt men, and corrupt men, for corrupt women - just as good women are for good men, and good men, for good women. [Since God is aware that] these are innocent of all that evil tongues may impute to them, forgiveness of sins shall be theirs, and a most excellent sustenance!
+Nothing will there have been but one single blast - and lo! before Us will all of them be arraigned [and be told]:
  <!--END_SECTION:quran-->
 
   
