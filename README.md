@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 11**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 7**
 
-WHO IS IT that will offer up unto God a goodly loan, which He will amply repay For, such [as do so] shall have a noble reward
+But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.
  <!--END_SECTION:quran-->
 
   
