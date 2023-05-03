@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 3**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 26**
 
-and provides for him in a manner beyond all expectation; and for everyone who places his trust in God He [alone] is enough. Verily, God always attains to His purpose: [and] indeed, unto everything has God appointed its [term and] measure.
+[In the nature of things,] corrupt women are for corrupt men, and corrupt men, for corrupt women - just as good women are for good men, and good men, for good women. [Since God is aware that] these are innocent of all that evil tongues may impute to them, forgiveness of sins shall be theirs, and a most excellent sustenance!
  <!--END_SECTION:quran-->
 
   
