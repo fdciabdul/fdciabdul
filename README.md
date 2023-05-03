@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 37**
 
-[who bears] around her neck a rope of twisted strands!
+In this, behold, there is indeed a reminder for everyone whose heart is wide-awake -that is, [every­one who] lends ear with a conscious mind -
  <!--END_SECTION:quran-->
 
   
