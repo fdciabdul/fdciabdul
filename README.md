@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 109**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 29**
 
-“And no reward whatever do I ask of you for it: my reward rests with none but the Sustainer of all the worlds.
+On Him depends all creatures in the heavens and on earth; [and] every day He manifests Himself in yet another [wondrous] way.
  <!--END_SECTION:quran-->
 
   
