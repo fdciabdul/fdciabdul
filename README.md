@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 12**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 42**
 
-and to whom I have granted resources vast,
+"What has brought you into hell-fire?"
  <!--END_SECTION:quran-->
 
   
