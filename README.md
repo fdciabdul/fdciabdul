@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 2**
 
-secure in their winter and summer journeys,
+created man out of a germ-cell
  <!--END_SECTION:quran-->
 
   
