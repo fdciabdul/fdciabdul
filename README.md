@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 2**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 2**
 
-whereas those who have attained to faith and do righteous deeds, and have come to believe in what has been bestowed from on high on Muhammad - for it is the truth from their Sustainer - [shall attain to God’s grace:] He will efface their [past] bad deeds, and will set their hearts at rest.
+there will be nought that could give the lie to its having come to pass,
  <!--END_SECTION:quran-->
 
   
