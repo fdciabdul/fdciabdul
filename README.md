@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 54**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 17**
 
-But leave them alone, lost in their ignorance, until a [future] time.
+God admonishes you [hereby] lest you ever revert to the like of this [sin], if you are [truly] believers;
  <!--END_SECTION:quran-->
 
   
