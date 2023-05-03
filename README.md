@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 17**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 9**
 
-And [as for all such believers,] no human being can imagine what blissful delights, as yet hidden, await them [in the life to come] as a reward for all that they did.
+Say: “I am not the first of [God’s] apostles; and [like all of them,] I do not know what will be done with me or with you: for I am nothing but a plain warner.”
  <!--END_SECTION:quran-->
 
   
