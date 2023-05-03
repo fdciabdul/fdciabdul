@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 71**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 109**
 
-[but] one Day We shall summon all human beings [and judge them] according to the conscious disposition which governed their deeds [in life]: whereupon they whose record shall be placed in their right hand -it is they who will read their record [with happiness]. Yet none shall be wronged by as much as a hair's breadth:
+“And no reward whatever do I ask of you for it: my reward rests with none but the Sustainer of all the worlds.
  <!--END_SECTION:quran-->
 
   
