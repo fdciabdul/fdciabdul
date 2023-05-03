@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 20**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 7**
 
-They think that the Confederates have not [really] withdrawn; and should the Confederates return, these [hypocrites] would prefer to be in the desert, among the bedouin, asking for news about you, [O believers, from far away;] and even were they to find themselves in your midst, they would but make a pretence at fighting [by your side].
+As against this, they who are bent on denying the truth say [unto all who are of like mind]: “Shall we point out to you a man who will tell you that [after your death,] when you will have been scattered in countless fragments, you shall - lo and behold! - be [restored to life] in a new act of creation?
  <!--END_SECTION:quran-->
 
   
