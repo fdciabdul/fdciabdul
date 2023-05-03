@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 5**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 10**
 
-by [virtue of] what is being bestowed from on high by the Almighty, the Dispenser of Grace,
+and him that seeks [thy] help shalt thou never chide,
  <!--END_SECTION:quran-->
 
   
