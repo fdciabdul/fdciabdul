@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 4**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
 
-And [have We not] raised thee high in dignity?
+ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
  <!--END_SECTION:quran-->
 
   
