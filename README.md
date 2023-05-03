@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 9**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 89**
 
-SAY: “Would you indeed deny Him who has created the earth in two aeons? And do you claim that there is any power that could rival Him, the Sustainer of all the worlds?”
+Indeed, [by this assertion] you have brought forth something monstrous,
  <!--END_SECTION:quran-->
 
   
