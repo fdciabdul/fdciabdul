@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 11**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 55**
 
-WHO IS IT that will offer up unto God a goodly loan, which He will amply repay For, such [as do so] shall have a noble reward
+Must you really approach men with lust instead of women? Nay, but you are people without any awareness (of right and wrong)!”
  <!--END_SECTION:quran-->
 
   
