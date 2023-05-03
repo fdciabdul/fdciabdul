@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 23**
 
-Let them, therefore, worship the Sustainer of this Temple;
+Which, then, of your Sustainer’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
