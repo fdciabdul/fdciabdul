@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 4**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 1**
 
-Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!
+NAY! I call to witness this land –
  <!--END_SECTION:quran-->
 
   
