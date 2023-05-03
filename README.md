@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 3**
 
-ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
+And what could make thee conceive what that sudden calamity will be?
  <!--END_SECTION:quran-->
 
   
