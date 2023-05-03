@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 84**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 18**
 
-And Moses said: "O my people! If you believe in God, place your trust in Him -if you have [truly] surrendered yourselves unto Him!"
+of those who have responded to their Sustainer with a goodly response, and of those who did not respond to Him. [As for the latter,] if they possessed all that is on earth, and twice as much, they would surely offer it as ransom [on the Day of Judgment]: a most evil reckoning awaits them, and their goal is hell: and how evil a resting-place!
  <!--END_SECTION:quran-->
 
   
