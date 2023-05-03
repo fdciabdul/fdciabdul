@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 3**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 21**
 
-And what could make thee conceive what that sudden calamity will be?
+Nay, but [how will you fare on Judgment Day,] when the earth is crushed with crushing upon crushing,
  <!--END_SECTION:quran-->
 
   
