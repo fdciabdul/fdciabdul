@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 29**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 12**
 
-On Him depends all creatures in the heavens and on earth; [and] every day He manifests Himself in yet another [wondrous] way.
+on the Day when thou shalt see all believing men and believing women, with their light spreading rapidly before them and on their right, [and with this wel­come awaiting them:] “A glad tiding for you today: gardens through which running waters flow, therein to abide! This, this is the triumph supreme!”
  <!--END_SECTION:quran-->
 
   
