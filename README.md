@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 76**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 9**
 
-[But God's messengers replied:] "O Abraham! Desist from this [pleading]! Behold, thy Sustainer's judgment has already gone forth: and, verily, there shall fall upon them a chastisement which none can avert!"
+O YOU who have attained to faith! Call to mind the blessings which God bestowed on you (at the time) when [enemy] hosts came down upon you, where­upon We let loose against them a storm wind and [heavenly] hosts that you could not see: yet God saw all that you did.
  <!--END_SECTION:quran-->
 
   
