@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 56**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 12**
 
-for, verily, those who are bent on denying the truth of Our messages We shall, in time, cause to endure fire: [and] every time their skins are burnt off, We shall replace them with new skins, so that they may taste suffering [in full] Verily, God is almighty, wise.
+GOD is He who has created seven heavens, and, like them, [the many aspects] of the earth. Through all of them flows down from on high, unceasingly, His [creative] will, so that you might come to know that God has the power to will anything, and that God encompasses all things with His knowledge.
  <!--END_SECTION:quran-->
 
   
