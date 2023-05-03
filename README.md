@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 56**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 5**
 
-But his people’s only answer was this: “Expel [Lot and] Lot’s followers from your township! Verily, they are folk who make themselves out to be pure!”
+by [virtue of] what is being bestowed from on high by the Almighty, the Dispenser of Grace,
  <!--END_SECTION:quran-->
 
   
