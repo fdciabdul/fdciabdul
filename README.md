@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 51**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 26**
 
-or any [other] substance which, to your minds, appears yet farther removed [from life]!" And [if] thereupon they ask, "Who is it that will' bring us back [to life]?"-say thou: "He who has brought you into being in the first instance." And [if] thereupon they shake their heads at thee [in disbelief] and ask, "When shall this be?"-say thou: "It may well be soon,
+Unto God belongs all that is in the heavens and on earth. Verily, God alone is self-sufficient, the One to whom all praise is due!
  <!--END_SECTION:quran-->
 
   
