@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 30**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 17**
 
-Behold, it is from Solomon, and it says, ‘In the name of God, the Most Gracious, the Dispenser of Grace:
+It will claim all such as turn their backs [on what is right], and turn away [from the truth],
  <!--END_SECTION:quran-->
 
   
