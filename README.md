@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 17**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 29**
 
-thus We requited them for their having denied the truth. But do We ever requite [thus] any but the utterly ingrate?
+[On the other hand,] you will incur no sin if you [freely] enter houses not intended for living in but serving a purpose useful to you: but [always remember that] God knows all that you do openly, and all that you would conceal.
  <!--END_SECTION:quran-->
 
   
