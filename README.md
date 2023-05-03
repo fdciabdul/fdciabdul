@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 30**
 
-WHEN GOD'S SUCCOUR comes, and victory,
+Behold, it is from Solomon, and it says, ‘In the name of God, the Most Gracious, the Dispenser of Grace:
  <!--END_SECTION:quran-->
 
   
