@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 175**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 86**
 
-It is but Satan who instils [into you] fear of his allies: so fear them not, but fear Me, if you are [truly] believers!
+But when you are greeted with a greeting [of peace], answer with an even better greeting, or [at least] with the like thereof. Verily, God keeps count indeed of all things.
  <!--END_SECTION:quran-->
 
   
