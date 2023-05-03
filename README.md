@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 13**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 28**
 
-Behold, [in the life to come] the truly virtuous: will indeed be in bliss,
+And lo! Thy Sustainer said unto the angels: "Behold, I am about to create mortal man out of sounding clay, out of dark slime transmuted;
  <!--END_SECTION:quran-->
 
   
