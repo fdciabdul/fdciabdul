@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 15**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 22**
 
-And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –
+[and will be told:] “Indeed, unmindful hast thou been of this [Day of Judgment]; but now We have lifted from thee thy veil, and sharp is thy sight today!”
  <!--END_SECTION:quran-->
 
   
