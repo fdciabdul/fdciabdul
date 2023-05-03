@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 18**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 12**
 
-of Pharaoh, and of [the tribe of] Thamud?
+and to whom I have granted resources vast,
  <!--END_SECTION:quran-->
 
   
