@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 78**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 2**
 
-Do they not know that God knows [all] their hidden thoughts and their secret confabulations, and that God knows fully all the things that are beyond the reach of human perception'?
+whereas those who have attained to faith and do righteous deeds, and have come to believe in what has been bestowed from on high on Muhammad - for it is the truth from their Sustainer - [shall attain to God’s grace:] He will efface their [past] bad deeds, and will set their hearts at rest.
  <!--END_SECTION:quran-->
 
   
