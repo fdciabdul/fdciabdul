@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 50**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 71**
 
-And yet they say, “Why have no miraculous signs ever been bestowed upon him from on high by his Sustainer?” Say: “Miracles are in the power of God alone; and as for me - I am but a plain warner.”
+[but] one Day We shall summon all human beings [and judge them] according to the conscious disposition which governed their deeds [in life]: whereupon they whose record shall be placed in their right hand -it is they who will read their record [with happiness]. Yet none shall be wronged by as much as a hair's breadth:
  <!--END_SECTION:quran-->
 
   
