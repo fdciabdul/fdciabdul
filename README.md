@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 34**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 9**
 
-Verily, thus shall We deal with all who were lost in sin:
+[saying, in their hearts,] "We feed you for the sake of God alone: we desire no recompense from you, nor thanks:
  <!--END_SECTION:quran-->
 
   
