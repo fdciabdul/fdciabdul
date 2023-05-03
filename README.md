@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 37**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 5**
 
-In this, behold, there is indeed a reminder for everyone whose heart is wide-awake -that is, [every­one who] lends ear with a conscious mind -
+HAVE THE STORIES of those who, in earlier times, refused to acknowledge the truth never yet come within your ken? [They denied it -] and so they had to taste the evil outcome of their own doings, with [more] grievous suffering awaiting them [in the life to come]:
  <!--END_SECTION:quran-->
 
   
