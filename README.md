@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 10**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 36**
 
-and rebelled against their Sustainer's apostles: and so He took them to task with a punishing grasp exceedingly severe!
+For he had truly warned them of Our punishing might; but they stubbornly cast doubt on these warn­ings,
  <!--END_SECTION:quran-->
 
   
