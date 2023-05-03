@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 28**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 7**
 
-the while he [himself] knows that this is the parting,
+but, We see it as near!
  <!--END_SECTION:quran-->
 
   
