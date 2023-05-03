@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 12**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 18**
 
-on the Day when thou shalt see all believing men and believing women, with their light spreading rapidly before them and on their right, [and with this wel­come awaiting them:] “A glad tiding for you today: gardens through which running waters flow, therein to abide! This, this is the triumph supreme!”
+Are, then, they [whose hearts are sealed] wait­ing for the Last Hour - [waiting] that it come upon them of a sudden? But it has already been foretold! And what will their remembrance [of their past sins] avail them, once it has come upon them?
  <!--END_SECTION:quran-->
 
   
