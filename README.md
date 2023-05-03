@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 5**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 63**
 
-HAVE THE STORIES of those who, in earlier times, refused to acknowledge the truth never yet come within your ken? [They denied it -] and so they had to taste the evil outcome of their own doings, with [more] grievous suffering awaiting them [in the life to come]:
+“This, then, is the hell of which you were warned again and again:
  <!--END_SECTION:quran-->
 
   
