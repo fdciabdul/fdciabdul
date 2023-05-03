@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 75**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 37**
 
-The Christ, son of Mary, was but an apostle: all [other] apostles had passed away before him; and his mother was one who never deviated from the truth; and they both ate food [like other mortals]. Behold how clear We make these messages unto them: and then behold how perverted are their minds!
+Are they, then, better than the people of Tubba and those before them, whom We destroyed because they were truly lost in [the same] sin?
  <!--END_SECTION:quran-->
 
   
