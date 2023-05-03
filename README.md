@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 35**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 8**
 
-Yet [to achieve] this is not given to any but those who are wont to be patient in adversity: it is not given to any but those endowed with the greatest good fortune!
+But [whether by night or by day,] remember thy Sustainer's name, and devote thyself unto Him with utter devotion.
  <!--END_SECTION:quran-->
 
   
