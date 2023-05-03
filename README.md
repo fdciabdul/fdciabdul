@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 18**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 20**
 
-Are, then, they [whose hearts are sealed] wait­ing for the Last Hour - [waiting] that it come upon them of a sudden? But it has already been foretold! And what will their remembrance [of their past sins] avail them, once it has come upon them?
+for, behold, if they should come to know of you, they might stone you to death or force you back to their faith-in which case you would never attain to any good!"
  <!--END_SECTION:quran-->
 
   
