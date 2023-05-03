@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 53**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 8**
 
-Nothing will there have been but one single blast - and lo! before Us will all of them be arraigned [and be told]:
+and on that Day you will most surely be called to account for [what you did with] the boon of life!
  <!--END_SECTION:quran-->
 
   
