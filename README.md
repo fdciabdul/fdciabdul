@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 19**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 39**
 
-Satan has gained mastery over them, and has caused them to remain oblivious of the remem­brance of God. Such as these are Satan’s partisans: oh, verily, it is they, the partisans of Satan, who will truly be the losers!
+none of this have We created without [an inner] truth: but most of them under­stand it not.
  <!--END_SECTION:quran-->
 
   
