@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 88**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 10**
 
-[AND THE SONS of Jacob went back to Egypt and to Joseph;] and when they presented themselves before him, they said: "O thou great one! Hardship has visited us and our folk, and so we have brought but scanty merchandise; but give us a full measure [of grain], and be charitable to us: behold, God rewards those who give in charity!"
+and rebelled against their Sustainer's apostles: and so He took them to task with a punishing grasp exceedingly severe!
  <!--END_SECTION:quran-->
 
   
