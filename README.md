@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
 
-Let them, therefore, worship the Sustainer of this Temple;
+[who bears] around her neck a rope of twisted strands!
  <!--END_SECTION:quran-->
 
   
