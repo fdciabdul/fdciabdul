@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 55**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 20**
 
-Must you really approach men with lust instead of women? Nay, but you are people without any awareness (of right and wrong)!”
+And thereupon he [went to Pharaoh and] made him aware of the great wonder [of God's grace].
  <!--END_SECTION:quran-->
 
   
