@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 89**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 79**
 
-Indeed, [by this assertion] you have brought forth something monstrous,
+Have, then, they [who deny the truth] never considered the birds, enabled [by God] to fly in mid-air, with none but God holding them aloft? In this, behold, there are messages indeed for people who will believe!
  <!--END_SECTION:quran-->
 
   
