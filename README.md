@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 39**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 19**
 
-Said a bold one of the invisible beings [subject to Solomon]: “I shall bring it to thee ere thou rise from thy council-seat - for, behold, I am powerful enough to do it, [and] worthy of trust!”
+But as for those who care for the [good of the] life to come, and strive for it as it ought to be striven for, and are [true] believers withal -they are the ones whose striving finds favour [with God]!
  <!--END_SECTION:quran-->
 
   
