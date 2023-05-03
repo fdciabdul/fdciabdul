@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 78**
 
-which smote them with stone-hard blows of chastisement pre-ordained,
+Do they not know that God knows [all] their hidden thoughts and their secret confabulations, and that God knows fully all the things that are beyond the reach of human perception'?
  <!--END_SECTION:quran-->
 
   
