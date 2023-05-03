@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 75**
 
-On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
+The Christ, son of Mary, was but an apostle: all [other] apostles had passed away before him; and his mother was one who never deviated from the truth; and they both ate food [like other mortals]. Behold how clear We make these messages unto them: and then behold how perverted are their minds!
  <!--END_SECTION:quran-->
 
   
