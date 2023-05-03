@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 9**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 11**
 
-[saying, in their hearts,] "We feed you for the sake of God alone: we desire no recompense from you, nor thanks:
+WHO IS IT that will offer up unto God a goodly loan, which He will amply repay For, such [as do so] shall have a noble reward
  <!--END_SECTION:quran-->
 
   
