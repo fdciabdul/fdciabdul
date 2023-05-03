@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 9**
+**Surah 38: سُورَةُ صٓ (Saad) - 64**
 
-Say: “I am not the first of [God’s] apostles; and [like all of them,] I do not know what will be done with me or with you: for I am nothing but a plain warner.”
+Such, behold, will in truth be the [confusion and] mutual wrangling of the people of the fire!
  <!--END_SECTION:quran-->
 
   
