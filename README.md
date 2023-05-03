@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 86**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
 
-But when you are greeted with a greeting [of peace], answer with an even better greeting, or [at least] with the like thereof. Verily, God keeps count indeed of all things.
+On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
  <!--END_SECTION:quran-->
 
   
