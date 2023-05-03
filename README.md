@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 17**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 15**
 
-It will claim all such as turn their backs [on what is right], and turn away [from the truth],
+Said He: “Not so, indeed! Go forth, then, both of you, with Our messages: verify, We shall be with you, listening [to your call]!
  <!--END_SECTION:quran-->
 
   
