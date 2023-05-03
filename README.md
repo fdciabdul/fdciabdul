@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 2**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 18**
 
-[Woe unto him who amasses wealth and counts it a safeguard,
+of Pharaoh, and of [the tribe of] Thamud?
  <!--END_SECTION:quran-->
 
   
