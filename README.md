@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 76**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 12**
 
-And God endows those who avail themselves of [His] guidance with an ever-deeper consciousness of the right way; and good deeds, the fruit whereof endures forever, are, in thy Sustainer's sight, of far greater merit [than any worldly goods], and yield far better returns.
+GOD is He who has created seven heavens, and, like them, [the many aspects] of the earth. Through all of them flows down from on high, unceasingly, His [creative] will, so that you might come to know that God has the power to will anything, and that God encompasses all things with His knowledge.
  <!--END_SECTION:quran-->
 
   
