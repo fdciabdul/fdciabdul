@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 20**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 17**
 
-And thereupon he [went to Pharaoh and] made him aware of the great wonder [of God's grace].
+thus We requited them for their having denied the truth. But do We ever requite [thus] any but the utterly ingrate?
  <!--END_SECTION:quran-->
 
   
