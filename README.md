@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 49**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 1**
 
-Nay, but this [divine writ] consists of messages clear to the hearts of all who are gifted with [innate] knowledge and none could knowingly reject Our messages unless it be such as would do wrong [to themselves].
+Oh, the chargers that run panting,
  <!--END_SECTION:quran-->
 
   
