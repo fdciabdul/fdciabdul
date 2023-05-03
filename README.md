@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 159**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 5**
 
-And it was by God's grace that thou [O Prophet] didst deal gently with thy followers: for if thou hadst been harsh and hard of heart, they would indeed have broken away from thee. Pardon them, then, and pray that they be forgiven. And take counsel with them in all matters of public concern; then, when thou hast decided upon a course of action, place thy trust in God: for, verily, God loves those who place their trust in Him.
+[and] that He might admit the believers, both men and women, into gardens through which running waters flow, therein to abide, and that He might efface their [past bad] deeds: and that is, in the sight of God, indeed a triumph supreme!
  <!--END_SECTION:quran-->
 
   
