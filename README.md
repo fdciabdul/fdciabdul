@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 29**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
 
-[On the other hand,] you will incur no sin if you [freely] enter houses not intended for living in but serving a purpose useful to you: but [always remember that] God knows all that you do openly, and all that you would conceal.
+Let them, therefore, worship the Sustainer of this Temple;
  <!--END_SECTION:quran-->
 
   
