@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 39**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 88**
 
-none of this have We created without [an inner] truth: but most of them under­stand it not.
+[AND THE SONS of Jacob went back to Egypt and to Joseph;] and when they presented themselves before him, they said: "O thou great one! Hardship has visited us and our folk, and so we have brought but scanty merchandise; but give us a full measure [of grain], and be charitable to us: behold, God rewards those who give in charity!"
  <!--END_SECTION:quran-->
 
   
