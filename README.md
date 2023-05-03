@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 21**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 32**
 
-Nay, but [how will you fare on Judgment Day,] when the earth is crushed with crushing upon crushing,
+And among His signs are the ships that sail like [floating] mountains through the seas:
  <!--END_SECTION:quran-->
 
   
