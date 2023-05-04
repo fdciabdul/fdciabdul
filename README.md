@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 50**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 88**
 
-Yet whenever We let him taste some of Our grace after hardship has visited him, he is sure to say, “This is but my due!” - and, “I do not think that the Last Hour will ever come: but if [it should come, and] I should indeed be brought back unto my Sus­tainer, then, behold, the ultimate good awaits me with Him! But [on the Day of Judgment] We shall most cer­tainly give those who were bent on denying the truth full understanding of all that they ever did, and shall most certainly give them [thereby] a taste of suffering severe.
+[But God has full knowledge of the true be­liever] and of his [despairing] cry: “O my Sustainer! Verily, these are people who will not believe!”
  <!--END_SECTION:quran-->
 
   
