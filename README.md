@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 23**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 24**
 
-And on that Day hell will be brought [within sight]; on that Day man will remember [all that he did and failed to do]: but what will that remembrance avail him?
+and leave the sea becalmed [between thee and Pharaoh’s men]: for, verily, they are a host destined to be drowned!”
  <!--END_SECTION:quran-->
 
   
