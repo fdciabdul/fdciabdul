@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 25**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 36**
 
-Those who lived before them did [too] give the lie to the truth - whereupon suffering befell them without their having perceived whence it came:
+But when she had given birth to the child, she said: "O my Sustainer! Behold, I have given birth to a female" - the while God had been fully aware of what she would give birth to, and [fully aware] that no male child [she might have hoped for] could ever have been like this female - "and I have named her Mary. And, verily, I seek Thy protection for her and her offspring against Satan, the accursed."
  <!--END_SECTION:quran-->
 
   
