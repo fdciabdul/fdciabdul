@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 116**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 39**
 
-[KNOW,] then, [that] God is sublimely exalted, the Ultimate Sovereign, the Ultimate Truth: there is no deity save Him, the Sustainer, in bountiful almightiness enthroned!
+And [thus, too, did We deal with] Qarun and Pharaoh, and Haman: to them had come Moses with all evidence of the truth, but they behaved arrogantly on earth [and rejected him]; and withal, they could not escape [Us].
  <!--END_SECTION:quran-->
 
   
