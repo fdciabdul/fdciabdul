@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 107**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 1**
 
-O our Sustainer! Cause us to come out of this [suffering] - and then, if ever We revert [to sinning], may we truly be [deemed] evildoers!”
+Ha. Mim.
  <!--END_SECTION:quran-->
 
   
