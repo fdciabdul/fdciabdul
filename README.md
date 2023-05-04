@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 43**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 13**
 
-Art thou not aware that it is God who causes the clouds to move onward, then joins them together, then piles them up in masses, until thou can see rain come forth from their midst? And He it is who sends down from the skies, by degrees, mountainous masses [of clouds] charged with hail, striking therewith whomever He wills and averting it from whomever He wills, [the while] the flash of His lightning well-nigh deprives [men of their] sight!
+O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.
  <!--END_SECTION:quran-->
 
   
