@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 93**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 32**
 
-Those who have attained to faith and do righteous deeds incur no sin by partaking of whatever they may, so long as they are conscious of God and [truly] believe and do righteous deeds, and continue to be conscious of God and to believe, and grow ever more conscious of God, and persevere in doing good: for God loves the doers of good.
+and has made the mountains firm:
  <!--END_SECTION:quran-->
 
   
