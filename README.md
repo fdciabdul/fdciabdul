@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 13**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 12**
 
-Behold, [in his earthly life] he lived joyfully among people of his own kind
+Oh, verily, it is they, they who are spreading corruption but they perceive it not?
  <!--END_SECTION:quran-->
 
   
