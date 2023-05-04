@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 6**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 1**
 
-"from all [temptation to evil by] invisible forces as well as men,"
+CONSIDER the sun and its radiant brightness,
  <!--END_SECTION:quran-->
 
   
