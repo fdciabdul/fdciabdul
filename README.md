@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 5**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 13**
 
-obeying its Sustainer, as in truth it must -:
+Behold, [in his earthly life] he lived joyfully among people of his own kind
  <!--END_SECTION:quran-->
 
   
