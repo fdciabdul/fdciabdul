@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 76**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 28**
 
-[whereas their knowledge is limited,] He knows all that lies open before them and all that is hidden from them for all things go back to God [as their source].
+He propounds unto you a parable drawn from your own life: Would you [agree to] have some of those whom your right hands possess as [full-fledged] partners in whatever We may have bestowed upon you as sustenance, so that you [and they] would have equal shares in it, and you would fear [to make use of it without consulting] them, just as you might fear [the more powerful of] your equals? Thus clearly do We spell out these messages unto people who use their reason.
  <!--END_SECTION:quran-->
 
   
