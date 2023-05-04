@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 3**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 7**
 
-Why - [how could we be resurrected] after we have died and become mere dust? Such a return seems far-fetched indeed!”
+who has created thee, and formed thee in accordance with what thou art meant' to be, and shaped thy nature in just proportions,
  <!--END_SECTION:quran-->
 
   
