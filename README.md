@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 9**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 43**
 
-in endless columns!
+Art thou not aware that it is God who causes the clouds to move onward, then joins them together, then piles them up in masses, until thou can see rain come forth from their midst? And He it is who sends down from the skies, by degrees, mountainous masses [of clouds] charged with hail, striking therewith whomever He wills and averting it from whomever He wills, [the while] the flash of His lightning well-nigh deprives [men of their] sight!
  <!--END_SECTION:quran-->
 
   
