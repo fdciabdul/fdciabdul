@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 128**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 3**
 
-[And] it is in no wise for thee [O Prophet] to decide whether He shall accept their repentance or chastise them - for, behold, they are but wrongdoers,
+and who determines the nature [of all that exists], and thereupon guides it [towards its fulfilment],
  <!--END_SECTION:quran-->
 
   
