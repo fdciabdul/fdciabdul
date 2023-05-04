@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 17**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 13**
 
-And [as for all such believers,] no human being can imagine what blissful delights, as yet hidden, await them [in the life to come] as a reward for all that they did.
+And, lo, Luqman spoke thus unto his son, admonishing him: “O my dear son! Do not ascribe divine powers to aught beside God: for, behold, such [a false] ascribing of divinity is indeed an awesome wrong!
  <!--END_SECTION:quran-->
 
   
