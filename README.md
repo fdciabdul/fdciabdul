@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 7**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 9**
 
-And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.
+And there was Pharaoh, too, and [many of] those who lived before him, and the cities that were overthrown - [all of them] indulged in sin upon sin
  <!--END_SECTION:quran-->
 
   
