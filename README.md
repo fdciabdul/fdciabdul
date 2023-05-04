@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 1**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 15**
 
-SAY: "O you who deny the truth!
+and remembers his Sustainer's name, and prays [unto Him].
  <!--END_SECTION:quran-->
 
   
