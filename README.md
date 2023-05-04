@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 11**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 18**
 
-Their apostles answered them: "True, we are nothing but mortal men like yourselves: but God bestows His favour upon whomever He wills of His servants. Withal, it is not within our power to bring you a proof [of our mission], unless it be by God's leave-and [so] it is in God that all believers must place their trust.
+not even a word can he utter but there is a watcher with him, ever-present.
  <!--END_SECTION:quran-->
 
   
