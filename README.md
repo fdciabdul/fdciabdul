@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 23**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
 
-he truly beheld [the angel - beheld] him on the clear horizon;
+together with his wife, that carrier of evil tales,
  <!--END_SECTION:quran-->
 
   
