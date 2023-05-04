@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 6**
 
-"God the Eternal, the Uncaused Cause of All Being.
+WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],
  <!--END_SECTION:quran-->
 
   
