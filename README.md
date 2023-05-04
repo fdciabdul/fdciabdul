@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 51**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
 
-And [then] the trumpet [of resurrection] will be blown - and lo! out of their graves towards their Sustainer will they all rush forth!
+"and from the evil of the envious when he envies."
  <!--END_SECTION:quran-->
 
   
