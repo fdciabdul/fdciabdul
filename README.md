@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
+**Surah 38: سُورَةُ صٓ (Saad) - 23**
 
-In the end you will indeed, most surely, behold it with the eye of certainty:
+“Behold, this is my brother: he has ninety-nine ewes, whereas I have [only] one ewe - and yet he said, ‘Make her over to me,’ and forcibly prevailed against me in this [our] dispute.”
  <!--END_SECTION:quran-->
 
   
