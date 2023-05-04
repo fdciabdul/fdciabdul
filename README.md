@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 64**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 1**
 
-And [then he said]: "O my people! This she-camel belonging to God shall be a token for you: so leave her alone to pasture on God's earth, and do her no harm, lest speedy chastisement befall you!"
+SAY: "O you who deny the truth!
  <!--END_SECTION:quran-->
 
   
