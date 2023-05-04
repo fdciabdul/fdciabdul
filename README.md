@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 72**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
 
-As it is, whenever Our messages are conveyed unto them in all their clarity, thou canst perceive utter repugnance on the faces of those who are bent on denying the truth: they would almost assault those who convey Our messages unto them! Say: “Shall I, then, tell you of something worse than what you feel at present? It is the fire [of the hereafter] that God has promised to those who are bent on denying the truth: and how vile a journey’s end!”
+"God the Eternal, the Uncaused Cause of All Being.
  <!--END_SECTION:quran-->
 
   
