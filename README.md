@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 7**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
 
-who has created thee, and formed thee in accordance with what thou art meant' to be, and shaped thy nature in just proportions,
+"He begets not, and neither is He begotten;
  <!--END_SECTION:quran-->
 
   
