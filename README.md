@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 6**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 5**
 
-the Day when all men shall stand before the Sustainer of all the worlds?
+for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
