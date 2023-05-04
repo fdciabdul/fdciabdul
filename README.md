@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 1**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 18**
 
-CONSIDER the sun and its radiant brightness,
+and [seeing that] unto Him is due all praise in the heavens and on earth, [glorify Him] in the afternoon as well, and when you enter upon the hour of noon.
  <!--END_SECTION:quran-->
 
   
