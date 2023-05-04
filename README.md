@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 15**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 5**
 
-and remembers his Sustainer's name, and prays [unto Him].
+obeying its Sustainer, as in truth it must -:
  <!--END_SECTION:quran-->
 
   
