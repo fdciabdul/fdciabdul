@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 10**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 41**
 
-"'And [now we have become aware] that we [created beings] may not know whether evil fortune is intended for [any of] those who live on earth, or whether it is their Sustainer’s will to endow them with consciousness of what is right:
+Yet indeed, as for any who defend themselves after having been wronged - no blame whatever attaches to them:
  <!--END_SECTION:quran-->
 
   
