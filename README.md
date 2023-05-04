@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 43**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 19**
 
-Limitless is He in His glory, and sublimely, immeasurably exalted above anything that men may say [about Him]
+CAN, THEN, he who knows that whatever has been bestowed from on high upon thee by thy Sustainer is the truth be deemed equal to one who is blind? Only they who are endowed with insight keep this in mind:
  <!--END_SECTION:quran-->
 
   
