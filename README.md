@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 3**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 51**
 
-and who determines the nature [of all that exists], and thereupon guides it [towards its fulfilment],
+And [then] the trumpet [of resurrection] will be blown - and lo! out of their graves towards their Sustainer will they all rush forth!
  <!--END_SECTION:quran-->
 
   
