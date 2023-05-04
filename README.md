@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 5**
 
-"and from the evil of the envious when he envies."
+Does he, then, think that no one has power over him?
  <!--END_SECTION:quran-->
 
   
