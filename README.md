@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 10**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 7**
 
-and [man] will have neither strength nor helper!
+BEHOLD, all that you are told to expect will surely come to pass.
  <!--END_SECTION:quran-->
 
   
