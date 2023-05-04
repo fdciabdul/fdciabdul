@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 9**
 
-together with his wife, that carrier of evil tales,
+[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!
  <!--END_SECTION:quran-->
 
   
