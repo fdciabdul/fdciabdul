@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 19**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 190**
 
-CAN, THEN, he who knows that whatever has been bestowed from on high upon thee by thy Sustainer is the truth be deemed equal to one who is blind? Only they who are endowed with insight keep this in mind:
+In this [story], behold, there is a message [unto men], even though most of them will not believe [in it].
  <!--END_SECTION:quran-->
 
   
