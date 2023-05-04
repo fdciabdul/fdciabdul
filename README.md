@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 11**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 23**
 
-wherein thou wilt hear no empty talk.
+he truly beheld [the angel - beheld] him on the clear horizon;
  <!--END_SECTION:quran-->
 
   
