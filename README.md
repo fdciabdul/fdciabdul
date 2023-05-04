@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 162**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 9**
 
-But as for those from among them who are deeply rooted in knowledge, and the believers who believe in that which has been bestowed upon thee from on high as well as that which was bestowed from on high before thee, and those who are [es­pecially] constant in prayer, and spend in charity, and all who believe in God and the Last Day - these it is unto whom We shall grant a mighty reward.
+for what crime she had been slain,
  <!--END_SECTION:quran-->
 
   
