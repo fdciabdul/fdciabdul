@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 18**
 
-"He begets not, and neither is He begotten;
+Said [the others]: “Truly, we augur evil from you! Indeed, if you desist not, we will surely stone you, and grievous suffering is bound to befall you at our hands!”
  <!--END_SECTION:quran-->
 
   
