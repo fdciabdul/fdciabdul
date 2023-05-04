@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 5**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 11**
 
-Does he, then, think that no one has power over him?
+But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.
  <!--END_SECTION:quran-->
 
   
