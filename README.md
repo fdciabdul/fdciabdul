@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 6**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 19**
 
-this, because time and again there came unto them their apostles with all evidence of the truth, but they [always] replied, "Shall mere mortal men be our guides?" And so they. denied the truth and turned away. But God was not in need [of them]: for God is self-sufficient, ever to be praised.
+Hence, [warn all men of] the Day when the enemies of God shall be gathered together before the fire, and then shall be driven onward,
  <!--END_SECTION:quran-->
 
   
