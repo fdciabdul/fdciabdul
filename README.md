@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 134**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 72**
 
-For [thus it is:] had We destroyed them by means of a chastisement ere this [divine writ was revealed], they would indeed [be justified to] say [on Judgment Day]: "O our Sustainer! If only Thou hadst sent an apostle unto us, we would have followed Thy messages rather than be humiliated and disgraced [in the hereafter]!"
+As it is, whenever Our messages are conveyed unto them in all their clarity, thou canst perceive utter repugnance on the faces of those who are bent on denying the truth: they would almost assault those who convey Our messages unto them! Say: “Shall I, then, tell you of something worse than what you feel at present? It is the fire [of the hereafter] that God has promised to those who are bent on denying the truth: and how vile a journey’s end!”
  <!--END_SECTION:quran-->
 
   
