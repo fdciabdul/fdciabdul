@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 19**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 28**
 
-not as payment for favours received,
+SAY [O Prophet]: "What do you think? Whether God destroys me and those who follow me, or graces us with His mercy - is there anyone that could protect [you] deniers of the truth from grievous suffering [in the life to come]?"
  <!--END_SECTION:quran-->
 
   
