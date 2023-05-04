@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 13**
 
-"He begets not, and neither is He begotten;
+O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.
  <!--END_SECTION:quran-->
 
   
