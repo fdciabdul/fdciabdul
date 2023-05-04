@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 36**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 53**
 
-DOES MAN, then, think that he is to be left to himself to go about at will?
+seeing that aforetime they had been bent on denying the truth, and had been wont to cast scorn, from far away, on something that was beyond the reach of human perception?
  <!--END_SECTION:quran-->
 
   
