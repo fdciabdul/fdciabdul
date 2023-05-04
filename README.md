@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 4**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 24**
 
-Verily, We create man in the best conformation;
+He is God, the Creator, the Maker who shapes all forms and appearances! His [alone] are the attributes of perfection. All that is in the heavens and on earth extols His limitless glory: for He alone is almighty, truly wise!
  <!--END_SECTION:quran-->
 
   
