@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 4**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 4**
 
-Now as for such of your women as are beyond, the age of monthly courses, as well as for such as do not have any courses, their waiting-period - if you have any doubt [about it] - shall be three [calendar] months; and as for those who are with child, the end of their waiting-term shall come when they deliver their burden. And for everyone who is conscious of God, He makes it easy to obey His commandment:
+it is they, they who are truly believers! Theirs shall be great dignity in their Sustainer's sight, and forgiveness of sins, and a most excellent sustenance.
  <!--END_SECTION:quran-->
 
   
