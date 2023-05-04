@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 42**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 36**
 
-they, too, gave the lie to all Our messages: and thereupon We took them to task as only the Almighty, who determines all things, can take to task.
+DOES MAN, then, think that he is to be left to himself to go about at will?
  <!--END_SECTION:quran-->
 
   
