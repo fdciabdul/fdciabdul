@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 190**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 6**
 
-In this [story], behold, there is a message [unto men], even though most of them will not believe [in it].
+the Day when all men shall stand before the Sustainer of all the worlds?
  <!--END_SECTION:quran-->
 
   
