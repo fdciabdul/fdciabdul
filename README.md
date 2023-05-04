@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 9**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 33**
 
-for what crime she had been slain,
+And do not take any human being's life -[the life] which God has willed to be, sacred-otherwise than in [the pursuit of] justice. Hence, if anyone has been slain wrongfully, We have empowered the defender of his rights [to exact a just retribution]; but even so, let him not exceed the bounds of equity in [retributive] killing. [And as for him who has been slain wrongfully -] behold, he is indeed succoured [by God]!
  <!--END_SECTION:quran-->
 
   
