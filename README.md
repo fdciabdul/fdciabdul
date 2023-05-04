@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 20**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 76**
 
-yea, he destroys himself, the way he meditates!
+[whereas their knowledge is limited,] He knows all that lies open before them and all that is hidden from them for all things go back to God [as their source].
  <!--END_SECTION:quran-->
 
   
