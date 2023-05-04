@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 43**
 
-in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
+and be constant in prayer, and spend in charity, and bow down in prayer with all who thus bow down.
  <!--END_SECTION:quran-->
 
   
