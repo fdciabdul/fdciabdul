@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 23**
 
-and neither will you [ever] worship that which I worship.
+And on that Day hell will be brought [within sight]; on that Day man will remember [all that he did and failed to do]: but what will that remembrance avail him?
  <!--END_SECTION:quran-->
 
   
