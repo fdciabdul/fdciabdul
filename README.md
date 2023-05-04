@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 18**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 116**
 
-not even a word can he utter but there is a watcher with him, ever-present.
+[KNOW,] then, [that] God is sublimely exalted, the Ultimate Sovereign, the Ultimate Truth: there is no deity save Him, the Sustainer, in bountiful almightiness enthroned!
  <!--END_SECTION:quran-->
 
   
