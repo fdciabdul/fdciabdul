@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 156**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
 
-O you who have attained to faith! Be not like those who are bent on denying the truth and say of their brethren [who die] after having set out on a journey to faraway places or gone forth to war, "Had they but remained with us, they would not have died," or, "they would not have been slain" - for God will cause such thoughts to become a source of bitter regret in their hearts, since it is God who grants life and deals death. And God sees all that you do.
+In the end you will indeed, most surely, behold it with the eye of certainty:
  <!--END_SECTION:quran-->
 
   
