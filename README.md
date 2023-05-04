@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 7**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 29**
 
-BEHOLD, all that you are told to expect will surely come to pass.
+The judgment passed by Me shall not be altered; but never do I do the least wrong unto My creatures!”
  <!--END_SECTION:quran-->
 
   
