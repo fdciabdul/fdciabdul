@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 29**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
 
-The judgment passed by Me shall not be altered; but never do I do the least wrong unto My creatures!”
+and neither will you [ever] worship that which I worship.
  <!--END_SECTION:quran-->
 
   
