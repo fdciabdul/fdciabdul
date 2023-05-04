@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 28**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 7**
 
-SAY [O Prophet]: "What do you think? Whether God destroys me and those who follow me, or graces us with His mercy - is there anyone that could protect [you] deniers of the truth from grievous suffering [in the life to come]?"
+And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.
  <!--END_SECTION:quran-->
 
   
