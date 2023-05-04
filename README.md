@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 5**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 50**
 
-Does he, then, think that no one has power over him?
+Yet whenever We let him taste some of Our grace after hardship has visited him, he is sure to say, “This is but my due!” - and, “I do not think that the Last Hour will ever come: but if [it should come, and] I should indeed be brought back unto my Sus­tainer, then, behold, the ultimate good awaits me with Him! But [on the Day of Judgment] We shall most cer­tainly give those who were bent on denying the truth full understanding of all that they ever did, and shall most certainly give them [thereby] a taste of suffering severe.
  <!--END_SECTION:quran-->
 
   
