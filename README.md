@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 5**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 11**
 
-for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.
+enveloping all mankind, [and causing the sinners to exclaim:] “Grievous is this suffering!
  <!--END_SECTION:quran-->
 
   
