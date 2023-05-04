@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 18**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 30**
 
-And We send down water from the skies in accordance with a measure [set by Us], and then We cause it to lodge in the earth: but, behold, We are most certainly able to withdraw this [blessing]!
+But you cannot will it unless God wills [to show you that way]: for, behold, God is indeed all-seeing, wise.
  <!--END_SECTION:quran-->
 
   
