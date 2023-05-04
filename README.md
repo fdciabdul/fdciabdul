@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 12**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 9**
 
-Oh, verily, it is they, they who are spreading corruption but they perceive it not?
+in endless columns!
  <!--END_SECTION:quran-->
 
   
