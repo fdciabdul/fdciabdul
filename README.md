@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 13**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 1**
 
-And, lo, Luqman spoke thus unto his son, admonishing him: “O my dear son! Do not ascribe divine powers to aught beside God: for, behold, such [a false] ascribing of divinity is indeed an awesome wrong!
+YOU ARE OBSESSED by greed for more and more
  <!--END_SECTION:quran-->
 
   
