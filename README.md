@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 1**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 93**
 
-Ha. Mim.
+Those who have attained to faith and do righteous deeds incur no sin by partaking of whatever they may, so long as they are conscious of God and [truly] believe and do righteous deeds, and continue to be conscious of God and to believe, and grow ever more conscious of God, and persevere in doing good: for God loves the doers of good.
  <!--END_SECTION:quran-->
 
   
