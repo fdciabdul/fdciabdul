@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 11**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
 
-But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.
+in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
  <!--END_SECTION:quran-->
 
   
