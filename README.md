@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 32**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 3**
 
-and has made the mountains firm:
+Why - [how could we be resurrected] after we have died and become mere dust? Such a return seems far-fetched indeed!”
  <!--END_SECTION:quran-->
 
   
