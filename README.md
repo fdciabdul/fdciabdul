@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 6**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 18**
 
-WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],
+And We send down water from the skies in accordance with a measure [set by Us], and then We cause it to lodge in the earth: but, behold, We are most certainly able to withdraw this [blessing]!
  <!--END_SECTION:quran-->
 
   
