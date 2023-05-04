@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 151**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 42**
 
-it is they, they who are truly denying the truth: and for those who deny the truth We have readied shameful suffering.
+they, too, gave the lie to all Our messages: and thereupon We took them to task as only the Almighty, who determines all things, can take to task.
  <!--END_SECTION:quran-->
 
   
