@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 1**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 8**
 
-EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,
+As for such [of the unbelievers] as do not fight against you on account of [your] faith, and neither drive you forth from your homelands, God does not forbid you to show them kindness and to behave towards them with full equity: for, verily, God loves those who act equitably.
  <!--END_SECTION:quran-->
 
   
