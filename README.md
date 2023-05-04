@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 7**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 10**
 
-However, they who are bent on denying the truth [refuse to believe and] say, "Why has no miraculous sign ever been bestowed on him from on high by his Sustainer?" [But] thou art only a warmer; and [in God] all people have a guide.
+and truly lost is he who buries it [in darkness].
  <!--END_SECTION:quran-->
 
   
