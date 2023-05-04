@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 9**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 25**
 
-And there was Pharaoh, too, and [many of] those who lived before him, and the cities that were overthrown - [all of them] indulged in sin upon sin
+Those who lived before them did [too] give the lie to the truth - whereupon suffering befell them without their having perceived whence it came:
  <!--END_SECTION:quran-->
 
   
