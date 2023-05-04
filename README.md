@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 9**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 115**
 
-well-pleased with [the fruit of] their striving,
+And God would never-after having invited them to His guidance -condemn people for going astray ere He has made [entirely] clear unto them of what they should beware. Verily, God has full knowledge of everything.
  <!--END_SECTION:quran-->
 
   
