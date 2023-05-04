@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 64**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 1**
 
-Oh, verily, unto God belongs all that is in the heavens and on earth: well does He know where you stand and at what you aim! And one Day, all [who have ever lived] will be brought back unto Him, and then He will make them [truly] understand all that they were doing [in life]: for, God has full knowledge of everything.
+EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,
  <!--END_SECTION:quran-->
 
   
