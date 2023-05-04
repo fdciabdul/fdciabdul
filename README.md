@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 88**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 30**
 
-[But God has full knowledge of the true be­liever] and of his [despairing] cry: “O my Sustainer! Verily, these are people who will not believe!”
+and whenever they pass by them, they wink at one another [derisively];
  <!--END_SECTION:quran-->
 
   
