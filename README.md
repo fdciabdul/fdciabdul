@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 10**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 8**
 
-and [when] no friend will ask about his friend,
+for, behold, unto thy Sustainer all must return.
  <!--END_SECTION:quran-->
 
   
