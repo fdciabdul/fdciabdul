@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 107**
 
-And, behold, with every hardship comes ease:
+O our Sustainer! Cause us to come out of this [suffering] - and then, if ever We revert [to sinning], may we truly be [deemed] evildoers!”
  <!--END_SECTION:quran-->
 
   
