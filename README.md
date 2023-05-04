@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 3**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 25**
 
-and when the earth is leveled,
+“Verily, [O my people,] in the Sustainer of you all have I come to believe: listen, then, to me!”
  <!--END_SECTION:quran-->
 
   
