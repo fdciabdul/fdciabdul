@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 25**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 11**
 
-“Verily, [O my people,] in the Sustainer of you all have I come to believe: listen, then, to me!”
+Their apostles answered them: "True, we are nothing but mortal men like yourselves: but God bestows His favour upon whomever He wills of His servants. Withal, it is not within our power to bring you a proof [of our mission], unless it be by God's leave-and [so] it is in God that all believers must place their trust.
  <!--END_SECTION:quran-->
 
   
