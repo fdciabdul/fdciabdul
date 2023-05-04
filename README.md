@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 151**
 
-SAY: "I seek refuge with the Sustainer of men,
+it is they, they who are truly denying the truth: and for those who deny the truth We have readied shameful suffering.
  <!--END_SECTION:quran-->
 
   
