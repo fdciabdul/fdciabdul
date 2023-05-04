@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 20**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 5**
 
-[And] is there any, besides the Most Gracious, that could be a shield for you, and could succour you [against danger]? They who deny this truth are but lost in self- delusion!
+[for] all this is God's commandment, which He has bestowed upon you from on high. And unto everyone who is conscious of God will He pardon [some of] his bad deeds, and will grant him a vast reward.
  <!--END_SECTION:quran-->
 
   
