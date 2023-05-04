@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 43**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 12**
 
-and be constant in prayer, and spend in charity, and bow down in prayer with all who thus bow down.
+GOD is He who has created seven heavens, and, like them, [the many aspects] of the earth. Through all of them flows down from on high, unceasingly, His [creative] will, so that you might come to know that God has the power to will anything, and that God encompasses all things with His knowledge.
  <!--END_SECTION:quran-->
 
   
