@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 9**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 128**
 
-[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!
+[And] it is in no wise for thee [O Prophet] to decide whether He shall accept their repentance or chastise them - for, behold, they are but wrongdoers,
  <!--END_SECTION:quran-->
 
   
