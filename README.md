@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 10**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 134**
 
-and truly lost is he who buries it [in darkness].
+For [thus it is:] had We destroyed them by means of a chastisement ere this [divine writ was revealed], they would indeed [be justified to] say [on Judgment Day]: "O our Sustainer! If only Thou hadst sent an apostle unto us, we would have followed Thy messages rather than be humiliated and disgraced [in the hereafter]!"
  <!--END_SECTION:quran-->
 
   
