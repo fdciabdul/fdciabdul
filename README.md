@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 11**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 19**
 
-enveloping all mankind, [and causing the sinners to exclaim:] “Grievous is this suffering!
+not as payment for favours received,
  <!--END_SECTION:quran-->
 
   
