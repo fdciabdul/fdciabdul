@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 30**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 10**
 
-and whenever they pass by them, they wink at one another [derisively];
+"'And [now we have become aware] that we [created beings] may not know whether evil fortune is intended for [any of] those who live on earth, or whether it is their Sustainer’s will to endow them with consciousness of what is right:
  <!--END_SECTION:quran-->
 
   
