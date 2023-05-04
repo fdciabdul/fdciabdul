@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 16**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 3**
 
-Now among those [hapless sinners] are such as [pretend to] listen to thee, [O Muhammad,] and then, as soon as they leave thy presence, speak [with scorn] unto those who have understood [thy mes­sage]: “What is it that he has said just now?” It is such as these whose hearts God has sealed because they [always] followed but their own lusts
+hence, as for those who would separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, and thereafter would go back on what they have said, [their atonement] shall be the freeing of a human being from bondage before the couple may touch one another again: this you are [hereby] exhorted to do - for God is fully aware of all that you do.
  <!--END_SECTION:quran-->
 
   
