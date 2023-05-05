@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 50**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 9**
 
-clothed in garments of black pitch, with fire veiling their faces.
+in endless columns!
  <!--END_SECTION:quran-->
 
   
