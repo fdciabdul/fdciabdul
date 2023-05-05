@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 71**
 
-Behold, it is this [kind of man] that thrusts the orphan away,
+[Lot] said: "[Take instead] these daughters of mine, if you must do [whatever you intend to do]!"
  <!--END_SECTION:quran-->
 
   
