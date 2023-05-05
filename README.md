@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 7**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 7**
 
-But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.
+the Sustainer of the heavens and the earth and all that is between them - if you could but grasp it with inner certainty!
  <!--END_SECTION:quran-->
 
   
