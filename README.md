@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 22**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 13**
 
-But then, is he that goes along with his face close to the ground better guided than he that walks upright on a straight way?
+Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!
  <!--END_SECTION:quran-->
 
   
