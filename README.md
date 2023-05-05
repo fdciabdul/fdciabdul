@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 16**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 13**
 
-And how severe is the suffering which I inflict when My warnings are disregarded!
+Behold, [in the life to come] the truly virtuous: will indeed be in bliss,
  <!--END_SECTION:quran-->
 
   
