@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 6**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 26**
 
-He boasts, "I have spent wealth abundant!"
+And, indeed, [to the same end] We sent forth Noah and Abraham [as Our message-bearers], and established prophethood and revelation among their descendants; and some of them were on the right way, but many were iniquitous.
  <!--END_SECTION:quran-->
 
   
