@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 31**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 17**
 
-Thereupon God sent forth a raven which scratched the earth, to show him how he might conceal the nakedness of his brother's body. [And Cain] cried out: "Oh, woe is me! Am I then too weak to do what this raven did, and to conceal the nakedness of my brother's body?" - and was thereupon smitten with remorse.
+Immortal youths will wait upon them
  <!--END_SECTION:quran-->
 
   
