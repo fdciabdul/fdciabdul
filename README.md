@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 3**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 2**
 
-Consider the day as it reveals the world,
+They have made their oaths a cover [for their falseness], and thus they turn others away from the Path of God. Evil indeed is all that they are wont to do:
  <!--END_SECTION:quran-->
 
   
