@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 5**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 24**
 
-[and] that He might admit the believers, both men and women, into gardens through which running waters flow, therein to abide, and that He might efface their [past bad] deeds: and that is, in the sight of God, indeed a triumph supreme!
+And so, when they beheld it in the shape of a dense cloud approaching their valleys, they exclaimed, “This is but a heavy cloud which will bring us [wel­come] rain!” [But Hud said:] “Nay, but it is the very thing which you [so contemptuously] sought to hasten - a wind bearing grievous suffering,
  <!--END_SECTION:quran-->
 
   
