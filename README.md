@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 11**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 44**
 
-Say: “[One day,] the angel of death who has been given charge of you will gather you, and then unto your Sustainer you will be brought back.”
+Or dost thou think that most of them listen [to thy message] and use their reason? Nay, they are but like cattle - nay, they are even less conscious of the right way!
  <!--END_SECTION:quran-->
 
   
