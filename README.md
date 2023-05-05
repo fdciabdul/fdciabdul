@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 177**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 64**
 
-Evil is the example of people who are bent on giving the lie to Our messages: for it is against their own selves that they are sinning!
+Verily, God has rejected the deniers of the truth, and has readied for them a blazing fire,
  <!--END_SECTION:quran-->
 
   
