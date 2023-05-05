@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 67**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
 
-And [We grant you nourishment] from the fruit of date-palms and vines: from it you derive intoxicants as well as wholesome sustenance -in this, behold, there is a message indeed for people who use their reason!
+What will his wealth avail him, and all that he has gained?
  <!--END_SECTION:quran-->
 
   
