@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 18**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 172**
 
-and [neither will] they [who] worship, side by side with God, things or beings that can neither harm nor benefit them, saying [to themselves], "These are our intercessors with God!" Say: "Do you [think that you could] inform God of anything in the heavens or on earth that He does not know? Limitless is He in His glory, and sublimely exalted above anything to which men may ascribe a share in His divinity!"
+Never did the Christ feel too proud to be God's servant, nor do the angels who are near unto Him. And those who feel too proud to serve Him and glory in their arrogance [should know that on Judgment Day] He will gather them all unto Himself:
  <!--END_SECTION:quran-->
 
   
