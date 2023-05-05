@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 35**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 10**
 
-and their prayers before the Temple are nothing but whistling and clapping of hands. Taste then, [O unbelievers,] this chastisement as an outcome of your persistent denial of the truth!
+And thus it is: if We let him taste ease and plenty after hardship has visited him, he is sure to say, "Gone is all affliction from me!"-for, behold, he is given to vain exultation, and glories only in himself.
  <!--END_SECTION:quran-->
 
   
