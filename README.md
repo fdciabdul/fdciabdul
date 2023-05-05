@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 1**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 160**
 
-WHEN THE SUN is shrouded in darkness,
+And We divided them into twelve tribes, [or] communities. And when his people asked Moses for water, We inspired him, "Strike the rock with thy staff!" -whereupon twelve springs gushed forth from it, so that all the people knew whence to drink., And We caused the clouds to comfort them with their shade, and We sent down unto them manna and quails, [saying:] "Partake of the good things which We have provided for you as sustenance." And [by all their sinning] they did no harm unto Us-but [only] against their own selves did they sin.
  <!--END_SECTION:quran-->
 
   
