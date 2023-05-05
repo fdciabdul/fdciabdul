@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 2**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 5**
 
-created man out of a germ-cell
+[and] that He might admit the believers, both men and women, into gardens through which running waters flow, therein to abide, and that He might efface their [past bad] deeds: and that is, in the sight of God, indeed a triumph supreme!
  <!--END_SECTION:quran-->
 
   
