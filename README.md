@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 2**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
 
-and the day as it rises bright!
+CONSIDER the flight of time!
  <!--END_SECTION:quran-->
 
   
