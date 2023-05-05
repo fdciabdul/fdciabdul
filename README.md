@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 11**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 29**
 
-Say [O Muhammad]: “Behold, I am bidden to worship God, sincere in my faith in Him alone;
+They answered: "Limitless in His glory is our Sustainer! Verily, we were doing wrong!"
  <!--END_SECTION:quran-->
 
   
