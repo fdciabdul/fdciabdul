@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 11**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 44**
 
-he will in time pray for utter destruction:
+Have they never journeyed about the earth and beheld what happened in the end to those [deniers of the truth] who lived before their time and were [so much] greater than they in power? And [do they not see that the will of] God can never be foiled by anything whatever in the heavens or on earth, since, verily, He is all-knowing, infinite in His power?
  <!--END_SECTION:quran-->
 
   
