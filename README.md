@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 96**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 31**
 
-Lawful to you is all water-game, and what the sea brings forth, as a provision for you [who are settled] as well as for travellers, although you are forbidden to hunt on land while you are in the state of pilgrimage. And be conscious of God, unto whom you shall be gathered.
+and most certainly We shall try you all, so that We might mark out those of you who strive hard [in Our cause] and are patient in adversity: for We shall put to a test [the truth of] all your assertions.
  <!--END_SECTION:quran-->
 
   
