@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 119**
 
-CONSIDER the flight of time!
+[AND on Judgment Day] God will say: "Today, their truthfulness shall benefit all who have been true to their word: theirs shall be gardens through which running waters flow, therein to abide beyond the count of time; well-pleased is God with them, and well-pleased are they with Him: this is the triumph supreme."
  <!--END_SECTION:quran-->
 
   
