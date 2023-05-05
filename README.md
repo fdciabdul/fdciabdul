@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 29**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 13**
 
-They answered: "Limitless in His glory is our Sustainer! Verily, we were doing wrong!"
+On that Day shall the hypocrites, both men and women, speak [thus] unto those who have attained to faith: “Wait for us! Let us have a [ray of] light from your light!” [But] they will be told: “Turn back, and seek a light [of your own]!” And thereupon a wall will be raised between them [and the believers], with a gate in it: within it will be grace and mercy, and against the outside thereof, suffering.
  <!--END_SECTION:quran-->
 
   
