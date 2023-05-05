@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 27**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 7**
 
-And if all the trees on earth were pens, and the sea [were] ink, with seven [morel seas yet added to it, the words of God would not be exhausted: for, verily, God is almighty, wise.
+But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.
  <!--END_SECTION:quran-->
 
   
