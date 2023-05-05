@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 2**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 51**
 
-and when the stars are scattered,
+[And all shall be judged on that Day,] so that God may requite every human being for all that he has earned [in life]: verily, God is swift in reckoning!
  <!--END_SECTION:quran-->
 
   
