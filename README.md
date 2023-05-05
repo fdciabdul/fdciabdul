@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 4**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 9**
 
-And never have We destroyed any community [for its wrongdoing] unless a divine writ had (previously] been made known to it;
+so that you [O men] might believe in God and His Apostle, and might honour Him, and revere Him, and extol His limitless glory from morn to evening.
  <!--END_SECTION:quran-->
 
   
