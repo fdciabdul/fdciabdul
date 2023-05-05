@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 57**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
 
-Verily, as for those who [knowingly] affront God and His Apostle - God will reject them in this world and in the life to come; and shameful suffering will He ready for them.
+Behold, it is this [kind of man] that thrusts the orphan away,
  <!--END_SECTION:quran-->
 
   
