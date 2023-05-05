@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 45**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 102**
 
-And yet, whenever God alone is mentioned, the hearts of those who will not believe in the life to come contract with bitter aversion - whereas, when those [imaginary powers] are mentioned side by side with Him, lo, they rejoice!
+Say: "Holy inspiration has brought it down from thy Sustainer by stages, setting forth the truth, so that it might give firmness unto those who have attained to faith, and provide guidance and a glad tiding unto all who have surrendered themselves to God."
  <!--END_SECTION:quran-->
 
   
