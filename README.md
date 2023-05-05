@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 19**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 105**
 
-Verily, as for those who like [to hear] foul slander spread against [any of] those who have attained to faith grievous suffering awaits them in this world and in the life to come: for God knows [the full truth], whereas you know [it] not.
+It is but they who will not believe in God's messages that invent this falsehood; and it is they, they who are lying!
  <!--END_SECTION:quran-->
 
   
