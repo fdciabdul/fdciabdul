@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 6**
 
-and lifted from thee the burden
+excepting only such as attain to faith and do good works: and theirs shall be a reward unending!
  <!--END_SECTION:quran-->
 
   
