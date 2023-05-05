@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 102**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 14**
 
-Say: "Holy inspiration has brought it down from thy Sustainer by stages, setting forth the truth, so that it might give firmness unto those who have attained to faith, and provide guidance and a glad tiding unto all who have surrendered themselves to God."
+and the dwellers of the wooded dales [of Madyan], and the people of Tubba: they all gave the lie to the apostles - and thereupon that whereof I had warned [them] came true.
  <!--END_SECTION:quran-->
 
   
