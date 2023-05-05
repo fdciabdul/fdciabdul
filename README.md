@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 109**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 11**
 
-On that Day, intercession shall be of no avail [to any] save him in whose case the Most Gracious will have granted leave therefor, and whose word [of faith) He will have accepted:
+Say [O Muhammad]: “Behold, I am bidden to worship God, sincere in my faith in Him alone;
  <!--END_SECTION:quran-->
 
   
