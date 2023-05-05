@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 2**
 
-HAVE WE NOT opened up thy heart,
+and when the stars are scattered,
  <!--END_SECTION:quran-->
 
   
