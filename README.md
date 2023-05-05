@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 18**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 58**
 
-INDEED, well-pleased was God with the believers when they pledged their allegiance unto thee [O Muhammad] under that tree, for He knew what was in their hearts; and so He bestowed inner peace upon them from on high, and rewarded them with [the glad tiding of] a victory soon to come
+Have you ever considered that [seed] which you emit?
  <!--END_SECTION:quran-->
 
   
