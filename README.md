@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 7**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 19**
 
-And behold, whenever I called unto them with a view to Thy granting them forgiveness, they put their fingers into their ears, and wrapped themselves up in their garments [of sin]; and grew obstinate, and became [yet more] arrogant in their false pride.
+Verily, as for those who like [to hear] foul slander spread against [any of] those who have attained to faith grievous suffering awaits them in this world and in the life to come: for God knows [the full truth], whereas you know [it] not.
  <!--END_SECTION:quran-->
 
   
