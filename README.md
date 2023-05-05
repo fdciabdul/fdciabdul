@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 4**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 3**
 
-Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!
+Is it not to God alone that all sincere faith is due? And yet, they who take for their protectors aught beside Him [are wont to say], “We worship them for no other reason than that they bring us nearer to God.” Behold, God will judge between them [on Resur­rection Day] with regard to all wherein they differ [from the truth]: for, verily, God does not grace with His guidance anyone who is bent on lying [to himself and is] stubbornly ingrate!
  <!--END_SECTION:quran-->
 
   
