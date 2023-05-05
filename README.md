@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 2**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 19**
 
-created man out of a germ-cell
+[even thus, O men,] are you bound to move; onward from stage to stage.
  <!--END_SECTION:quran-->
 
   
