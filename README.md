@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 18**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 5**
 
-Verily, [all] this has indeed been [said] in the earlier revelations –
+"who whispers in the hearts of men
  <!--END_SECTION:quran-->
 
   
