@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 23**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 35**
 
-“Behold, this is my brother: he has ninety-nine ewes, whereas I have [only] one ewe - and yet he said, ‘Make her over to me,’ and forcibly prevailed against me in this [our] dispute.”
+and their prayers before the Temple are nothing but whistling and clapping of hands. Taste then, [O unbelievers,] this chastisement as an outcome of your persistent denial of the truth!
  <!--END_SECTION:quran-->
 
   
