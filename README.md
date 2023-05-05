@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 5**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 62**
 
-as thy Sustainer will have inspired her to do!
+And should they seek but to deceive thee [by their show of peace] - behold, God is enough for thee! He it is who has strengthened thee with His succour, and by giving thee believing followers
  <!--END_SECTION:quran-->
 
   
