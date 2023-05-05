@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 40**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 6**
 
-and a good many of later times.
+in pur­suance of thy Sustainer’s grace [unto man]. Verily, He alone is all-hearing, all-knowing,
  <!--END_SECTION:quran-->
 
   
