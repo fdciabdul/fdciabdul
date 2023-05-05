@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 23**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 4**
 
-Said he: “Knowledge [of when it is to befall you] rests with God alone: I but convey unto you the message with which I have been entrusted; but I see that you are people ignorant [of right and wrong]!”
+all the angels and all the inspiration [ever granted to man] ascend unto Him [daily,] in a day the length whereof is [like] fifty thousand years…
  <!--END_SECTION:quran-->
 
   
