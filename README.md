@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 5**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 2**
 
-"who whispers in the hearts of men
+created man out of a germ-cell
  <!--END_SECTION:quran-->
 
   
