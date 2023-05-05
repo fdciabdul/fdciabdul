@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 25**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 4**
 
-VERILY, those who turn their backs [on this mes­sage] after guidance has been vouchsafed to them, [do it because] Satan has embellished their fancies and filled them with false hopes:
+and who are intent on inner purity;
  <!--END_SECTION:quran-->
 
   
