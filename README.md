@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 79**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 18**
 
-[It is these hypocrites] who find fault with such of the believers as give for the sake of God more than they are duty-bound to give, as well as with, such as find nothing [to give] beyond [the meagre fruits of] their toil, and who scoff at them [all]. God will cause their scoffing to rebound on themselves. and grievous suffering awaits them.
+INDEED, well-pleased was God with the believers when they pledged their allegiance unto thee [O Muhammad] under that tree, for He knew what was in their hearts; and so He bestowed inner peace upon them from on high, and rewarded them with [the glad tiding of] a victory soon to come
  <!--END_SECTION:quran-->
 
   
