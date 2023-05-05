@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 44**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 9**
 
-Have they never journeyed about the earth and beheld what happened in the end to those [deniers of the truth] who lived before their time and were [so much] greater than they in power? And [do they not see that the will of] God can never be foiled by anything whatever in the heavens or on earth, since, verily, He is all-knowing, infinite in His power?
+and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,
  <!--END_SECTION:quran-->
 
   
