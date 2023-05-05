@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 8**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 2**
 
-whereas he whose weight is light in the balance
+and the day as it rises bright!
  <!--END_SECTION:quran-->
 
   
