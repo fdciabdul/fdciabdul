@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 6**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 22**
 
-in pur­suance of thy Sustainer’s grace [unto man]. Verily, He alone is all-hearing, all-knowing,
+And when everything will have been decided, Satan will say: "Behold, God promised you something that was bound to come true! I, too, held out [all manner of] promises to you -but I deceived you. Yet I had no power at all over you: I but called you-and you responded unto me. Hence, blame not me, but blame yourselves. It is not for me to respond to your cries, nor for you to respond to mine: for, behold, I have [always] refused to admit that there was any truth in your erstwhile belief that I had a share in God's divinity." Verily, for all evildoers there is grievous suffering in store.
  <!--END_SECTION:quran-->
 
   
