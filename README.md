@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 17**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 6**
 
-and the night as it darkly falls,
+These messages of God do We convey unto thee, setting forth the truth. In what other tiding, if not in God’s messages, will they, then, believe?
  <!--END_SECTION:quran-->
 
   
