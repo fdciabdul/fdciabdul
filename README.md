@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 44**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 7**
 
-Or dost thou think that most of them listen [to thy message] and use their reason? Nay, they are but like cattle - nay, they are even less conscious of the right way!
+And behold, whenever I called unto them with a view to Thy granting them forgiveness, they put their fingers into their ears, and wrapped themselves up in their garments [of sin]; and grew obstinate, and became [yet more] arrogant in their false pride.
  <!--END_SECTION:quran-->
 
   
