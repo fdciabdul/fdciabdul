@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 13**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 42**
 
-On that Day shall the hypocrites, both men and women, speak [thus] unto those who have attained to faith: “Wait for us! Let us have a [ray of] light from your light!” [But] they will be told: “Turn back, and seek a light [of your own]!” And thereupon a wall will be raised between them [and the believers], with a gate in it: within it will be grace and mercy, and against the outside thereof, suffering.
+As it is, they [who are averse to the truth often] swear by God with their most solemn oaths that if a warner should ever come to them, they would follow his guidance better than any of the communities [of old had followed the warner sent to them]: but now that a warner has come unto them, [his call] but increases their aversion,
  <!--END_SECTION:quran-->
 
   
