@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 105**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 7**
 
-It is but they who will not believe in God's messages that invent this falsehood; and it is they, they who are lying!
+NAY, VERILY, the record of the wicked is indeed [set down] in a mode inescapable!
  <!--END_SECTION:quran-->
 
   
