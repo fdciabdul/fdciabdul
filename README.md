@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 8**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 30**
 
-[Yet] We never send down angels otherwise than in accordance with the [demands of] truth; and [were the angels to appear now,] lo! they [who reject this divine writ] would have no further respite!
+Said he: “Even if I should bring about before thee something that clearly shows the truth?”
  <!--END_SECTION:quran-->
 
   
