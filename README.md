@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 17**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 17**
 
-And [as for all such believers,] no human being can imagine what blissful delights, as yet hidden, await them [in the life to come] as a reward for all that they did.
+How, then, if you refuse to acknowledge the truth, will you protect yourselves on that Day which shall turn the hair of children grey,
  <!--END_SECTION:quran-->
 
   
