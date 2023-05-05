@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 26**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 109**
 
-And, indeed, [to the same end] We sent forth Noah and Abraham [as Our message-bearers], and established prophethood and revelation among their descendants; and some of them were on the right way, but many were iniquitous.
+On that Day, intercession shall be of no avail [to any] save him in whose case the Most Gracious will have granted leave therefor, and whose word [of faith) He will have accepted:
  <!--END_SECTION:quran-->
 
   
