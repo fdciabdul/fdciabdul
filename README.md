@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 40**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 1**
 
-and if they turn away [from righteousness], know that God is your Lord Supreme: [and] how excellent is this Lord Supreme, and how excellent this Giver of Succour!
+WHEN THE SUN is shrouded in darkness,
  <!--END_SECTION:quran-->
 
   
