@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 26**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 19**
 
-AND, INDEED, We have created man out of sounding clay, out of dark-slime transmuted
+for, [in the life to come,] all shall have their degrees in accordance with whatever [good or evil] they did: and so, He will repay them in full for their doings, and none shall be wronged.
  <!--END_SECTION:quran-->
 
   
