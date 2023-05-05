@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 20**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
 
-BEHOLD, [O Prophet,] thy Sustainer knows that thou keepest awake [in prayer] nearly two-thirds of the night, or one-half of it, or a third of it, together with some of those who follow thee. And God who determines the measure of night and day, is aware that you would never grudge it: and therefore He turns towards you in His grace. Recite, then, as much of the Qur’an as you may do with ease. He knows that in time there will be among you sick people, and others who will go about the land in search of God's bounty, and others who will fight in God’s cause. Recite, then, [only] as much of it as you may do with ease, and be constant in prayer, and spend in charity, and [thus] lend unto God a goodly loan: for whatever good deed you may offer up in your own behalf, you shall truly find it with God - yea, better, and richer in reward. And [always] seek God's forgiveness: behold, God is much-forgiving, a dispenser of grace!
+BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
  <!--END_SECTION:quran-->
 
   
