@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 30**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 43**
 
-Said he: “Even if I should bring about before thee something that clearly shows the truth?”
+their arro­gant behaviour on earth, and their devising of evil [arguments against God’s messages]. Yet [in the end,] such evil scheming will engulf none but its authors: and can they expect anything but [to be made to go] the way of those [sinners] of olden times? Thus [it is]: no change wilt thou ever find in God’s way; yea, no deviation wilt thou ever find in God’s way!
  <!--END_SECTION:quran-->
 
   
