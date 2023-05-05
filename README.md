@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 4**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 16**
 
-and who are intent on inner purity;
+and then, behold, they shall enter the blazing fire
  <!--END_SECTION:quran-->
 
   
