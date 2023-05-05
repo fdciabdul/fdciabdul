@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 6**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 31**
 
-In them, indeed, you have a good example for everyone who looks forward [with hope and awe] to God and the Last Day. And if any turns away, [let him know that] God is truly self-sufficient, the One to whom all praise is due."
+Thereupon God sent forth a raven which scratched the earth, to show him how he might conceal the nakedness of his brother's body. [And Cain] cried out: "Oh, woe is me! Am I then too weak to do what this raven did, and to conceal the nakedness of my brother's body?" - and was thereupon smitten with remorse.
  <!--END_SECTION:quran-->
 
   
