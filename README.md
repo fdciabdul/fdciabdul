@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 5**
 
-Verily, he that hates thee has indeed been cut off [from all that is good]!
+as thy Sustainer will have inspired her to do!
  <!--END_SECTION:quran-->
 
   
