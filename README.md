@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 23**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 17**
 
-“Behold, I found there a woman ruling over them; and she has been given [abundance] of all [good] things, and hers is a mighty throne,
+and the night as it darkly falls,
  <!--END_SECTION:quran-->
 
   
