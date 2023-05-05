@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 154**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 25**
 
-Then, after this woe, He sent down upon you a sense of security, an inner calm which enfolded some of you, whereas the others, who cared mainly for themselves, entertained wrong thoughts about God - thoughts of pagan ignorance - saying, "Did we, then, have any power of decision [in this matter]?" Say: "Verily, all power of decision does rest with God" - [but as for them,] they are trying to conceal within themselves that [weakness of faith] which they would not reveal unto thee, [O Prophet, by] saying, "If we had any power of decision, we would not have left so many dead behind." Say [unto them]: "Even if you had remained in your homes, those [of you] whose death had been ordained would indeed have gone forth to the places where they were destined to lie down." And [all this befell you] so that God might put to a test all that you harbour in your bosoms, and render your innermost hearts pure of all dross: for God is aware of what is in the hearts [of men].
+VERILY, those who turn their backs [on this mes­sage] after guidance has been vouchsafed to them, [do it because] Satan has embellished their fancies and filled them with false hopes:
  <!--END_SECTION:quran-->
 
   
