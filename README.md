@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 64**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 11**
 
-Verily, God has rejected the deniers of the truth, and has readied for them a blazing fire,
+O YOU who have attained to faith! No men shall deride [other] men: it may well be that those [whom they deride] are better than themselves; and no women [shall deride other] women: it may well be that those [whom they deride] are better than them­selves. And neither shall you defame one another, nor insult one another by [opprobrious] epithets: evil is all imputation of iniquity after [one has attained to] faith; and they who [become guilty thereof and] do not repent - it is they, they who are evildoers!
  <!--END_SECTION:quran-->
 
   
