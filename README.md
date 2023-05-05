@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 40**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 22**
 
-Is not He, then; able to bring the dead back to life?
+But then, is he that goes along with his face close to the ground better guided than he that walks upright on a straight way?
  <!--END_SECTION:quran-->
 
   
