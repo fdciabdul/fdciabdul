@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 7**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 23**
 
-the Sustainer of the heavens and the earth and all that is between them - if you could but grasp it with inner certainty!
+“Behold, I found there a woman ruling over them; and she has been given [abundance] of all [good] things, and hers is a mighty throne,
  <!--END_SECTION:quran-->
 
   
