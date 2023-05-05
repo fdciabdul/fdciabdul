@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 24**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
 
-And so, when they beheld it in the shape of a dense cloud approaching their valleys, they exclaimed, “This is but a heavy cloud which will bring us [wel­come] rain!” [But Hud said:] “Nay, but it is the very thing which you [so contemptuously] sought to hasten - a wind bearing grievous suffering,
+HAVE WE NOT opened up thy heart,
  <!--END_SECTION:quran-->
 
   
