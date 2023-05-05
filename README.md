@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 31**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 8**
 
-and most certainly We shall try you all, so that We might mark out those of you who strive hard [in Our cause] and are patient in adversity: for We shall put to a test [the truth of] all your assertions.
+whereas he whose weight is light in the balance
  <!--END_SECTION:quran-->
 
   
