@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 43**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 37**
 
-their arro­gant behaviour on earth, and their devising of evil [arguments against God’s messages]. Yet [in the end,] such evil scheming will engulf none but its authors: and can they expect anything but [to be made to go] the way of those [sinners] of olden times? Thus [it is]: no change wilt thou ever find in God’s way; yea, no deviation wilt thou ever find in God’s way!
+so that God might separate the bad from the good, and join the bad with one another, and link them all together [within His condemnation], and then place them in hell. They, they are the lost!
  <!--END_SECTION:quran-->
 
   
