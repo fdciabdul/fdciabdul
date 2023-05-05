@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 9**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 79**
 
-so that you [O men] might believe in God and His Apostle, and might honour Him, and revere Him, and extol His limitless glory from morn to evening.
+[It is these hypocrites] who find fault with such of the believers as give for the sake of God more than they are duty-bound to give, as well as with, such as find nothing [to give] beyond [the meagre fruits of] their toil, and who scoff at them [all]. God will cause their scoffing to rebound on themselves. and grievous suffering awaits them.
  <!--END_SECTION:quran-->
 
   
