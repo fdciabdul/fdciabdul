@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 12**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
 
-when that most hapless wretch from among them rushed forward [to commit his evil deed],
+Behold, it is this [kind of man] that thrusts the orphan away,
  <!--END_SECTION:quran-->
 
   
