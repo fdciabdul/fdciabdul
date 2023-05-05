@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 119**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 1**
 
-[AND on Judgment Day] God will say: "Today, their truthfulness shall benefit all who have been true to their word: theirs shall be gardens through which running waters flow, therein to abide beyond the count of time; well-pleased is God with them, and well-pleased are they with Him: this is the triumph supreme."
+IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:
  <!--END_SECTION:quran-->
 
   
