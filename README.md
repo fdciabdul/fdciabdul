@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 8**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 6**
 
-They aim to extinguish God's light with their utterances: but God has willed to spread His light in all its fullness, however hateful this may be to all who deny the truth
+He boasts, "I have spent wealth abundant!"
  <!--END_SECTION:quran-->
 
   
