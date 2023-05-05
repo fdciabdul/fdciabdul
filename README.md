@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 17**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 96**
 
-How, then, if you refuse to acknowledge the truth, will you protect yourselves on that Day which shall turn the hair of children grey,
+Lawful to you is all water-game, and what the sea brings forth, as a provision for you [who are settled] as well as for travellers, although you are forbidden to hunt on land while you are in the state of pilgrimage. And be conscious of God, unto whom you shall be gathered.
  <!--END_SECTION:quran-->
 
   
