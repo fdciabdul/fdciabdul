@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 9**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 67**
 
-and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,
+And [We grant you nourishment] from the fruit of date-palms and vines: from it you derive intoxicants as well as wholesome sustenance -in this, behold, there is a message indeed for people who use their reason!
  <!--END_SECTION:quran-->
 
   
