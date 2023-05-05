@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 57**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 3**
 
-[And] think not that those who are bent on denying the truth can elude [their final reckoning even if they remain unscathed] on earth: the fire is their goal [in the life to come] - and vile indeed is such a journey’s end!
+Consider the day as it reveals the world,
  <!--END_SECTION:quran-->
 
   
