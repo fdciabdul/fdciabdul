@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 7**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 4**
 
-NAY, VERILY, the record of the wicked is indeed [set down] in a mode inescapable!
+And never have We destroyed any community [for its wrongdoing] unless a divine writ had (previously] been made known to it;
  <!--END_SECTION:quran-->
 
   
