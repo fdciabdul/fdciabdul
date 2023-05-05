@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 6**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
 
-excepting only such as attain to faith and do good works: and theirs shall be a reward unending!
+Behold, it is this [kind of man] that thrusts the orphan away,
  <!--END_SECTION:quran-->
 
   
