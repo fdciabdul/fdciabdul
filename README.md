@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 37**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 40**
 
-so that God might separate the bad from the good, and join the bad with one another, and link them all together [within His condemnation], and then place them in hell. They, they are the lost!
+and a good many of later times.
  <!--END_SECTION:quran-->
 
   
