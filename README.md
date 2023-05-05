@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 10**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 177**
 
-And thus it is: if We let him taste ease and plenty after hardship has visited him, he is sure to say, "Gone is all affliction from me!"-for, behold, he is given to vain exultation, and glories only in himself.
+Evil is the example of people who are bent on giving the lie to Our messages: for it is against their own selves that they are sinning!
  <!--END_SECTION:quran-->
 
   
