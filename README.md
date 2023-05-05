@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 88**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 26**
 
-But as for him who believes and does righteous deeds - he will have the ultimate good [of the life to come] as his reward; and [as for us,] we shall make binding on him [only] that which is easy to fulfill."
+AND, INDEED, We have created man out of sounding clay, out of dark-slime transmuted
  <!--END_SECTION:quran-->
 
   
