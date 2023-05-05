@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 40**
 
-Behold, it is this [kind of man] that thrusts the orphan away,
+Is not He, then; able to bring the dead back to life?
  <!--END_SECTION:quran-->
 
   
