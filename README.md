@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 11**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 8**
 
-O YOU who have attained to faith! No men shall deride [other] men: it may well be that those [whom they deride] are better than themselves; and no women [shall deride other] women: it may well be that those [whom they deride] are better than them­selves. And neither shall you defame one another, nor insult one another by [opprobrious] epithets: evil is all imputation of iniquity after [one has attained to] faith; and they who [become guilty thereof and] do not repent - it is they, they who are evildoers!
+[Yet] We never send down angels otherwise than in accordance with the [demands of] truth; and [were the angels to appear now,] lo! they [who reject this divine writ] would have no further respite!
  <!--END_SECTION:quran-->
 
   
