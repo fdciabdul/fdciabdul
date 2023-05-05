@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 2**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-"the Sovereign of men,
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
