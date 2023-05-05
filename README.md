@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 6**
 
-BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
+"from all [temptation to evil by] invisible forces as well as men,"
  <!--END_SECTION:quran-->
 
   
