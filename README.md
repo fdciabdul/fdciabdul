@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 16**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 4**
 
-Did We not destroy [so many of] those [sinners] of olden days?
+Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!
  <!--END_SECTION:quran-->
 
   
