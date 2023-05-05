@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 5**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 11**
 
-something that a very mighty one has imparted to him:
+he will in time pray for utter destruction:
  <!--END_SECTION:quran-->
 
   
