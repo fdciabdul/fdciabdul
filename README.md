@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 7**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 18**
 
-But whenever Our messages are conveyed to them in all their clarity, they who are bent on denying the truth speak thus of the truth as soon as it is brought to them: “This is clearly nothing but spell­binding eloquence!”
+and [neither will] they [who] worship, side by side with God, things or beings that can neither harm nor benefit them, saying [to themselves], "These are our intercessors with God!" Say: "Do you [think that you could] inform God of anything in the heavens or on earth that He does not know? Limitless is He in His glory, and sublimely exalted above anything to which men may ascribe a share in His divinity!"
  <!--END_SECTION:quran-->
 
   
