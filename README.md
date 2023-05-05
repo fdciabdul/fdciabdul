@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 51**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 40**
 
-[And all shall be judged on that Day,] so that God may requite every human being for all that he has earned [in life]: verily, God is swift in reckoning!
+and if they turn away [from righteousness], know that God is your Lord Supreme: [and] how excellent is this Lord Supreme, and how excellent this Giver of Succour!
  <!--END_SECTION:quran-->
 
   
