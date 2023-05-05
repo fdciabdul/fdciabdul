@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 7**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 16**
 
-and to this, behold, he [himself] bears witness indeed:
+And how severe is the suffering which I inflict when My warnings are disregarded!
  <!--END_SECTION:quran-->
 
   
