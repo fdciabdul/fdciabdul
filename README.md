@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 5**
 
-On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
+something that a very mighty one has imparted to him:
  <!--END_SECTION:quran-->
 
   
