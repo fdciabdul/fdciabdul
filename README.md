@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 14**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 12**
 
-and the dwellers of the wooded dales [of Madyan], and the people of Tubba: they all gave the lie to the apostles - and thereupon that whereof I had warned [them] came true.
+when that most hapless wretch from among them rushed forward [to commit his evil deed],
  <!--END_SECTION:quran-->
 
   
