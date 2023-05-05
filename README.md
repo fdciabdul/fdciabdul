@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 6**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 57**
 
-"from all [temptation to evil by] invisible forces as well as men,"
+[And] think not that those who are bent on denying the truth can elude [their final reckoning even if they remain unscathed] on earth: the fire is their goal [in the life to come] - and vile indeed is such a journey’s end!
  <!--END_SECTION:quran-->
 
   
