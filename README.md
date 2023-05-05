@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 16**
 
-Verily, man is bound to lose himself
+Did We not destroy [so many of] those [sinners] of olden days?
  <!--END_SECTION:quran-->
 
   
