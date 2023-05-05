@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 16**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 18**
 
-and then, behold, they shall enter the blazing fire
+Verily, [all] this has indeed been [said] in the earlier revelations –
  <!--END_SECTION:quran-->
 
   
