@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 6**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 50**
 
-These messages of God do We convey unto thee, setting forth the truth. In what other tiding, if not in God’s messages, will they, then, believe?
+clothed in garments of black pitch, with fire veiling their faces.
  <!--END_SECTION:quran-->
 
   
