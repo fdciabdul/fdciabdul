@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 11**
 
-BEHOLD, We have bestowed upon thee good in abundance:
+Say: “[One day,] the angel of death who has been given charge of you will gather you, and then unto your Sustainer you will be brought back.”
  <!--END_SECTION:quran-->
 
   
