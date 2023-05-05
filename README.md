@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 2**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
 
-AN ACCOUNT of the grace which thy Sustainer bestowed upon His servant Zachariah:
+Verily, he that hates thee has indeed been cut off [from all that is good]!
  <!--END_SECTION:quran-->
 
   
