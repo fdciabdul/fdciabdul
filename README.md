@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 71**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 45**
 
-[Lot] said: "[Take instead] these daughters of mine, if you must do [whatever you intend to do]!"
+And yet, whenever God alone is mentioned, the hearts of those who will not believe in the life to come contract with bitter aversion - whereas, when those [imaginary powers] are mentioned side by side with Him, lo, they rejoice!
  <!--END_SECTION:quran-->
 
   
