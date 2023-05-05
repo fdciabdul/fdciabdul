@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 4**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 6**
 
-all the angels and all the inspiration [ever granted to man] ascend unto Him [daily,] in a day the length whereof is [like] fifty thousand years…
+In them, indeed, you have a good example for everyone who looks forward [with hope and awe] to God and the Last Day. And if any turns away, [let him know that] God is truly self-sufficient, the One to whom all praise is due."
  <!--END_SECTION:quran-->
 
   
