@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 172**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 57**
 
-Never did the Christ feel too proud to be God's servant, nor do the angels who are near unto Him. And those who feel too proud to serve Him and glory in their arrogance [should know that on Judgment Day] He will gather them all unto Himself:
+Verily, as for those who [knowingly] affront God and His Apostle - God will reject them in this world and in the life to come; and shameful suffering will He ready for them.
  <!--END_SECTION:quran-->
 
   
