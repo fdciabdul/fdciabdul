@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 20**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 36**
 
-ARE YOU NOT aware that God has made subservient to you all that is in the heavens and all that is on earth, and has lavished upon you His blessings, both outward and inward? And yet, among men there is many a one that argues about God without having any knowledge [of Him], without any guidance, and without any light-giving revelation;
+Far-fetched, far-fetched indeed is what you are promised!
  <!--END_SECTION:quran-->
 
   
