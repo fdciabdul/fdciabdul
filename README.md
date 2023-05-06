@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 1**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 1**
 
-HAST THOU ever considered [the kind of man] who gives the lie to all moral law?
+ABOUT WHAT do they [most often] ask one another?
  <!--END_SECTION:quran-->
 
   
