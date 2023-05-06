@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 15**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 30**
 
-Nay, if he desist not, We shall most surely drag him down upon his forehead
+AND LO! Thy Sustainer said unto the angels: "Behold, I am about to establish upon earth one who shall inherit it." They said: "Wilt Thou place on it such as will spread corruption thereon and shed blood -whereas it is we who extol Thy limitless glory, and praise Thee, and hallow Thy name?" [God] answered: "Verily, I know that which you do not know."
  <!--END_SECTION:quran-->
 
   
