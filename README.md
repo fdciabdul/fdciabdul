@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 115**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 12**
 
-He has forbidden to you only carrion, and blood, and the flesh of swine, and that over which any name other than God's has been invoked; but if one is driven [to it] by necessity - neither coveting it nor exceeding his immediate need -verily, God is much forgiving, a dispenser of grace.
+Lo! Thy Sustainer inspired the angels [to convey this His message to the believers]: "I am with you!" [And He commanded the angels:] "And, give firmness unto those who have attained to faith [with these words from Me]: `I shall cast terror into the hearts of those who are bent on denying the truth; strike, then, their necks, [O believers,] and strike off every one of their finger-tips!"
  <!--END_SECTION:quran-->
 
   
