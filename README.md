@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 13**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 46**
 
-Behold, [in the life to come] the truly virtuous: will indeed be in bliss,
+And whether We show thee [in this world something of what We hold in store for those [deniers of the truth], or whether We cause thee to die [before that retribution takes place - know that, in the end], it is unto Us that they must return; and God is witness to all that they do.
  <!--END_SECTION:quran-->
 
   
