@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 175**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 4**
 
-It is but Satan who instils [into you] fear of his allies: so fear them not, but fear Me, if you are [truly] believers!
+about which it has been decreed that whoever entrusts himself to it, him will it lead astray and guide towards the suffering of the blazing flame!
  <!--END_SECTION:quran-->
 
   
