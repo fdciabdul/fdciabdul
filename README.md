@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 36**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 24**
 
-Limitless in His glory is He who has created opposites in whatever the earth produces, and in men’s own selves, and in that of which [as yet] they have no knowledge.
+and [who], whenever they are asked, "What is it that your Sustainer has bestowed from on high?"-are wont to answer, "Fables of ancient times!"
  <!--END_SECTION:quran-->
 
   
