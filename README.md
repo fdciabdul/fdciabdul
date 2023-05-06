@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 20**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 58**
 
-[And] is there any, besides the Most Gracious, that could be a shield for you, and could succour you [against danger]? They who deny this truth are but lost in self- delusion!
+THESE WERE some of the prophets upon whom God bestowed His blessings - [prophets] of the seed of Adam and of those whom We caused to be borne [in the ark] with Noah, and of the seed of Abraham and Israel and [all of them were] among those whom We had guided and elected; [and] whenever the messages of the Most Gracious were conveyed unto them, they would fall down [before Him], prostrating themselves and weeping.
  <!--END_SECTION:quran-->
 
   
