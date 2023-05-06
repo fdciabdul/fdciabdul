@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 12**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 33**
 
-Lo! Thy Sustainer inspired the angels [to convey this His message to the believers]: "I am with you!" [And He commanded the angels:] "And, give firmness unto those who have attained to faith [with these words from Me]: `I shall cast terror into the hearts of those who are bent on denying the truth; strike, then, their necks, [O believers,] and strike off every one of their finger-tips!"
+[Iblis] replied: "It is not for me to prostrate myself before mortal man whom Thou hast created out of sounding clay, out of dark slime transmuted!"
  <!--END_SECTION:quran-->
 
   
