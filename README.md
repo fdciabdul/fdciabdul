@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 1**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 14**
 
-SAY: "O you who deny the truth!
+[and will be told:] “Taste this your trial! It is this that you were so hastily asking for!”
  <!--END_SECTION:quran-->
 
   
