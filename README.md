@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 60**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 1**
 
-[And] they [who had been seduced] will exclaim: “Nay, but it is you! No welcome to you! It is you who have prepared this for us: and how vile a state to abide in!”
+WHEN THE SKY is cleft asunder,
  <!--END_SECTION:quran-->
 
   
