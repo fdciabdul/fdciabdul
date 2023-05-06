@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 24**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 25**
 
-and [who], whenever they are asked, "What is it that your Sustainer has bestowed from on high?"-are wont to answer, "Fables of ancient times!"
+only burning despair and ice-cold darkness:
  <!--END_SECTION:quran-->
 
   
