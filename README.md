@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 70**
 
-Thus, He let loose upon them great swarms of flying creatures
+O you who have attained to faith! Remain conscious of God, and [always] speak with a will to bring out [only] what is just and true -
  <!--END_SECTION:quran-->
 
   
