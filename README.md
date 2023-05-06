@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 56**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 84**
 
-And [tell them that] I have not created the invisible beings and men to any end other than that they may [know and] worship Me.
+whereupon We responded unto him and removed all the affliction from which he suffered; and We gave him new offspring, doubling their number as an act of grace from Us, and as a reminder unto all who worship Us.
  <!--END_SECTION:quran-->
 
   
