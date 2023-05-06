@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 27**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 74**
 
-Man’s other self’ will say: “O our Sustainer! It was not I that led his conscious mind into evil [nay,] but it had gone far astray [of its own accord]!
+Extol, then, the limitless glory of thy Sus­tainer’s mighty name!
  <!--END_SECTION:quran-->
 
   
