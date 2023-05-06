@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 80**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 33**
 
-"And as for that young man, his parents were [true] believers - whereas we had every reason to fear that he would bring bitter grief upon them by [his] overweening wickedness and denial of all truth:
+and has made the sun and the moon, both of them constant upon their courses, subservient [to His laws, so that they be of use] to you; and has made the night and the day subservient [to His laws, so that they be of use] to you.
  <!--END_SECTION:quran-->
 
   
