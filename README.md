@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 1**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 23**
 
-In the name of God, The Most Gracious, The Dispenser of Grace:
+It is such as these whom God rejects, and whom He makes deaf [to the voice of truth], and whose eyes He blinds [to its sight]!
  <!--END_SECTION:quran-->
 
   
