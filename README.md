@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 18**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 4**
 
-for God makes [His] messages clear unto you - and God is all-knowing, Wise!
+[for] no human being has ever been left unguarded.
  <!--END_SECTION:quran-->
 
   
