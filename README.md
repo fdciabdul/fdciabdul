@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 3**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 35**
 
-Behold, they who lower their voices in the presence of God’s Apostle - it is they whose hearts God has tested [and opened] to consciousness of Himself; [and] theirs shall be forgiveness and a reward supreme.
+Does he [claim to] have knowledge of some­thing that is beyond the reach of human perception, so that he can see [it clearly]?
  <!--END_SECTION:quran-->
 
   
