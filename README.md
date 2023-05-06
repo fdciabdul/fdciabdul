@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 46**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 18**
 
-And whether We show thee [in this world something of what We hold in store for those [deniers of the truth], or whether We cause thee to die [before that retribution takes place - know that, in the end], it is unto Us that they must return; and God is witness to all that they do.
+Such are they that have attained to righteousness;
  <!--END_SECTION:quran-->
 
   
