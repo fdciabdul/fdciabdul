@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 1**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 20**
 
-Oh, the chargers that run panting,
+[And] is there any, besides the Most Gracious, that could be a shield for you, and could succour you [against danger]? They who deny this truth are but lost in self- delusion!
  <!--END_SECTION:quran-->
 
   
