@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 5**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-He governs all that exists, from the celestial space to the earth; and in the end all shall ascend unto Him [for judgment] on a Day the length whereof will be [like] a thousand years of your reckoning.
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
