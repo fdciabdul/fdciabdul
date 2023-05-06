@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
 
-HAVE WE NOT opened up thy heart,
+WHEN GOD'S SUCCOUR comes, and victory,
  <!--END_SECTION:quran-->
 
   
