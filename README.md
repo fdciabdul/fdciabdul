@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 30**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 7**
 
-and how severe was the suffering which I inflicted when My warnings were disregarded!
+CONSIDER the firmament full of starry paths!
  <!--END_SECTION:quran-->
 
   
