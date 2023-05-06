@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 25**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 4**
 
-But they [only] ask, "When is this promise to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!"
+And, verily, [originating as it does] in the source, with Us, of all revelation, it is indeed sublime, full of wisdom.
  <!--END_SECTION:quran-->
 
   
