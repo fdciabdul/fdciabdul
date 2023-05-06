@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 83**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
 
-“O my Sustainer! Endow me with the ability to judge [between right and wrong], and make me one with the righteous,
+BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
  <!--END_SECTION:quran-->
 
   
