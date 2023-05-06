@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 6**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 4**
 
-for, suffering in hell awaits all who are [thus] bent on blaspheming against their Sustainer: and how vile a journey's end!
+And once again: Nay, in time you will come to understand!
  <!--END_SECTION:quran-->
 
   
