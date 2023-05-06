@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 76**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
 
-[But God's messengers replied:] "O Abraham! Desist from this [pleading]! Behold, thy Sustainer's judgment has already gone forth: and, verily, there shall fall upon them a chastisement which none can avert!"
+"and there is nothing that could be compared with Him.
  <!--END_SECTION:quran-->
 
   
