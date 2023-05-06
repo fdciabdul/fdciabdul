@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 39**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 11**
 
-and who, whenever tyranny afflicts them, defend themselves.
+And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:
  <!--END_SECTION:quran-->
 
   
