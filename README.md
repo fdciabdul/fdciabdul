@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 33**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 10**
 
-and has made the sun and the moon, both of them constant upon their courses, subservient [to His laws, so that they be of use] to you; and has made the night and the day subservient [to His laws, so that they be of use] to you.
+Now there is among men many a one who says [of himself and of others like him], “We do believe in God” - but whenever he is made to suffer in God’s cause, he thinks that persecution at the hands of man is as [much to be feared, or even more than,] God’s chastisement; whereas, if succour from thy Sustainer comes [to those who truly believe] he is sure to say. “Behold, we have always been with you!” Is not God fully aware of what is in the hearts of all creatures?
  <!--END_SECTION:quran-->
 
   
