@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 80**
 
-"and there is nothing that could be compared with Him.
+"And as for that young man, his parents were [true] believers - whereas we had every reason to fear that he would bring bitter grief upon them by [his] overweening wickedness and denial of all truth:
  <!--END_SECTION:quran-->
 
   
