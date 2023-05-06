@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 22**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 18**
 
-Not so, however, those who consciously turn towards God in prayer.
+for God makes [His] messages clear unto you - and God is all-knowing, Wise!
  <!--END_SECTION:quran-->
 
   
