@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 15**
 
-in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
+Could We, then, be [thought of as being] worn out by the first creation? Nay - but some people are [still] lost in doubt about [the possibility of] a new creation!
  <!--END_SECTION:quran-->
 
   
