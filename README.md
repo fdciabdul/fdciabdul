@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 6**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 8**
 
-you would indeed, most surely, behold the blazing fire [of hell]!
+verily, it will close in upon them
  <!--END_SECTION:quran-->
 
   
