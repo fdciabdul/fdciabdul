@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 1**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 5**
 
-WHEN THE SUN is shrouded in darkness,
+excepting [from this interdict] only those who afterwards repent and made amends: for, behold, God is much forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
