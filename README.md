@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 33**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 18**
 
-like giant fiery ropes!
+They will answer: “Limitless art Thou in Thy glory! It was inconceivable for us to take for our masters anyone but Thyself! But [as for them -] Thou didst allow them and their forefathers to enjoy [the pleasures of] life to such an extent that they forgot all remembrance [of Thee]: for they were people devoid of all good.”
  <!--END_SECTION:quran-->
 
   
