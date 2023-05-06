@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 34**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 6**
 
-O you who have attained to faith! Behold, many of the rabbis and monks do indeed wrongfully devour men's possessions and turn [others] away from the path of God. But as for all who lay up treasures of gold and silver and do not spend them for the sake of God - give them the tiding of grievous suffering [in the life to come]:
+for, suffering in hell awaits all who are [thus] bent on blaspheming against their Sustainer: and how vile a journey's end!
  <!--END_SECTION:quran-->
 
   
