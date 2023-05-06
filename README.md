@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 74**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 41**
 
-Extol, then, the limitless glory of thy Sus­tainer’s mighty name!
+[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,
  <!--END_SECTION:quran-->
 
   
