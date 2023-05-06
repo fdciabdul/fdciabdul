@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 45**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 15**
 
-for they were unable even to rise, and could not defend themselves.
+that, whenever Our messages are conveyed to him, such a one says, "Fables of ancient times"?
  <!--END_SECTION:quran-->
 
   
