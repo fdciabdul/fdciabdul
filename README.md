@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 84**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
 
-whereupon We responded unto him and removed all the affliction from which he suffered; and We gave him new offspring, doubling their number as an act of grace from Us, and as a reminder unto all who worship Us.
+Thus, He let loose upon them great swarms of flying creatures
  <!--END_SECTION:quran-->
 
   
