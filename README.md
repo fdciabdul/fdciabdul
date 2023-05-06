@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 8**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 1**
 
-whereas he whose weight is light in the balance
+In the name of God, The Most Gracious, The Dispenser of Grace:
  <!--END_SECTION:quran-->
 
   
