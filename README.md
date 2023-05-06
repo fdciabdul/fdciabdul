@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 23**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 1**
 
-Should I take to worship­ping [other] deities beside Him? [But then,] if the Most Gracious should will that harm befall me, their intercession could not in the least avail me, nor could they save me:
+Oh, the chargers that run panting,
  <!--END_SECTION:quran-->
 
   
