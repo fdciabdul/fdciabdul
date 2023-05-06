@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 4**
 
-and, withal, deny all assistance [to their fellow-men]!
+thereby raising clouds of dust,
  <!--END_SECTION:quran-->
 
   
