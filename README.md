@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 18**
+**Surah 38: سُورَةُ صٓ (Saad) - 60**
 
-Such are they that have attained to righteousness;
+[And] they [who had been seduced] will exclaim: “Nay, but it is you! No welcome to you! It is you who have prepared this for us: and how vile a state to abide in!”
  <!--END_SECTION:quran-->
 
   
