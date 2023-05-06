@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 8**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 3**
 
-God knows what any female bears [in her womb], and by how much the wombs may fall short [in gestation], and by how much they may increase [the average period]: for with Him everything is [created] in accordance with its scope and purpose.
+and this land secure!
  <!--END_SECTION:quran-->
 
   
