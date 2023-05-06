@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 43**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-Have they, then, any deity other than God? Utterly remote is God, in His limitless glory, from anything to which men may ascribe a share in His divinity!
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
