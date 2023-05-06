@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 2**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 6**
 
-"the Sovereign of men,
+you would indeed, most surely, behold the blazing fire [of hell]!
  <!--END_SECTION:quran-->
 
   
