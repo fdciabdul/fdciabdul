@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 84**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 7**
 
-the while We rained a rain [of destruction] upon the others: and behold what happened in the end to those people lost in sin!
+[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.
  <!--END_SECTION:quran-->
 
   
