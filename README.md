@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 59**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 3**
 
-[And they will say to one another: “Do you see] this crowd of people who rushed headlong [into sin] with you? No welcome to them! Verily, they [too] shall have to endure the fire!”
+Behold, they who lower their voices in the presence of God’s Apostle - it is they whose hearts God has tested [and opened] to consciousness of Himself; [and] theirs shall be forgiveness and a reward supreme.
  <!--END_SECTION:quran-->
 
   
