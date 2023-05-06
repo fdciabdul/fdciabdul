@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 4**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 3**
 
-And, verily, [originating as it does] in the source, with Us, of all revelation, it is indeed sublime, full of wisdom.
+Behold, they who lower their voices in the presence of God’s Apostle - it is they whose hearts God has tested [and opened] to consciousness of Himself; [and] theirs shall be forgiveness and a reward supreme.
  <!--END_SECTION:quran-->
 
   
