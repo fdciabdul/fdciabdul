@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 55**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 15**
 
-They asked: “Hast thou come unto us [with this claim] in all earnest - or art thou one of those jesters?”
+Nay, if he desist not, We shall most surely drag him down upon his forehead
  <!--END_SECTION:quran-->
 
   
