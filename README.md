@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 50**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 77**
 
-or He gives both male and female [to whomever He wills], and causes to be barren whomever He wills: for, verily, He is all-knowing, infinite in His power.
+Seek instead, by means of what God has granted thee, [the good of] the life to come, without forget­ting, withal, thine own [rightful] share in this world; and do good [unto others] as God has done good unto thee; and seek not to spread corruption on earth: for, verily, God does not love the spreaders of corruption!”
  <!--END_SECTION:quran-->
 
   
