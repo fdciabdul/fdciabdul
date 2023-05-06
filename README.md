@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 36**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 55**
 
-Far-fetched, far-fetched indeed is what you are promised!
+About which, then, of thy Sustainer’s powers canst thou [still] remain in doubt?
  <!--END_SECTION:quran-->
 
   
