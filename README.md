@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 2**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 55**
 
-[And Noah] said: "O my people! I am but a plain warner to you, [sent to tell you]
+They asked: “Hast thou come unto us [with this claim] in all earnest - or art thou one of those jesters?”
  <!--END_SECTION:quran-->
 
   
