@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 3**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 1**
 
-and this land secure!
+SO THAT the Quraysh might remain secure,
  <!--END_SECTION:quran-->
 
   
