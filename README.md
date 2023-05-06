@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 7**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 8**
 
-Does he, then, think that no one sees him?
+Have We not given him two eyes,
  <!--END_SECTION:quran-->
 
   
