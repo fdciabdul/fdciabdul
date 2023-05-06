@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 58**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 1**
 
-THESE WERE some of the prophets upon whom God bestowed His blessings - [prophets] of the seed of Adam and of those whom We caused to be borne [in the ark] with Noah, and of the seed of Abraham and Israel and [all of them were] among those whom We had guided and elected; [and] whenever the messages of the Most Gracious were conveyed unto them, they would fall down [before Him], prostrating themselves and weeping.
+HAST THOU ever considered [the kind of man] who gives the lie to all moral law?
  <!--END_SECTION:quran-->
 
   
