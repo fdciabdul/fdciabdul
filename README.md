@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 37**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 34**
 
-"O our Sustainer! Behold, I have settled some of my offspring in a valley in which there is no arable land, close to Thy sanctified Temple, so that, O our Sustainer, they might devote themselves to prayer: cause Thou, therefore, people's hearts to incline towards them and grant them fruitful sustenance, so that they might have cause to be grateful.
+O you who have attained to faith! Behold, many of the rabbis and monks do indeed wrongfully devour men's possessions and turn [others] away from the path of God. But as for all who lay up treasures of gold and silver and do not spend them for the sake of God - give them the tiding of grievous suffering [in the life to come]:
  <!--END_SECTION:quran-->
 
   
