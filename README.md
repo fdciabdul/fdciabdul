@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 1**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 14**
 
-WHEN THE SKY is cleft asunder,
+Fight against them! God will chastise them by your hands, and will bring disgrace upon them, and will succour you against them; and He will soothe the bosoms of those who believe,
  <!--END_SECTION:quran-->
 
   
