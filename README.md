@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 14**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 1**
 
-Fight against them! God will chastise them by your hands, and will bring disgrace upon them, and will succour you against them; and He will soothe the bosoms of those who believe,
+SAY: "O you who deny the truth!
  <!--END_SECTION:quran-->
 
   
