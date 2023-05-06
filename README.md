@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 3**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 8**
 
-on wide-open scrolls.
+God knows what any female bears [in her womb], and by how much the wombs may fall short [in gestation], and by how much they may increase [the average period]: for with Him everything is [created] in accordance with its scope and purpose.
  <!--END_SECTION:quran-->
 
   
