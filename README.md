@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 14**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
 
-[and will be told:] “Taste this your trial! It is this that you were so hastily asking for!”
+And what could make thee conceive what that crushing torment will be?
  <!--END_SECTION:quran-->
 
   
