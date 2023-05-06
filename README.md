@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 1**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 25**
 
-ABOUT WHAT do they [most often] ask one another?
+But they [only] ask, "When is this promise to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!"
  <!--END_SECTION:quran-->
 
   
