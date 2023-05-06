@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 4**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 50**
 
-[for] no human being has ever been left unguarded.
+or He gives both male and female [to whomever He wills], and causes to be barren whomever He wills: for, verily, He is all-knowing, infinite in His power.
  <!--END_SECTION:quran-->
 
   
