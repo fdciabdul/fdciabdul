@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 4**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 7**
 
-[Say, O Prophet:] "Would that you two turn unto God in repentance, for the hearts of both of you have swerved [from what is right]! And if you uphold each other against him [who is God's message-bearer, know that] God Himself is his Protector, and [that,] therefore, Gabriel, and all the righteous among the believers and all the [other] angels will come to his aid."
+Does he, then, think that no one sees him?
  <!--END_SECTION:quran-->
 
   
