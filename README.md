@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 35**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 14**
 
-Does he [claim to] have knowledge of some­thing that is beyond the reach of human perception, so that he can see [it clearly]?
+for, verily, thy Sustainer is ever on the watch!
  <!--END_SECTION:quran-->
 
   
