@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 55**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 8**
 
-About which, then, of thy Sustainer’s powers canst thou [still] remain in doubt?
+NOW [thus it is:] when affliction befalls man, he is likely to cry out to his Sustainer, turning unto Him [for help]; but as soon as He has bestowed upon him a boon by His grace, he forgets Him whom he in­voked before, and claims that there are other powers that could rival God - and thus leads [others] astray from His path. Say [unto him who sins in this way]: “Enjoy thyself for a while in this thy denial of the truth; [yet,] verily, thou art of those who are destined for the fire!
  <!--END_SECTION:quran-->
 
   
