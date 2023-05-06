@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 23**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 94**
 
-[Know this,] so that you may not despair over whatever [good] has escaped you nor exult [unduly] over whatever [good] has come to you: for, God does not love any of those who, out of self-conceit, act in a boastful manner –
+Answered [Aaron]: "O my mother's son! Seize me not by my beard, nor by my head! Behold, I was afraid lest [on thy return] thou say, 'Thou hast caused a split among the children of Israel, and hast paid no heed to my bidding!"
  <!--END_SECTION:quran-->
 
   
