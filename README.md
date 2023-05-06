@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 8**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 67**
 
-verily, it will close in upon them
+Fie upon you and upon all that you worship instead of God! Will you not, then, use your reason?”
  <!--END_SECTION:quran-->
 
   
