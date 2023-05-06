@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 8**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 175**
 
-Have We not given him two eyes,
+It is but Satan who instils [into you] fear of his allies: so fear them not, but fear Me, if you are [truly] believers!
  <!--END_SECTION:quran-->
 
   
