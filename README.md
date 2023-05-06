@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 122**
 
-and neither will you [ever] worship that which I worship.
+IS THEN -HE who was dead [in spirit] and whom We thereupon gave life, and for whom We set up a light whereby he might see his way among men - [is then he] like one [who is lost] in darkness deep, out of which he cannot emerge? [But] thus it is: goodly seem all their own doings to those who deny the truth.
  <!--END_SECTION:quran-->
 
   
