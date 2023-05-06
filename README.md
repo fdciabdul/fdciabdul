@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 25**
+**Surah 38: سُورَةُ صٓ (Saad) - 57**
 
-only burning despair and ice-cold darkness:
+This, [then, for them -] so let them taste it: burning despair and ice-cold darkness
  <!--END_SECTION:quran-->
 
   
