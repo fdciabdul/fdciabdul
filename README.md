@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 24**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 4**
 
-unto Pharaoh, and Haman, and Qarun; but they [only] said, “A spellbinder is he, a liar!”
+Verily, [O Prophet,] as for those who call thee from without thy private apartments - most of them do not use their reason:
  <!--END_SECTION:quran-->
 
   
