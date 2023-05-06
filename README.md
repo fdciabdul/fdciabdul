@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 33**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 23**
 
-[Iblis] replied: "It is not for me to prostrate myself before mortal man whom Thou hast created out of sounding clay, out of dark slime transmuted!"
+[Know this,] so that you may not despair over whatever [good] has escaped you nor exult [unduly] over whatever [good] has come to you: for, God does not love any of those who, out of self-conceit, act in a boastful manner –
  <!--END_SECTION:quran-->
 
   
