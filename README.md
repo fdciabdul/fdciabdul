@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
 
-WHEN GOD'S SUCCOUR comes, and victory,
+unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
  <!--END_SECTION:quran-->
 
   
