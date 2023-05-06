@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 30**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 28**
 
-AND LO! Thy Sustainer said unto the angels: "Behold, I am about to establish upon earth one who shall inherit it." They said: "Wilt Thou place on it such as will spread corruption thereon and shed blood -whereas it is we who extol Thy limitless glory, and praise Thee, and hallow Thy name?" [God] answered: "Verily, I know that which you do not know."
+O YOU who have attained to faith! Remain con­scious of God, and believe in His Apostle, [and] He will grant you doubly of His grace, and will light for you a light wherein you shall walk, and will forgive you [your past sins]: for God is much-forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
