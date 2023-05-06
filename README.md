@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 4**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 54**
 
-And once again: Nay, in time you will come to understand!
+and then covered them from sight forever.
  <!--END_SECTION:quran-->
 
   
