@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 8**
 
-Verily, man is bound to lose himself
+whereas he whose weight is light in the balance
  <!--END_SECTION:quran-->
 
   
