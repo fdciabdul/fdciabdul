@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 7**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 2**
 
-CONSIDER the firmament full of starry paths!
+[And Noah] said: "O my people! I am but a plain warner to you, [sent to tell you]
  <!--END_SECTION:quran-->
 
   
