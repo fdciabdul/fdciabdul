@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 15**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 36**
 
-Could We, then, be [thought of as being] worn out by the first creation? Nay - but some people are [still] lost in doubt about [the possibility of] a new creation!
+AND WORSHIP God [alone], and do not ascribe divinity, in any way, to aught beside Him. And do good unto your parents, and near of kin, and unto orphans, and the needy, and the neighbour from among your own people, and the neighbour who is a stranger, and the friend by your side, and the wayfarer, and those whom you rightfully possess. Verily, God does not love any of those who, full of self-conceit, act in a boastful manner;
  <!--END_SECTION:quran-->
 
   
