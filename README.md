@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 11**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 23**
 
-And for those who have attained to faith God has propounded a parable in [the story of] Pharaoh's wife as she prayed "O my Sustainer! Build Thou for me a mansion in the paradise [that is] with Thee, and save me from Pharaoh and his doings, and save me, from all evildoing folk!
+Should I take to worship­ping [other] deities beside Him? [But then,] if the Most Gracious should will that harm befall me, their intercession could not in the least avail me, nor could they save me:
  <!--END_SECTION:quran-->
 
   
