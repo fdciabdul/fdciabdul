@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 1**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 34**
 
-SO THAT the Quraysh might remain secure,
+Verily, as for those who are bent on denying the truth and on barring [others] from the path of God, and then die as deniers of the truth - indeed, God will not grant them forgiveness!
  <!--END_SECTION:quran-->
 
   
