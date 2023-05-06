@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 67**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 115**
 
-Fie upon you and upon all that you worship instead of God! Will you not, then, use your reason?”
+He has forbidden to you only carrion, and blood, and the flesh of swine, and that over which any name other than God's has been invoked; but if one is driven [to it] by necessity - neither coveting it nor exceeding his immediate need -verily, God is much forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
