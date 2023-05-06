@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 36**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 1**
 
-AND WORSHIP God [alone], and do not ascribe divinity, in any way, to aught beside Him. And do good unto your parents, and near of kin, and unto orphans, and the needy, and the neighbour from among your own people, and the neighbour who is a stranger, and the friend by your side, and the wayfarer, and those whom you rightfully possess. Verily, God does not love any of those who, full of self-conceit, act in a boastful manner;
+WHEN THE SUN is shrouded in darkness,
  <!--END_SECTION:quran-->
 
   
