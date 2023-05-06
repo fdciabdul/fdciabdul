@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 4**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 83**
 
-thereby raising clouds of dust,
+“O my Sustainer! Endow me with the ability to judge [between right and wrong], and make me one with the righteous,
  <!--END_SECTION:quran-->
 
   
