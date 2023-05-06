@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 27**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 3**
 
-But the great ones among his people, who refused to acknowledge the truth, answered: "We do not see in thee anything but a mortal man like ourselves; and we do not see that any follow thee save those who are quite obviously the most abject among us; and we do not see that you could be in any way superior to us: on the contrary, we think that you are liars!"
+on wide-open scrolls.
  <!--END_SECTION:quran-->
 
   
