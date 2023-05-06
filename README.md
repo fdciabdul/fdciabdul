@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 94**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 20**
 
-Answered [Aaron]: "O my mother's son! Seize me not by my beard, nor by my head! Behold, I was afraid lest [on thy return] thou say, 'Thou hast caused a split among the children of Israel, and hast paid no heed to my bidding!"
+and you love wealth with boundless love!
  <!--END_SECTION:quran-->
 
   
