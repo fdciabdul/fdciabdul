@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 45**
 
-and thou seest people enter God's religion in hosts,
+for they were unable even to rise, and could not defend themselves.
  <!--END_SECTION:quran-->
 
   
