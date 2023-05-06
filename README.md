@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 90**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 5**
 
-whereat the heavens might well-nigh be rent into fragments, and the earth be split asunder, and the mountains fall down in ruins!
+He governs all that exists, from the celestial space to the earth; and in the end all shall ascend unto Him [for judgment] on a Day the length whereof will be [like] a thousand years of your reckoning.
  <!--END_SECTION:quran-->
 
   
