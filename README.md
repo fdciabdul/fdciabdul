@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 3**
+**Surah 38: سُورَةُ صٓ (Saad) - 59**
 
-and feels no urge to feed the needy.
+[And they will say to one another: “Do you see] this crowd of people who rushed headlong [into sin] with you? No welcome to them! Verily, they [too] shall have to endure the fire!”
  <!--END_SECTION:quran-->
 
   
