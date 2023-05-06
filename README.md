@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 77**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 30**
 
-Seek instead, by means of what God has granted thee, [the good of] the life to come, without forget­ting, withal, thine own [rightful] share in this world; and do good [unto others] as God has done good unto thee; and seek not to spread corruption on earth: for, verily, God does not love the spreaders of corruption!”
+and how severe was the suffering which I inflicted when My warnings were disregarded!
  <!--END_SECTION:quran-->
 
   
