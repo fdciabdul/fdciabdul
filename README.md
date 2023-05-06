@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 42**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 8**
 
-It is God [alone that has this power - He] who causes all human beings to die at the time of their [bodily] death, and [causes to be as dead], during their sleep, those that have not yet died: thus, He withholds [from life] those upon whom He has decreed death, and lets the others go free for a term set [by Him]. In [all] this, behold, there are messages indeed for people who think!
+O you who have attained to faith! Turn unto God in sincere repentance: it may well be that your Sustainer will efface from you your bad deeds, and will admit you into gardens through which running waters flow, on a Day on which God will not shame the Prophet and those who share his faith: their light will spread rapidly before them, and on their right; [and] they will pray: "O our Sustainer! Cause this our light to shine for us forever, and forgive us our sins: for, verily, Thou hast the power to will anything!"
  <!--END_SECTION:quran-->
 
   
