@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 41**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 76**
 
-[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,
+[But God's messengers replied:] "O Abraham! Desist from this [pleading]! Behold, thy Sustainer's judgment has already gone forth: and, verily, there shall fall upon them a chastisement which none can avert!"
  <!--END_SECTION:quran-->
 
   
