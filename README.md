@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 90**
 
-BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
+whereat the heavens might well-nigh be rent into fragments, and the earth be split asunder, and the mountains fall down in ruins!
  <!--END_SECTION:quran-->
 
   
