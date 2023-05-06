@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 27**
 
-And what could make thee conceive what that crushing torment will be?
+Man’s other self’ will say: “O our Sustainer! It was not I that led his conscious mind into evil [nay,] but it had gone far astray [of its own accord]!
  <!--END_SECTION:quran-->
 
   
