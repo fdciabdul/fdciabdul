@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 3**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 33**
 
-Behold, they who lower their voices in the presence of God’s Apostle - it is they whose hearts God has tested [and opened] to consciousness of Himself; [and] theirs shall be forgiveness and a reward supreme.
+like giant fiery ropes!
  <!--END_SECTION:quran-->
 
   
