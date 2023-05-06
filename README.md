@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 57**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 58**
 
-This, [then, for them -] so let them taste it: burning despair and ice-cold darkness
+and say, “Which is better - our deities or he?” [But] it is only in the spirit of dispute that they put this comparison before thee: yea, they are conten­tious folk!
  <!--END_SECTION:quran-->
 
   
