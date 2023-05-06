@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 8**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 56**
 
-O you who have attained to faith! Turn unto God in sincere repentance: it may well be that your Sustainer will efface from you your bad deeds, and will admit you into gardens through which running waters flow, on a Day on which God will not shame the Prophet and those who share his faith: their light will spread rapidly before them, and on their right; [and] they will pray: "O our Sustainer! Cause this our light to shine for us forever, and forgive us our sins: for, verily, Thou hast the power to will anything!"
+And [tell them that] I have not created the invisible beings and men to any end other than that they may [know and] worship Me.
  <!--END_SECTION:quran-->
 
   
