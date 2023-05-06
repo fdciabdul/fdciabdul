@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 34**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 2**
 
-Verily, as for those who are bent on denying the truth and on barring [others] from the path of God, and then die as deniers of the truth - indeed, God will not grant them forgiveness!
+"the Sovereign of men,
  <!--END_SECTION:quran-->
 
   
