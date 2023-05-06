@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 10**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 27**
 
-Now there is among men many a one who says [of himself and of others like him], “We do believe in God” - but whenever he is made to suffer in God’s cause, he thinks that persecution at the hands of man is as [much to be feared, or even more than,] God’s chastisement; whereas, if succour from thy Sustainer comes [to those who truly believe] he is sure to say. “Behold, we have always been with you!” Is not God fully aware of what is in the hearts of all creatures?
+But the great ones among his people, who refused to acknowledge the truth, answered: "We do not see in thee anything but a mortal man like ourselves; and we do not see that any follow thee save those who are quite obviously the most abject among us; and we do not see that you could be in any way superior to us: on the contrary, we think that you are liars!"
  <!--END_SECTION:quran-->
 
   
