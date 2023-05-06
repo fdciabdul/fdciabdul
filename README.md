@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 23**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 37**
 
-It is such as these whom God rejects, and whom He makes deaf [to the voice of truth], and whose eyes He blinds [to its sight]!
+"O our Sustainer! Behold, I have settled some of my offspring in a valley in which there is no arable land, close to Thy sanctified Temple, so that, O our Sustainer, they might devote themselves to prayer: cause Thou, therefore, people's hearts to incline towards them and grant them fruitful sustenance, so that they might have cause to be grateful.
  <!--END_SECTION:quran-->
 
   
