@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 61**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 64**
 
-Nay - who is it that has made the earth a fitting abode [for living things], and has caused running waters [to flow] in its midst, and has set upon it moun­tains firm, and has placed a barrier between the two great bodies of water? Could there be any divine power besides God? Nay, most of those [who think so] do not know [what they are saying]!
+until - after We shall have taken to task, through suffering, those from among them who [now] are lost in the pursuit of pleasures - they cry out in [belated] supplication.
  <!--END_SECTION:quran-->
 
   
