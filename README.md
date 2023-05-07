@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 25**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 7**
 
-But they [only] ask, "When is this promise to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!"
+[Hence,] O you who are bent on denying the truth, make no [empty] excuses today: [in the life to come] you shall be but recompensed for what you were doing [in this world].
  <!--END_SECTION:quran-->
 
   
