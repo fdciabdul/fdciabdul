@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 62**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
 
-GOD is the Creator of all things, and He alone has the power to determine the fate of all things.
+"and there is nothing that could be compared with Him.
  <!--END_SECTION:quran-->
 
   
