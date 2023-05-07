@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 109**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 64**
 
-“And no reward whatever do I ask of you for it: my reward rests with none but the Sustainer of all the worlds.
+AND [the angels say]: "We do not descend [with revelation], again and again, other than by thy Sustainer's command: unto Him belongs all that lies open before us and all that is hidden-from us and all that is in-between. And never does thy Sustainer forget [anything] –
  <!--END_SECTION:quran-->
 
   
