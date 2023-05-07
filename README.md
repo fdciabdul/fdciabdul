@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 23**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 68**
 
-looking up to their Sustainer;
+And if they [try to] argue with thee, say [only]: “God knows best what you are doing.”
  <!--END_SECTION:quran-->
 
   
