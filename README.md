@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 66**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 81**
 
-nay, their knowledge of the life to come stops short of the truth: nay, they are [often] in doubt as to its reality: nay, they are blind to it.
+Say [O Prophet]: “If the Most Gracious [truly] had a son, I would be the first to worship him!”
  <!--END_SECTION:quran-->
 
   
