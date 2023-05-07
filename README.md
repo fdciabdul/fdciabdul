@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 3**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 5**
 
-of one-half thereof - or make it a little less than that,
+The uppermost heavens are well-nigh rent asunder [for awe of Him]; and the angels extol their Sustainer’s limitless glory and praise, and ask for­giveness for all who are on earth. Oh, verily, God alone is truly-forgiving, a dispenser of grace!
  <!--END_SECTION:quran-->
 
   
