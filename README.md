@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 7**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 3**
 
-although thou art not accountable for his failure to attain to purity;
+of one-half thereof - or make it a little less than that,
  <!--END_SECTION:quran-->
 
   
