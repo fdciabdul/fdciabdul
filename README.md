@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 9**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 63**
 
-God only forbids you to turn in friendship towards such as fight against you because of [your] faith, and drive you forth from your homelands, or aid [others] in driving you forth: and as for those [from among you] who turn towards them in friendship; it is they, they who are truly wrongdoers!
+[God] answered: "Go [the way thou hast chosen]! But as for such of them as shall follow thee - behold, hell will be the recompense of you (all], a recompense most ample!
  <!--END_SECTION:quran-->
 
   
