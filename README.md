@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 23**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 55**
 
-But as for him who is bent on denying the truth - let not his denial grieve thee: unto Us they must return, and then We shall make them [truly] understand all that they were doing [in life]: for, verily, God has full knowledge of what is in the hearts [of men].
+About which, then, of thy Sustainer’s powers canst thou [still] remain in doubt?
  <!--END_SECTION:quran-->
 
   
