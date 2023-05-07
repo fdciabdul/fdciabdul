@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 80**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 3**
 
-and divest him of all that he is [now] speaking of: for [on Judgment Day] he will appear before Us in a lonely state.
+It is the star that pierces through [life's] darkness:
  <!--END_SECTION:quran-->
 
   
