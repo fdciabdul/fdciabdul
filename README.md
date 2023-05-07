@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 5**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 91**
 
-and when all beasts are gathered together,
+AND [remember] her who guarded her chastity, whereupon We breathed into her of Our spirit and caused her, together with her son, to become a symbol [of Our grace] unto all people.
  <!--END_SECTION:quran-->
 
   
