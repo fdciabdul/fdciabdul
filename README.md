@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 5**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 15**
 
-the Sustainer of the heavens and the earth and of all that is between them, and the Sustainer of all the points of sunrise!
+[the fire] which none shall have to endure but that most hapless wretch
  <!--END_SECTION:quran-->
 
   
