@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 25**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 70**
 
-They will be given a drink of pure wine whereon the seal [of God] will have been set,
+INDEED, We accepted a solemn pledge from the children of Israel, and We sent apostles unto them; [but] every time an apostle came unto them with anything that was not to their liking, [they rebelled:] to some of them they gave the lie, while others they would slay,
  <!--END_SECTION:quran-->
 
   
