@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 59**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 25**
 
-barring Lot's household, all of whom, behold, we shall save -
+They will be given a drink of pure wine whereon the seal [of God] will have been set,
  <!--END_SECTION:quran-->
 
   
