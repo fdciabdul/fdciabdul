@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 51**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 21**
 
-And it is not given to mortal man that God should speak unto him otherwise than through sudden inspiration, or [by a voice, as it were,] from behind a veil, or by sending an apostle to reveal, by His leave, whatever He wills [to reveal]: for, verily, He is exalted, wise.
+O my people! Enter the holy land which God has promised you; but do not turn back [on your faith], for then you will be lost!"
  <!--END_SECTION:quran-->
 
   
