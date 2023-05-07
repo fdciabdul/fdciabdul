@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 1**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 80**
 
-SAY: "He is the One God:
+and divest him of all that he is [now] speaking of: for [on Judgment Day] he will appear before Us in a lonely state.
  <!--END_SECTION:quran-->
 
   
