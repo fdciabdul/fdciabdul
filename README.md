@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 70**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 104**
 
-INDEED, We accepted a solemn pledge from the children of Israel, and We sent apostles unto them; [but] every time an apostle came unto them with anything that was not to their liking, [they rebelled:] to some of them they gave the lie, while others they would slay,
+SAY [O Prophet]: "O mankind! If you are in doubt as to what my faith is, then [know that] I do not worship those beings whom you worship beside God, but [that] I worship God alone, who shall cause you [all] to die: for I have been bidden to be among those who believe [in Him alone]."
  <!--END_SECTION:quran-->
 
   
