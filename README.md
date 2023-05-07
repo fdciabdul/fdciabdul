@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 4**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 8**
 
-Lord of the Day of Judgment!
+[As against this,] verily, those who attain to faith and do righteous deeds shall have gardens of bliss,
  <!--END_SECTION:quran-->
 
   
