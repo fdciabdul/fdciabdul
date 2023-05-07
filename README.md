@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 75**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 25**
 
-[The brothers] replied: "Its requital? He in whose camel-pack [the cup] is found-he shall be [enslaved as] a requital thereof! Thus do we [ourselves] requite the doers of [such] wrong.
+But they [only] ask, "When is this promise to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!"
  <!--END_SECTION:quran-->
 
   
