@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 24**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 14**
 
-and he is not one to begrudge others the knowledge [of whatever has been revealed to him] out of that which is beyond the reach of human Perception.
+and so I warn you of the raging fire -
  <!--END_SECTION:quran-->
 
   
