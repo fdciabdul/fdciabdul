@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 23**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 44**
 
-inasmuch as they said [to their followers], 'Do not ever abandon your gods: abandon neither Wadd nor Suwa', and neither Yaghuth nor Ya’uq nor Nasr!'
+Now if he [whom We have entrusted with it] had dared to attribute some [of his own] sayings unto Us,
  <!--END_SECTION:quran-->
 
   
