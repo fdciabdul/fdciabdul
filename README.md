@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 85**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 5**
 
-AND THEY will ask thee about [the nature of] divine inspiration. Say: "This inspiration [comes] at my Sustainer's behest; and [you cannot understand its nature, O men, since] you have been granted very little of [real] knowledge."
+[O wives of the Prophet!] Were he to divorce [any of] you, God might well give him in your stead spouses better than you - women who surrender themselves unto God, who truly believe, devoutly obey His will, turn [unto Him] in repentance [whenever they have sinned] worship [Him alone] and go on and on [seeking His goodly acceptance] - be they women previously married or virgins.
  <!--END_SECTION:quran-->
 
   
