@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 17**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 5**
 
-[and so] I shall constrain him to endure a painful uphill climb!
+of fire fiercely burning [for all who have attained to faith]!
  <!--END_SECTION:quran-->
 
   
