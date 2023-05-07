@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 5**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 38**
 
-of fire fiercely burning [for all who have attained to faith]!
+on the Day when all [human] souls and all the angels will stand up in ranks: none will speak but he to whom the Most Gracious will have given leave; and [everyone] will say [only] what is right.
  <!--END_SECTION:quran-->
 
   
