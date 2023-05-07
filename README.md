@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 6**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 7**
 
-verily, with every hardship comes ease!
+[Hence,] O you who are bent on denying the truth, make no [empty] excuses today: [in the life to come] you shall be but recompensed for what you were doing [in this world].
  <!--END_SECTION:quran-->
 
   
