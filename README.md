@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 15**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 155**
 
-BUT AS FOR man, whenever his Sustainer tries him by His generosity and by letting him enjoy a life of ease, he says, "My Sustainer has been [justly] generous towards me";
+And most certainly shall We try you by means of danger, and hunger, and loss of worldly goods, of lives and of [labour's] fruits. But give glad tidings unto those who are patient in adversity
  <!--END_SECTION:quran-->
 
   
