@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 7**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 41**
 
-and the mountains [its] pegs?
+Hence, whenever they consider thee, [O Muhammad,] they but make thee a target of their mockery, [saying:] “Is this the one whom God has sent as an apostle?
  <!--END_SECTION:quran-->
 
   
