@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 5**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 6**
 
-Does he, then, think that no one has power over him?
+verily, with every hardship comes ease!
  <!--END_SECTION:quran-->
 
   
