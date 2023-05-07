@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 49**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 9**
 
-MAN NEVER TIRES of asking for the good [things of life]; and if evil fortune touches him, he abandons all hope, giving himself up to despair.
+and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,
  <!--END_SECTION:quran-->
 
   
