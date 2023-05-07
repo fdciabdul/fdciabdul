@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 91**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 24**
 
-AND [remember] her who guarded her chastity, whereupon We breathed into her of Our spirit and caused her, together with her son, to become a symbol [of Our grace] unto all people.
+and said, "I am your Lord All-Highest!"
  <!--END_SECTION:quran-->
 
   
