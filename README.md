@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 46**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 7**
 
-Have they, then, never journeyed about the earth, letting their hearts gain wisdom, and causing their ears to hear? Yet, verily, it is not their eyes that have become blind - but blind have become the hearts that are in their breasts!
+The way of those upon whom Thou hast bestowed Thy blessings, not of those who have been condemned [by Thee], nor of those who go astray!
  <!--END_SECTION:quran-->
 
   
