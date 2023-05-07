@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 15**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 13**
 
-[the fire] which none shall have to endure but that most hapless wretch
+and food that chokes, and grievous suffering
  <!--END_SECTION:quran-->
 
   
