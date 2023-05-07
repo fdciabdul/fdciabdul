@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 1**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 37**
 
-CONSIDER the daybreak
+Thus, then, have We bestowed from on high this [divine writ] as an ordinance in the Arabic tongue. And, indeed, if thou shouldst defer to men's likes and dislikes after all the [divine] knowledge that has come unto thee, thou wouldst have none to protect thee from God, and none to shield thee [from Him].
  <!--END_SECTION:quran-->
 
   
