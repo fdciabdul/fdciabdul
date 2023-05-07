@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 99**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 2**
 
-If those [false objects of your worship] had truly been divine, they would not have been destined for it: but [as it is, you] all shall abide therein!”
+"I do not worship that which you worship,
  <!--END_SECTION:quran-->
 
   
