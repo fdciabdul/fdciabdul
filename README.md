@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 14**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 20**
 
-and of whoever [else] lives on earth, all of them - so that he could but save himself.
+and you love wealth with boundless love!
  <!--END_SECTION:quran-->
 
   
