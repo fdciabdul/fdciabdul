@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 14**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 49**
 
-and so I warn you of the raging fire -
+MAN NEVER TIRES of asking for the good [things of life]; and if evil fortune touches him, he abandons all hope, giving himself up to despair.
  <!--END_SECTION:quran-->
 
   
