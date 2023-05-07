@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 104**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 46**
 
-SAY [O Prophet]: "O mankind! If you are in doubt as to what my faith is, then [know that] I do not worship those beings whom you worship beside God, but [that] I worship God alone, who shall cause you [all] to die: for I have been bidden to be among those who believe [in Him alone]."
+Have they, then, never journeyed about the earth, letting their hearts gain wisdom, and causing their ears to hear? Yet, verily, it is not their eyes that have become blind - but blind have become the hearts that are in their breasts!
  <!--END_SECTION:quran-->
 
   
