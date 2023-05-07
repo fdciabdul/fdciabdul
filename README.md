@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 44**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 59**
 
-Now if he [whom We have entrusted with it] had dared to attribute some [of his own] sayings unto Us,
+And yet, [it would be but for their own good] if they were to content themselves with what God has given them and [caused] His Apostle [to give them], and would say, "God is enough for us! God will give us [whatever He wills] out of His bounty, and [will cause] His Apostle [to give us, too]: verily, unto God alone do we turn with hope!"
  <!--END_SECTION:quran-->
 
   
