@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 24**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 19**
 
-Say: "If your fathers and your sons and your brothers and your spouses and your clan, and the worldly goods which you have acquired, and the commerce whereof you fear a decline, and the dwellings in which you take pleasure - [if all these] are dearer to you than God and His Apostle and the struggle in His cause, then wait until God makes manifest His will; and [know that] God does not grace iniquitous folk with His guidance."
+O followers of the Bible! Now, after a long time during which no apostles have appeared, there has come unto you [this] Our Apostle to make [the truth] clear to you, lest you say, "No bearer of glad tidings has come unto us, nor any warner ": for now there has come unto you a bearer of glad tidings and a warner -since God has the power to will anything.
  <!--END_SECTION:quran-->
 
   
