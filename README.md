@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 57**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 4**
 
-And We caused the clouds to comfort you with their shade, and sent down unto you manna and quails. [saying,] "Partake of the good things which We have provided for you as sustenance." And [by all their sinning] they did no harm unto Us-but [only] against their own selves did they sin.
+for, indeed, the life to come will be better for thee than this earlier part [of thy life]!
  <!--END_SECTION:quran-->
 
   
