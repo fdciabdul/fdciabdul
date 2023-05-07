@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 18**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 9**
 
-“And if you give [me] the lie - well, [other] communities have given the lie [to Gods prophets] before your time: but no more is an apostle bound to do than clearly deliver the message [entrusted to him].”
+A record [indelibly] inscribed!
  <!--END_SECTION:quran-->
 
   
