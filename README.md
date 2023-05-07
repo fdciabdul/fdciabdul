@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 36**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 38**
 
-What is amiss with you? On what do you base your judgment [of right and wrong]?
+AND IN [the story of Pharaoh and] Moses, too, [We left the same message: for] when We sent him unto Pharaoh with [Our] manifest authority,
  <!--END_SECTION:quran-->
 
   
