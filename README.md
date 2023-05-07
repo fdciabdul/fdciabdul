@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 22**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 24**
 
-Nay, but they who are bent on denying the truth give the lie [to this divine writ]!
+Say: "If your fathers and your sons and your brothers and your spouses and your clan, and the worldly goods which you have acquired, and the commerce whereof you fear a decline, and the dwellings in which you take pleasure - [if all these] are dearer to you than God and His Apostle and the struggle in His cause, then wait until God makes manifest His will; and [know that] God does not grace iniquitous folk with His guidance."
  <!--END_SECTION:quran-->
 
   
