@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 7**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 89**
 
-The way of those upon whom Thou hast bestowed Thy blessings, not of those who have been condemned [by Thee], nor of those who go astray!
+Yet bear thou with them, and say, “Peace [be upon you]!” - for in time they will come to know [the truth].
  <!--END_SECTION:quran-->
 
   
