@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 5**
 
-"God the Eternal, the Uncaused Cause of All Being.
+does it make secure, until the rise of dawn.
  <!--END_SECTION:quran-->
 
   
