@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 81**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 23**
 
-Say [O Prophet]: “If the Most Gracious [truly] had a son, I would be the first to worship him!”
+inasmuch as they said [to their followers], 'Do not ever abandon your gods: abandon neither Wadd nor Suwa', and neither Yaghuth nor Ya’uq nor Nasr!'
  <!--END_SECTION:quran-->
 
   
