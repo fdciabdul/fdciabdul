@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 5**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 1**
 
-does it make secure, until the rise of dawn.
+SAY: "He is the One God:
  <!--END_SECTION:quran-->
 
   
