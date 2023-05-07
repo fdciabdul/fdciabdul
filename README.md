@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 24**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 59**
 
-[Whereupon God will command:] “Cast, cast into hell every [such] stubborn enemy of the truth,
+barring Lot's household, all of whom, behold, we shall save -
  <!--END_SECTION:quran-->
 
   
