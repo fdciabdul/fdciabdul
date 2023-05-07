@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 17**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 15**
 
-If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,
+[a fire] which they shall enter on Judgment Day,
  <!--END_SECTION:quran-->
 
   
