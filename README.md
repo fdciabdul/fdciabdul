@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 26**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 17**
 
-and none can bind with bonds like His.
+[and so] I shall constrain him to endure a painful uphill climb!
  <!--END_SECTION:quran-->
 
   
