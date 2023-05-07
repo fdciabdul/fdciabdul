@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 29**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 62**
 
-MUHAMMAD is God’s Apostle; and those who are [truly] with him are firm and unyielding towards all deniers of the truth, [yet] full of mercy towards one another. Thou canst see them bowing down, pros­trating themselves [in prayer], seeking favour with God and [His] goodly acceptance: their marks are on their faces, traced by prostration. This is their parable in the Torah as well as their parable in the Gospel: [they are] like a seed that brings forth its shoot, and then He strengthens it, so that it grows stout, and [in the end] stands firm upon its stem, delighting the sowers. [Thus will God cause the believers to grow in strength,] so that through them He might confound the deniers of the truth. [But] unto such of them as may [yet] attain to faith and do righteous deeds, God has promised forgiveness and a reward supreme.
+GOD is the Creator of all things, and He alone has the power to determine the fate of all things.
  <!--END_SECTION:quran-->
 
   
