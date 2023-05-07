@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 41**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 73**
 
-Hence, whenever they consider thee, [O Muhammad,] they but make thee a target of their mockery, [saying:] “Is this the one whom God has sent as an apostle?
+fruits [of those deeds] shall you have in abundance, [and] thereof shall you partake!
  <!--END_SECTION:quran-->
 
   
