@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 80**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 40**
 
-and divest him of all that he is [now] speaking of: for [on Judgment Day] he will appear before Us in a lonely state.
+[hence,] O my Sustainer, cause me and [some] of my offspring to remain constant in prayer! "And, O our Sustainer, accept this my prayer:
  <!--END_SECTION:quran-->
 
   
