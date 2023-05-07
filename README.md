@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 37**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 111**
 
-Thus, then, have We bestowed from on high this [divine writ] as an ordinance in the Arabic tongue. And, indeed, if thou shouldst defer to men's likes and dislikes after all the [divine] knowledge that has come unto thee, thou wouldst have none to protect thee from God, and none to shield thee [from Him].
+Indeed, in the stories of these men there is a lesson for those who are endowed with insight. [As for this revelation,] it could not possibly be a discourse invented [by man]: nay indeed, it is [a divine writ] confirming the truth of whatever there still remains [of earlier revelations], clearly spelling out everything, and [offering] guidance and grace unto people who will believe.
  <!--END_SECTION:quran-->
 
   
