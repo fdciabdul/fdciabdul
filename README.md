@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 13**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 66**
 
-This, because they have cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution.
+nay, their knowledge of the life to come stops short of the truth: nay, they are [often] in doubt as to its reality: nay, they are blind to it.
  <!--END_SECTION:quran-->
 
   
