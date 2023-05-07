@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 9**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 13**
 
-and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,
+This, because they have cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution.
  <!--END_SECTION:quran-->
 
   
