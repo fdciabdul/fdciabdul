@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 38**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 24**
 
-on the Day when all [human] souls and all the angels will stand up in ranks: none will speak but he to whom the Most Gracious will have given leave; and [everyone] will say [only] what is right.
+[Whereupon God will command:] “Cast, cast into hell every [such] stubborn enemy of the truth,
  <!--END_SECTION:quran-->
 
   
