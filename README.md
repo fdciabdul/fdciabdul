@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 16**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 73**
 
-Say: “Do you, perchance, [want to] inform God of [the nature of] your faith although God knows all that is in the heavens and all that is on earth? Indeed, God has full knowledge of every­thing!”
+and who, whenever they are reminded of their Sustainer’s messages, do not throw themselves upon them [as if] deaf and blind;
  <!--END_SECTION:quran-->
 
   
