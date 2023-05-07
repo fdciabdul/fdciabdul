@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 107**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 23**
 
-But if afterwards it should come to light that the two [witnesses] have become guilty of [this very] sin, then two others - from among those whom the two former have deprived of their right - shall take their place and shall swear by God, "Our testimony is indeed truer than the testimony of these two, and we have not transgressed the bounds of what is right - or else, may we indeed be counted among the evildoers!"
+looking up to their Sustainer;
  <!--END_SECTION:quran-->
 
   
