@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 19**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 17**
 
-O followers of the Bible! Now, after a long time during which no apostles have appeared, there has come unto you [this] Our Apostle to make [the truth] clear to you, lest you say, "No bearer of glad tidings has come unto us, nor any warner ": for now there has come unto you a bearer of glad tidings and a warner -since God has the power to will anything.
+If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,
  <!--END_SECTION:quran-->
 
   
