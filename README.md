@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 89**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 10**
 
-Yet bear thou with them, and say, “Peace [be upon you]!” - for in time they will come to know [the truth].
+And when the prayer is ended, disperse freely on earth and seek to obtain [something] of God's bounty; but remember God often, so that you might attain to a happy state!
  <!--END_SECTION:quran-->
 
   
