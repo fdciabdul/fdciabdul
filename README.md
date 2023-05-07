@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 10**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 14**
 
-And when the prayer is ended, disperse freely on earth and seek to obtain [something] of God's bounty; but remember God often, so that you might attain to a happy state!
+and of whoever [else] lives on earth, all of them - so that he could but save himself.
  <!--END_SECTION:quran-->
 
   
