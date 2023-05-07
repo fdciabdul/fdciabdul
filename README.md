@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 63**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 57**
 
-[God] answered: "Go [the way thou hast chosen]! But as for such of them as shall follow thee - behold, hell will be the recompense of you (all], a recompense most ample!
+And We caused the clouds to comfort you with their shade, and sent down unto you manna and quails. [saying,] "Partake of the good things which We have provided for you as sustenance." And [by all their sinning] they did no harm unto Us-but [only] against their own selves did they sin.
  <!--END_SECTION:quran-->
 
   
