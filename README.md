@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 37**
 
-"God the Eternal, the Uncaused Cause of All Being.
+whereas he whom God guides aright can never be led astray. Is not God almighty, an avenger of evil?
  <!--END_SECTION:quran-->
 
   
