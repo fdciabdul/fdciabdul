@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 111**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 109**
 
-Indeed, in the stories of these men there is a lesson for those who are endowed with insight. [As for this revelation,] it could not possibly be a discourse invented [by man]: nay indeed, it is [a divine writ] confirming the truth of whatever there still remains [of earlier revelations], clearly spelling out everything, and [offering] guidance and grace unto people who will believe.
+“And no reward whatever do I ask of you for it: my reward rests with none but the Sustainer of all the worlds.
  <!--END_SECTION:quran-->
 
   
