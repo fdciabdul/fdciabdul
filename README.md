@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 59**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 4**
 
-And yet, [it would be but for their own good] if they were to content themselves with what God has given them and [caused] His Apostle [to give them], and would say, "God is enough for us! God will give us [whatever He wills] out of His bounty, and [will cause] His Apostle [to give us, too]: verily, unto God alone do we turn with hope!"
+Lord of the Day of Judgment!
  <!--END_SECTION:quran-->
 
   
