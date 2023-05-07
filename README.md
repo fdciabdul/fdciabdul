@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 43**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 51**
 
-Art thou not aware that it is God who causes the clouds to move onward, then joins them together, then piles them up in masses, until thou can see rain come forth from their midst? And He it is who sends down from the skies, by degrees, mountainous masses [of clouds] charged with hail, striking therewith whomever He wills and averting it from whomever He wills, [the while] the flash of His lightning well-nigh deprives [men of their] sight!
+And it is not given to mortal man that God should speak unto him otherwise than through sudden inspiration, or [by a voice, as it were,] from behind a veil, or by sending an apostle to reveal, by His leave, whatever He wills [to reveal]: for, verily, He is exalted, wise.
  <!--END_SECTION:quran-->
 
   
