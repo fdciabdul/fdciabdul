@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 24**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 24**
 
-"And so they have led many a one astray: hence, ordain Thou that these evildoers stray but farther and farther away [from all that they may desire]!"
+[Let them, then, wait] until the time when they behold that [doom] of which they were forewarned: for then they will come to understand which [kind of man] is more helpless and counts for less!
  <!--END_SECTION:quran-->
 
   
