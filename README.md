@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 22**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 80**
 
-for, God has created the heavens and the earth in accordance with [an inner] truth, and [has therefore willed] that every human being shall be recompensed for what he has earned and none shall be wronged.
+and divest him of all that he is [now] speaking of: for [on Judgment Day] he will appear before Us in a lonely state.
  <!--END_SECTION:quran-->
 
   
