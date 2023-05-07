@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 2**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 61**
 
-"I do not worship that which you worship,
+Nay - who is it that has made the earth a fitting abode [for living things], and has caused running waters [to flow] in its midst, and has set upon it moun­tains firm, and has placed a barrier between the two great bodies of water? Could there be any divine power besides God? Nay, most of those [who think so] do not know [what they are saying]!
  <!--END_SECTION:quran-->
 
   
