@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
 
-"and there is nothing that could be compared with Him.
+"God the Eternal, the Uncaused Cause of All Being.
  <!--END_SECTION:quran-->
 
   
