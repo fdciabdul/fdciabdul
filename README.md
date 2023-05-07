@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 1**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 36**
 
-Nun. CONSIDER the pen, and all that they write [therewith]!
+What is amiss with you? On what do you base your judgment [of right and wrong]?
  <!--END_SECTION:quran-->
 
   
