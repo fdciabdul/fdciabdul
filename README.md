@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 54**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 31**
 
-and will thereupon have to drink [many a draught] of burning despair -
+whereas such as seek to go beyond that [limit] are truly transgressors;
  <!--END_SECTION:quran-->
 
   
