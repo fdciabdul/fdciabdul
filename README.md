@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 5**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 5**
 
-The uppermost heavens are well-nigh rent asunder [for awe of Him]; and the angels extol their Sustainer’s limitless glory and praise, and ask for­giveness for all who are on earth. Oh, verily, God alone is truly-forgiving, a dispenser of grace!
+Whatever [of their] palm trees you may have cut down, [O believers,] or left standing on their roots, was [done] by God’s leave, and in order that He might confound the iniquitous.
  <!--END_SECTION:quran-->
 
   
