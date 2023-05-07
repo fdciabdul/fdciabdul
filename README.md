@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 73**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 1**
 
-and who, whenever they are reminded of their Sustainer’s messages, do not throw themselves upon them [as if] deaf and blind;
+Nun. CONSIDER the pen, and all that they write [therewith]!
  <!--END_SECTION:quran-->
 
   
