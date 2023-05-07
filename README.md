@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 6**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 3**
 
-he has been created out of a seminal fluid
+thinking that his wealth will make him live forever!
  <!--END_SECTION:quran-->
 
   
