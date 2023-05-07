@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 40**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 27**
 
-[hence,] O my Sustainer, cause me and [some] of my offspring to remain constant in prayer! "And, O our Sustainer, accept this my prayer:
+For, if God were to grant [in this world] abundant sustenance to [all of] His servants, they would behave on earth with wanton insolence: but as it is, He bestows [His grace] from on high in due measure, as He wills: for, verily, He is fully aware of [the needs of] His creatures, and sees them all.
  <!--END_SECTION:quran-->
 
   
