@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 15**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 15**
 
-[a fire] which they shall enter on Judgment Day,
+BUT AS FOR man, whenever his Sustainer tries him by His generosity and by letting him enjoy a life of ease, he says, "My Sustainer has been [justly] generous towards me";
  <!--END_SECTION:quran-->
 
   
