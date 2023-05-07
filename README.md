@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 13**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 1**
 
-and food that chokes, and grievous suffering
+IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:
  <!--END_SECTION:quran-->
 
   
