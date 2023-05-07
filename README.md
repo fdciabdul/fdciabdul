@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 155**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 107**
 
-And most certainly shall We try you by means of danger, and hunger, and loss of worldly goods, of lives and of [labour's] fruits. But give glad tidings unto those who are patient in adversity
+But if afterwards it should come to light that the two [witnesses] have become guilty of [this very] sin, then two others - from among those whom the two former have deprived of their right - shall take their place and shall swear by God, "Our testimony is indeed truer than the testimony of these two, and we have not transgressed the bounds of what is right - or else, may we indeed be counted among the evildoers!"
  <!--END_SECTION:quran-->
 
   
