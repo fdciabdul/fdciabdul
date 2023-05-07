@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 73**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 6**
 
-fruits [of those deeds] shall you have in abundance, [and] thereof shall you partake!
+he has been created out of a seminal fluid
  <!--END_SECTION:quran-->
 
   
