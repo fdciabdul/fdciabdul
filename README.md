@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 24**
 
-CONSIDER the flight of time!
+and he is not one to begrudge others the knowledge [of whatever has been revealed to him] out of that which is beyond the reach of human Perception.
  <!--END_SECTION:quran-->
 
   
