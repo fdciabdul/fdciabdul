@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 7**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 6**
 
-[Hence,] O you who are bent on denying the truth, make no [empty] excuses today: [in the life to come] you shall be but recompensed for what you were doing [in this world].
+ART THOU NOT aware of how thy Sustainer has dealt with [the tribe of] ‘Ad,
  <!--END_SECTION:quran-->
 
   
