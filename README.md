@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 24**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 32**
 
-[Let them, then, wait] until the time when they behold that [doom] of which they were forewarned: for then they will come to understand which [kind of man] is more helpless and counts for less!
+AND [you ought to] marry the single from among you as well as such of your male and female slaves as are fit [for marriage]. If they [whom you intend to marry] are poor, [let this not deter you;] God will grant them sufficiency out of His bounty - for God is infinite [in His mercy], all-knowing.
  <!--END_SECTION:quran-->
 
   
