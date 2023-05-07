@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 7**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 23**
 
-And know that God’s Apostle is among you: were he to comply with your inclinations in each and every case, you would be bound to come to harm [as a community]. But as it is, God has caused [your] faith to be dear to you, and has given it beauty in your hearts, and has made hateful to you all denial of the truth, and all iniquity, and all rebellion [against what is good]. Such indeed are they who follow the right course
+But as for him who is bent on denying the truth - let not his denial grieve thee: unto Us they must return, and then We shall make them [truly] understand all that they were doing [in life]: for, verily, God has full knowledge of what is in the hearts [of men].
  <!--END_SECTION:quran-->
 
   
