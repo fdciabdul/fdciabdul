@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 4**
 
-hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
+Consider the long-enduring house [of worship]!
  <!--END_SECTION:quran-->
 
   
