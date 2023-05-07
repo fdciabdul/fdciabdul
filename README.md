@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 3**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 24**
 
-thinking that his wealth will make him live forever!
+"And so they have led many a one astray: hence, ordain Thou that these evildoers stray but farther and farther away [from all that they may desire]!"
  <!--END_SECTION:quran-->
 
   
