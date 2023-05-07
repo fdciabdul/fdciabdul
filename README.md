@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 21**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 34**
 
-O my people! Enter the holy land which God has promised you; but do not turn back [on your faith], for then you will be lost!"
+[and so,] behold, We let loose upon them a deadly tempest; and only Lot ’s kinsfolk did We save at the break of dawn,
  <!--END_SECTION:quran-->
 
   
