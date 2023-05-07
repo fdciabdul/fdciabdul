@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 68**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 99**
 
-And if they [try to] argue with thee, say [only]: “God knows best what you are doing.”
+If those [false objects of your worship] had truly been divine, they would not have been destined for it: but [as it is, you] all shall abide therein!”
  <!--END_SECTION:quran-->
 
   
