@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 20**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 8**
 
-and you love wealth with boundless love!
+They aim to extinguish God's light with their utterances: but God has willed to spread His light in all its fullness, however hateful this may be to all who deny the truth
  <!--END_SECTION:quran-->
 
   
