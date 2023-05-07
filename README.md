@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 37**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 85**
 
-whereas he whom God guides aright can never be led astray. Is not God almighty, an avenger of evil?
+AND THEY will ask thee about [the nature of] divine inspiration. Say: "This inspiration [comes] at my Sustainer's behest; and [you cannot understand its nature, O men, since] you have been granted very little of [real] knowledge."
  <!--END_SECTION:quran-->
 
   
