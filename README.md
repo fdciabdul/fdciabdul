@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 6**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 8**
 
-ART THOU NOT aware of how thy Sustainer has dealt with [the tribe of] ‘Ad,
+and on that Day you will most surely be called to account for [what you did with] the boon of life!
  <!--END_SECTION:quran-->
 
   
