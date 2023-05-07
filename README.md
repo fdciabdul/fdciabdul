@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 5**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 5**
 
-Whatever [of their] palm trees you may have cut down, [O believers,] or left standing on their roots, was [done] by God’s leave, and in order that He might confound the iniquitous.
+Does he, then, think that no one has power over him?
  <!--END_SECTION:quran-->
 
   
