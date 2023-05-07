@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 9**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 7**
 
-A record [indelibly] inscribed!
+and the mountains [its] pegs?
  <!--END_SECTION:quran-->
 
   
