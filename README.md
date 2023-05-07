@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 34**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 22**
 
-[and so,] behold, We let loose upon them a deadly tempest; and only Lot ’s kinsfolk did We save at the break of dawn,
+Nay, but they who are bent on denying the truth give the lie [to this divine writ]!
  <!--END_SECTION:quran-->
 
   
