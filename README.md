@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 3**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 5**
 
-It is the star that pierces through [life's] darkness:
+the Sustainer of the heavens and the earth and of all that is between them, and the Sustainer of all the points of sunrise!
  <!--END_SECTION:quran-->
 
   
