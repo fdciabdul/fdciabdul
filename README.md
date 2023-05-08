@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 23**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 87**
 
-And thus it is: whenever We sent, before thy time, a warner to any community, those of its people who had lost themselves entirely in the pursuit of pleasures would always say, “Behold, we found our forefathers agreed on what to believe - and, verily, it is but in their footsteps that we follow!”
+And on that Day the trumpet [of judgment] will be sounded, and all [creatures] that are in the heavens and all that are on earth will be stricken with terror, except such as God wills [to exempt]: and in utter lowliness all will come unto Him.
  <!--END_SECTION:quran-->
 
   
