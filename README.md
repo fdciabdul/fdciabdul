@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 30**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 6**
 
-Or do they say, “[He is but] a poet - let us wait what time will do unto him”?
+Unto you, your moral law, and unto me, mine!"
  <!--END_SECTION:quran-->
 
   
