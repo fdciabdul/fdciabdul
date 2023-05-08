@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 35**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 5**
 
-and ever nearer unto thee, and nearer!
+and thereafter We reduce him to the lowest of low
  <!--END_SECTION:quran-->
 
   
