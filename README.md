@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 63**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 71**
 
-they who have attained to faith and have always been conscious of Him.
+[And there] they will be waited upon with trays and goblets of gold; and there will be found all that the souls might desire, and [all that] the eyes might delight in. And therein shall you abide, [O you who believe:]
  <!--END_SECTION:quran-->
 
   
