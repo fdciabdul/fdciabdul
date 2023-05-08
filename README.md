@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 48**
+**Surah 38: سُورَةُ صٓ (Saad) - 64**
 
-BUT IF they turn away [from thee, O Prophet, know that] We have not sent thee to be their keeper: thou art not bound to do more than deliver the message [entrusted to thee]. And, behold, [such as turn away from Our mes­sages are but impelled by the weakness and incon­stancy of human nature: thus,] when We give man a taste of Our grace, he is prone to exult in it; but if misfortune befalls [any of] them in result of what their own hands have sent forth, then, behold, man shows how bereft he is of all gratitude!
+Such, behold, will in truth be the [confusion and] mutual wrangling of the people of the fire!
  <!--END_SECTION:quran-->
 
   
