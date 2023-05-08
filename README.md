@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 52**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 53**
 
-[But] thus it is: never yet came any apostle to those who lived before their time but they said, “A spellbinder [Lit., "sorcerer".] [is he], or a madman!”
+And, indeed, We bestowed aforetime [Our] guidance on Moses, and [thus] made the children of Israel heirs to the divine writ [revealed to him]
  <!--END_SECTION:quran-->
 
   
