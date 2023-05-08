@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 8**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 6**
 
-Say: "Behold, the death from which you are fleeing is bound to overtake you - and then you will be brought back unto Him who knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind, whereupon He will make you truly understand all that you were doing [in life].
+As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.
  <!--END_SECTION:quran-->
 
   
