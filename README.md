@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 51**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 52**
 
-for, verily, it is truth absolute!
+[But] thus it is: never yet came any apostle to those who lived before their time but they said, “A spellbinder [Lit., "sorcerer".] [is he], or a madman!”
  <!--END_SECTION:quran-->
 
   
