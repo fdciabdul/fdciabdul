@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 29**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 4**
 
-And they who [in their life on earth] were bent on denying the truth will [thereupon] exclaim: “O our Sustainer! Show us those of the invisible beings and humans that have led us astray: we shall trample them underfoot, so that they shall be the lowest of all!”
+who has given them food against hunger, and made them safe from danger.
  <!--END_SECTION:quran-->
 
   
