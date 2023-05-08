@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 3**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 99**
 
-verily, thou art indeed one of God’s message-bearers,
+[AS FOR THOSE who will not believe in the life to come, they go on lying to themselves] until, when death approaches any of them, he prays: “O my Sustainer! Let me return, let me return [to life],
  <!--END_SECTION:quran-->
 
   
