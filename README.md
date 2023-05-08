@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 16**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 30**
 
-Can you ever feel secure that He who is in heaven will not cause the earth to swallow you up when, lo and behold, it begins to quake?
+Or do they say, “[He is but] a poet - let us wait what time will do unto him”?
  <!--END_SECTION:quran-->
 
   
