@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 7**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 1**
 
-And as for him whose record shall be placed in his right hand,
+HALLOWED be He in whose hand all dominion rests, since He has the power to will anything:
  <!--END_SECTION:quran-->
 
   
