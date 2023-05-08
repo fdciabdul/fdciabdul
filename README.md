@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 15**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 20**
 
-He it is who has made the earth easy to live upon: go about, then, in all its regions, and partake the sustenance which He provides: but [always bear in mind that] unto Him you shall be resurrected.
+and with fruit of any kind that they may choose,
  <!--END_SECTION:quran-->
 
   
