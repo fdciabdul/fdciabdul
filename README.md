@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 50**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
 
-and that it is He who destroyed the ancient [tribes of] Ad
+Verily, he that hates thee has indeed been cut off [from all that is good]!
  <!--END_SECTION:quran-->
 
   
