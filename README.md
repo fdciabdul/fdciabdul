@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 5**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 15**
 
-does it make secure, until the rise of dawn.
+that, whenever Our messages are conveyed to him, such a one says, "Fables of ancient times"?
  <!--END_SECTION:quran-->
 
   
