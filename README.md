@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 25**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 42**
 
-and shake the trunk of the palm-tree towards thee: it will drop fresh, ripe dates upon thee.
+It is God [alone that has this power - He] who causes all human beings to die at the time of their [bodily] death, and [causes to be as dead], during their sleep, those that have not yet died: thus, He withholds [from life] those upon whom He has decreed death, and lets the others go free for a term set [by Him]. In [all] this, behold, there are messages indeed for people who think!
  <!--END_SECTION:quran-->
 
   
