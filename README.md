@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 11**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 17**
 
-But nay: no refuge [for thee, O man]!
+[He is] the Sustainer of the two farthest points of sunrise, and the Sustainer of the two farthest points of sunset.
  <!--END_SECTION:quran-->
 
   
