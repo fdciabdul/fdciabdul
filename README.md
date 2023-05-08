@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 22**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 22**
 
-and in time she conceived him, and then she withdrew with him to a far-off place.
+Not so, however, those who consciously turn towards God in prayer.
  <!--END_SECTION:quran-->
 
   
