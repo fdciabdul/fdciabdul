@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 44**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 8**
 
-Hence, leave Me alone with such as give the lie to this tiding. We shall bring them low, step by step, without their perceiving how it has come about:
+Say: "Behold, the death from which you are fleeing is bound to overtake you - and then you will be brought back unto Him who knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind, whereupon He will make you truly understand all that you were doing [in life].
  <!--END_SECTION:quran-->
 
   
