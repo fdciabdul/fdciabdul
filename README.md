@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 3**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 5**
 
-thinking that his wealth will make him live forever!
+and thereupon causes it to decay into rust-brown stubble!
  <!--END_SECTION:quran-->
 
   
