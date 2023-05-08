@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 35**
 
-hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
+Does he [claim to] have knowledge of some­thing that is beyond the reach of human perception, so that he can see [it clearly]?
  <!--END_SECTION:quran-->
 
   
