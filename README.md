@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 16**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 6**
 
-NOW, VERILY, it is We who have created man, and We know what his innermost self whispers within him: for We are closer to him than his neck-vein.
+those who want only to be seen and praised,
  <!--END_SECTION:quran-->
 
   
