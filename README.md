@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 2**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 17**
 
-so that you may worship none but God. [Say, O Prophet:] "Behold, I come unto you from Him [as] a warner and a bearer of glad tidings:
+"'And God has caused you to grow out of the earth in [gradual] growth; and thereafter He will return you to it [in death]:
  <!--END_SECTION:quran-->
 
   
