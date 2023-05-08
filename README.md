@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 15**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 15**
 
-And, indeed, We have caused such [floating vessels] to remain forever a sign [of Our grace unto man]: who, then, is willing to take it to heart?
+He it is who has made the earth easy to live upon: go about, then, in all its regions, and partake the sustenance which He provides: but [always bear in mind that] unto Him you shall be resurrected.
  <!--END_SECTION:quran-->
 
   
