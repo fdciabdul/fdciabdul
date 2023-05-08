@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 7**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 160**
 
-Verily, as for those who do not believe that they are destined to meet Us, but content themselves with the life of this world and do not look beyond it, and are heedless of Our messages -
+Whoever shall come [before God] with a good deed will gain ten times the like thereof; but whoever shall come with an evil deed will be requited with no more than the like thereof; and none shall be wronged.
  <!--END_SECTION:quran-->
 
   
