@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 77**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 3**
 
-AND, INDEED, [a time came when] We thus inspired Moses: "Go forth with My servants by night, and strike out for them a dry path through the sea; [and] fear not of being overtaken, and dread not [the sea]."
+THUS has God, the Almighty, the Wise, revealed [the truth] unto thee, [O Muhammad,] and unto those who preceded thee:
  <!--END_SECTION:quran-->
 
   
