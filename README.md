@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 6**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 63**
 
-Unto you, your moral law, and unto me, mine!"
+they who have attained to faith and have always been conscious of Him.
  <!--END_SECTION:quran-->
 
   
