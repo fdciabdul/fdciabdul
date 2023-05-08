@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 1**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 63**
 
-DOOMED are the hands of him of the glowing countence: and doomed is he!
+And so, when they returned to their father, [Joseph's brothers] said: "O our father! All grain is [to be] withheld from us [in the future unless we bring Benjamin with us]: send, therefore, our brother with us, so that we may obtain our measure (of grain]; and, verily, we shall guard him well!"
  <!--END_SECTION:quran-->
 
   
