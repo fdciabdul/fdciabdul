@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 5**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
 
-and thereupon causes it to decay into rust-brown stubble!
+Let them, therefore, worship the Sustainer of this Temple;
  <!--END_SECTION:quran-->
 
   
