@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 64**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 44**
 
-Such, behold, will in truth be the [confusion and] mutual wrangling of the people of the fire!
+Hence, leave Me alone with such as give the lie to this tiding. We shall bring them low, step by step, without their perceiving how it has come about:
  <!--END_SECTION:quran-->
 
   
