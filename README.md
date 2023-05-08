@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 2**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 47**
 
-and [when] the earth yields up her burdens,
+In Him alone is vested the knowledge of when the Last Hour will come. And no fruit bursts forth from its calyx, and no female ever conceives, nor ever gives birth, save with His knowledge. And so, on the Day when He shall call out to them, “Where, now, are those [alleged] partners of Mine?” - they will [surely] answer, “We confess unto Thee that none of us can bear witness [to anyone’s having a share in Thy divinity]!”
  <!--END_SECTION:quran-->
 
   
