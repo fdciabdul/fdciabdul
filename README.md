@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 43**
 
-and, withal, deny all assistance [to their fellow-men]!
+Verily, it is We who grant life and deal death; and with Us will be all journeys’ end
  <!--END_SECTION:quran-->
 
   
