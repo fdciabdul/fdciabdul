@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 9**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 1**
 
-Therefore, the orphan shalt thou never wrong,
+WHEN THE HYPOCRITES come unto thee, they say, "We bear witness that thou art indeed God's Apostle!" But God knows that thou art truly His Apostle; and He bears witness that the hypocrites are indeed false [in their declaration of faith].
  <!--END_SECTION:quran-->
 
   
