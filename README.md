@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 16**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 24**
 
-or of a needy [stranger] lying in the dust –
+and they said: “Are we to follow one single mortal, one from among ourselves? In that case, behold, we would certainly sink into error and folly!
  <!--END_SECTION:quran-->
 
   
