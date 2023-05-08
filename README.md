@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 23**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
 
-looking up to their Sustainer;
+"And I will not worship ~hat which you have [ever] worshipped,
  <!--END_SECTION:quran-->
 
   
