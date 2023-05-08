@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 15**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 1**
 
-[Still,] behold, We shall postpone this suffer­ing for a little while, although you are bound to revert [to your evil ways: but]
+WHEN THE SKY is cleft asunder,
  <!--END_SECTION:quran-->
 
   
