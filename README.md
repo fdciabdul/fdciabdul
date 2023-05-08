@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 22**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 16**
 
-Verily, the vilest of all creatures in the sight of God are those deaf, those dumb ones who do not use their reason.
+Can you ever feel secure that He who is in heaven will not cause the earth to swallow you up when, lo and behold, it begins to quake?
  <!--END_SECTION:quran-->
 
   
