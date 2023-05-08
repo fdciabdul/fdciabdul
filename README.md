@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 20**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 10**
 
-Not equal are those who are destined for the fire and those who are destined for paradise: those who are destined for paradise - it is they, they [alone] who shall triumph [on Judgment Day]!
+and truly lost is he who buries it [in darkness].
  <!--END_SECTION:quran-->
 
   
