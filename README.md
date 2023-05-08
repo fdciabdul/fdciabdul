@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 70**
 
-Let them, therefore, worship the Sustainer of this Temple;
+for every human being will be repaid in full for whatever [good or evil] he has done: and He is fully aware of all that they do.
  <!--END_SECTION:quran-->
 
   
