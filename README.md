@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 11**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 46**
 
-and made the day [a symbol of] life.
+out of a [mere] drop of sperm as it is poured forth,
  <!--END_SECTION:quran-->
 
   
