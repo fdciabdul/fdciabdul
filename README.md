@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 2**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 3**
 
-obeying its Sustainer, as in truth it must;
+verily, thou art indeed one of God’s message-bearers,
  <!--END_SECTION:quran-->
 
   
