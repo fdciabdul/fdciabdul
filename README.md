@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 124**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 13**
 
-most certainly shall I cut off your hands and your feet in great numbers, because of [your] perverseness, and then I shall most certainly crucify you, in great numbers, all together! "
+God - there is no deity save Him! In God then let the believers place their trust.
  <!--END_SECTION:quran-->
 
   
