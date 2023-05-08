@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 17**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 12**
 
-and the night, and what it [step by step] unfolds,
+they who [mockingly] ask, “When is that Day of Judgment to be?”
  <!--END_SECTION:quran-->
 
   
