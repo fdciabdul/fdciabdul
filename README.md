@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 3**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 35**
 
-hence, as for those who would separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, and thereafter would go back on what they have said, [their atonement] shall be the freeing of a human being from bondage before the couple may touch one another again: this you are [hereby] exhorted to do - for God is fully aware of all that you do.
+and ever nearer unto thee, and nearer!
  <!--END_SECTION:quran-->
 
   
