@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 17**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 11**
 
-EXTOL, then, God’s limitless glory when you enter upon the evening hours, and when you rise at morn;
+Their apostles answered them: "True, we are nothing but mortal men like yourselves: but God bestows His favour upon whomever He wills of His servants. Withal, it is not within our power to bring you a proof [of our mission], unless it be by God's leave-and [so] it is in God that all believers must place their trust.
  <!--END_SECTION:quran-->
 
   
