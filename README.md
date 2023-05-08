@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 43**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 16**
 
-Verily, it is We who grant life and deal death; and with Us will be all journeys’ end
+or of a needy [stranger] lying in the dust –
  <!--END_SECTION:quran-->
 
   
