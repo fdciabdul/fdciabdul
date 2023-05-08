@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 26**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 6**
 
-Unto God belongs all that is in the heavens and on earth. Verily, God alone is self-sufficient, the One to whom all praise is due!
+[then,] O man - thou [that] hast, verily, been toiling towards thy Sustainer in painful toil - then shalt thou meet Him!
  <!--END_SECTION:quran-->
 
   
