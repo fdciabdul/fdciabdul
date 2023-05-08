@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 14**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 6**
 
-And He it is who has made the sea subservient [to His laws], so that you might eat fresh meat from it, and take from it gems which you may wear. And on that [very sea] one sees ships ploughing through the waves, so that you might [be able to] go forth in quest of some of His bounty, and thus have cause to be grateful [to Him].
+Say thou, [O Prophet:] “I am but a mortal like you. It has been revealed to me that your God is the One God: go, then, straight towards Him and seek His forgiveness!” And woe unto those who ascribe divinity to aught beside Him,
  <!--END_SECTION:quran-->
 
   
