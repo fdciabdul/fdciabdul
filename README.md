@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 22**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 2**
 
-Not so, however, those who consciously turn towards God in prayer.
+Did He not utterly confound their artful planning?
  <!--END_SECTION:quran-->
 
   
