@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 32**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 13**
 
-This is [to be borne in mind]. And anyone who honours the symbols set up by God [shall know that] verily, these [symbols derive their value] from the God-consciousness in the [believers’] hearts.
+God - there is no deity save Him! In God then let the believers place their trust.
  <!--END_SECTION:quran-->
 
   
