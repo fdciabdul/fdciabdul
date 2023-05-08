@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 20**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 2**
 
-and with fruit of any kind that they may choose,
+obeying its Sustainer, as in truth it must;
  <!--END_SECTION:quran-->
 
   
