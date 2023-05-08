@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 15**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
 
-that, whenever Our messages are conveyed to him, such a one says, "Fables of ancient times"?
+extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
  <!--END_SECTION:quran-->
 
   
