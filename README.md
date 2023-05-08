@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 10**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 26**
 
-[and] in that [state of happiness] they will call out, "Limitless art Thou in Thy glory, O God!"-and will be answered with the greeting, "Peace!" And their call will close with [the words], "All praise is due to God, the Sustainer of all the worlds!"
+Eat, then, and drink, and let thine eye be gladdened! And if thou shouldst see any human being, convey this unto him: `Behold, abstinence from speech have I vowed unto the Most Gracious; hence, I may not speak today to any mortal.
  <!--END_SECTION:quran-->
 
   
