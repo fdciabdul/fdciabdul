@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 24**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 3**
 
-and they said: “Are we to follow one single mortal, one from among ourselves? In that case, behold, we would certainly sink into error and folly!
+thinking that his wealth will make him live forever!
  <!--END_SECTION:quran-->
 
   
