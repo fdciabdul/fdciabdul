@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 26**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 11**
 
-Thereupon [his brother’s son] Lot came to believe in him and said: “Verily, I [too] shall forsake the domain of evil [and turn] to my Sustainer: for, verily, He alone is almighty, truly wise!”
+and made the day [a symbol of] life.
  <!--END_SECTION:quran-->
 
   
