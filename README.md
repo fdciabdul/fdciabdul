@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 17**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 26**
 
-[He is] the Sustainer of the two farthest points of sunrise, and the Sustainer of the two farthest points of sunset.
+Thereupon [his brother’s son] Lot came to believe in him and said: “Verily, I [too] shall forsake the domain of evil [and turn] to my Sustainer: for, verily, He alone is almighty, truly wise!”
  <!--END_SECTION:quran-->
 
   
