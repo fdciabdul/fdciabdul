@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 13**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 23**
 
-for they will have no intercessors in the beings to whom they were wont to ascribe a share in God’s divinity, seeing that [by then] they themselves will have ceased to believe in their erstwhile blasphemous fancies.
+looking up to their Sustainer;
  <!--END_SECTION:quran-->
 
   
