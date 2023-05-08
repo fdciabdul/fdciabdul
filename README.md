@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 53**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 11**
 
-And, indeed, We bestowed aforetime [Our] guidance on Moses, and [thus] made the children of Israel heirs to the divine writ [revealed to him]
+But nay: no refuge [for thee, O man]!
  <!--END_SECTION:quran-->
 
   
