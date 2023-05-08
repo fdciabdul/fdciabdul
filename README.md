@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 66**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 15**
 
-YOUR SUSTAINER is He who causes ships to move onward for you through the sea, so that you might go about in quest of some of His bounty: verily, a dispenser of grace is He unto you.
+[Still,] behold, We shall postpone this suffer­ing for a little while, although you are bound to revert [to your evil ways: but]
  <!--END_SECTION:quran-->
 
   
