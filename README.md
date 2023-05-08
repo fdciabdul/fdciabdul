@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 70**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 42**
 
-they who give the lie to this divine writ and [thus] to all [the messages] with which We sent forth Our apostles [of old]? But in time they will come to know [how blind they have been: they will know it on Judgment Day],
+verily, thou shalt have no power over My creatures- unless it be such as are [already] lost in grievous error and follow thee [of their own will]:
  <!--END_SECTION:quran-->
 
   
