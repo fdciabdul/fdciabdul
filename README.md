@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 35**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 13**
 
-Does he [claim to] have knowledge of some­thing that is beyond the reach of human perception, so that he can see [it clearly]?
+[and so,] whenever Our messages are conveyed to them, they but say, "Fables of ancient times!"
  <!--END_SECTION:quran-->
 
   
