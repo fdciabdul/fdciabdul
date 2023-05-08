@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 6**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 10**
 
-[then,] O man - thou [that] hast, verily, been toiling towards thy Sustainer in painful toil - then shalt thou meet Him!
+[and] in that [state of happiness] they will call out, "Limitless art Thou in Thy glory, O God!"-and will be answered with the greeting, "Peace!" And their call will close with [the words], "All praise is due to God, the Sustainer of all the worlds!"
  <!--END_SECTION:quran-->
 
   
