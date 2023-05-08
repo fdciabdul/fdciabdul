@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 140**
 
-unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
+And, indeed, He has enjoined upon you in this divine writ that whenever you hear people deny the truth of God's messages and mock at them, you shall avoid their company until they begin to talk of other things - or else, verily, you will become like them. Behold, together with those who deny the truth God will gather in hell the hypocrites,
  <!--END_SECTION:quran-->
 
   
