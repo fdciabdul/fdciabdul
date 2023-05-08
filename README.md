@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 1**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
 
-HALLOWED be He in whose hand all dominion rests, since He has the power to will anything:
+and, withal, deny all assistance [to their fellow-men]!
  <!--END_SECTION:quran-->
 
   
