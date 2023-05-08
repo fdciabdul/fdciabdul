@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 27**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 6**
 
-but forever will abide thy Sustainer’s Self, full of majesty and glory.
+And [since, O Prophet, they are bent on denying the truth,] they challenge thee to hasten the coming upon them of evil instead of [hoping for] good although [they ought to know that] the exemplary punishments [which they now deride] have indeed come to pass before their time. Now, behold, thy Sustainer is full of forgiveness unto men despite all their evildoing: but, behold, thy Sustainer is [also] truly severe in retribution!
  <!--END_SECTION:quran-->
 
   
