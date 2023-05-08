@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 30**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 6**
 
-Or do they say, “[He is but] a poet - let us wait what time will do unto him”?
+Guide us the straight way.
  <!--END_SECTION:quran-->
 
   
