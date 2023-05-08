@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 17**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 58**
 
-"'And God has caused you to grow out of the earth in [gradual] growth; and thereafter He will return you to it [in death]:
+And how many a community that [once] exult­ed in its wanton wealth and ease of life have We destroyed, so that those dwelling-places of theirs – all but a few - have never been dwelt-in after them: for it is indeed We alone who shall remain when all else will have passed away!
  <!--END_SECTION:quran-->
 
   
