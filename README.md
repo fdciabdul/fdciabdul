@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 51**
 
-and thou seest people enter God's religion in hosts,
+for, verily, it is truth absolute!
  <!--END_SECTION:quran-->
 
   
