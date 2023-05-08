@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 13**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 9**
 
-God - there is no deity save Him! In God then let the believers place their trust.
+and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,
  <!--END_SECTION:quran-->
 
   
