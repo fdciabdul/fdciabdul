@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 70**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 13**
 
-for every human being will be repaid in full for whatever [good or evil] he has done: and He is fully aware of all that they do.
+for they will have no intercessors in the beings to whom they were wont to ascribe a share in God’s divinity, seeing that [by then] they themselves will have ceased to believe in their erstwhile blasphemous fancies.
  <!--END_SECTION:quran-->
 
   
