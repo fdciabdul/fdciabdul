@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 41**
 
-"And I will not worship ~hat which you have [ever] worshipped,
+And [so, O Prophet,] if they give thee the lie, say: "To me [shall be accounted] my doings, and to you, your doings: you are not accountable for what I am doing, and I am not accountable for whatever you do."
  <!--END_SECTION:quran-->
 
   
