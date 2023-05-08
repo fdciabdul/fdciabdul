@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 25**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 30**
 
-for [when they became obli­vious of Us,] We assigned to them [their own evil impulses as their] other selves, and these made appear goodly to them whatever lay open before them and whatever was beyond their ken. And so, the sentence [of doom] will have fallen due upon them together with the [other sinful] com­munities of invisible beings and humans that passed away before their time: verily, they [all] will indeed be lost!
+Or do they say, “[He is but] a poet - let us wait what time will do unto him”?
  <!--END_SECTION:quran-->
 
   
