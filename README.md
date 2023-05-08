@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 26**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 2**
 
-Eat, then, and drink, and let thine eye be gladdened! And if thou shouldst see any human being, convey this unto him: `Behold, abstinence from speech have I vowed unto the Most Gracious; hence, I may not speak today to any mortal.
+so that you may worship none but God. [Say, O Prophet:] "Behold, I come unto you from Him [as] a warner and a bearer of glad tidings:
  <!--END_SECTION:quran-->
 
   
