@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 99**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 4**
 
-[AS FOR THOSE who will not believe in the life to come, they go on lying to themselves] until, when death approaches any of them, he prays: “O my Sustainer! Let me return, let me return [to life],
+Woe, then, unto those praying ones
  <!--END_SECTION:quran-->
 
   
