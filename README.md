@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 58**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 95**
 
-And how many a community that [once] exult­ed in its wanton wealth and ease of life have We destroyed, so that those dwelling-places of theirs – all but a few - have never been dwelt-in after them: for it is indeed We alone who shall remain when all else will have passed away!
+He answered: "That wherein my Sustainer has so securely established me is better [than anything that you could give me]; hence, do but help me with [your labour's] strength, [and] I shall erect a rampart between you and them!
  <!--END_SECTION:quran-->
 
   
