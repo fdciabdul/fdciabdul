@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 46**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 25**
 
-out of a [mere] drop of sperm as it is poured forth,
+for [when they became obli­vious of Us,] We assigned to them [their own evil impulses as their] other selves, and these made appear goodly to them whatever lay open before them and whatever was beyond their ken. And so, the sentence [of doom] will have fallen due upon them together with the [other sinful] com­munities of invisible beings and humans that passed away before their time: verily, they [all] will indeed be lost!
  <!--END_SECTION:quran-->
 
   
