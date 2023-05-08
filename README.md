@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 9**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 7**
 
-and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,
+They who are bent on denying the truth claim that they will never be raised from the dead! Say: "Yea, by my Sustainer! Most surely will you be raised from the dead, and then, most surely, will you be made to understand what you did [in life]! For, easy is this for God!"
  <!--END_SECTION:quran-->
 
   
