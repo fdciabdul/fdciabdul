@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 31**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-whereas such as seek to go beyond that [limit] are truly transgressors;
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
