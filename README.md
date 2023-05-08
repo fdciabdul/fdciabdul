@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 7**
 
-Verily, he that hates thee has indeed been cut off [from all that is good]!
+whenever he believes himself to be self-sufficient:
  <!--END_SECTION:quran-->
 
   
