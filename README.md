@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 5**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 32**
 
-and thereafter We reduce him to the lowest of low
+and has made the mountains firm:
  <!--END_SECTION:quran-->
 
   
