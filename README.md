@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 1**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 50**
 
-O PROPHET! Why dost thou, out of a desire to please [one or another of] thy wives, impose [on thyself] a prohibition of something that God has made lawful to thee? But God is much-forgiving, a dispenser of grace:
+And [know that] those who attain to faith and do righteous deeds shall be granted forgiveness of sins and a most excellent sustenance;
  <!--END_SECTION:quran-->
 
   
