@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 42**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 25**
 
-verily, thou shalt have no power over My creatures- unless it be such as are [already] lost in grievous error and follow thee [of their own will]:
+and shake the trunk of the palm-tree towards thee: it will drop fresh, ripe dates upon thee.
  <!--END_SECTION:quran-->
 
   
