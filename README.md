@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 1**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 22**
 
-ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: His is all dominion, and to Him all praise is due; and He has the power to will anything.
+and in time she conceived him, and then she withdrew with him to a far-off place.
  <!--END_SECTION:quran-->
 
   
