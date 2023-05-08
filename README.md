@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 160**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 29**
 
-Whoever shall come [before God] with a good deed will gain ten times the like thereof; but whoever shall come with an evil deed will be requited with no more than the like thereof; and none shall be wronged.
+And they who [in their life on earth] were bent on denying the truth will [thereupon] exclaim: “O our Sustainer! Show us those of the invisible beings and humans that have led us astray: we shall trample them underfoot, so that they shall be the lowest of all!”
  <!--END_SECTION:quran-->
 
   
