@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 3**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 66**
 
-THUS has God, the Almighty, the Wise, revealed [the truth] unto thee, [O Muhammad,] and unto those who preceded thee:
+YOUR SUSTAINER is He who causes ships to move onward for you through the sea, so that you might go about in quest of some of His bounty: verily, a dispenser of grace is He unto you.
  <!--END_SECTION:quran-->
 
   
