@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 63**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
 
-And so, when they returned to their father, [Joseph's brothers] said: "O our father! All grain is [to be] withheld from us [in the future unless we bring Benjamin with us]: send, therefore, our brother with us, so that we may obtain our measure (of grain]; and, verily, we shall guard him well!"
+hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
  <!--END_SECTION:quran-->
 
   
