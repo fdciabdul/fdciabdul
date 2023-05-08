@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 13**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 26**
 
-God - there is no deity save Him! In God then let the believers place their trust.
+Unto God belongs all that is in the heavens and on earth. Verily, God alone is self-sufficient, the One to whom all praise is due!
  <!--END_SECTION:quran-->
 
   
