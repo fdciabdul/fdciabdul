@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 41**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 48**
 
-And [so, O Prophet,] if they give thee the lie, say: "To me [shall be accounted] my doings, and to you, your doings: you are not accountable for what I am doing, and I am not accountable for whatever you do."
+BUT IF they turn away [from thee, O Prophet, know that] We have not sent thee to be their keeper: thou art not bound to do more than deliver the message [entrusted to thee]. And, behold, [such as turn away from Our mes­sages are but impelled by the weakness and incon­stancy of human nature: thus,] when We give man a taste of Our grace, he is prone to exult in it; but if misfortune befalls [any of] them in result of what their own hands have sent forth, then, behold, man shows how bereft he is of all gratitude!
  <!--END_SECTION:quran-->
 
   
