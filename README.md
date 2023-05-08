@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 11**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 7**
 
-Their apostles answered them: "True, we are nothing but mortal men like yourselves: but God bestows His favour upon whomever He wills of His servants. Withal, it is not within our power to bring you a proof [of our mission], unless it be by God's leave-and [so] it is in God that all believers must place their trust.
+And as for him whose record shall be placed in his right hand,
  <!--END_SECTION:quran-->
 
   
