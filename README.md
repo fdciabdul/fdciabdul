@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 87**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 7**
 
-And on that Day the trumpet [of judgment] will be sounded, and all [creatures] that are in the heavens and all that are on earth will be stricken with terror, except such as God wills [to exempt]: and in utter lowliness all will come unto Him.
+Verily, as for those who do not believe that they are destined to meet Us, but content themselves with the life of this world and do not look beyond it, and are heedless of Our messages -
  <!--END_SECTION:quran-->
 
   
