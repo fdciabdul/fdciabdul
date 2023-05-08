@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 50**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 20**
 
-And [know that] those who attain to faith and do righteous deeds shall be granted forgiveness of sins and a most excellent sustenance;
+Not equal are those who are destined for the fire and those who are destined for paradise: those who are destined for paradise - it is they, they [alone] who shall triumph [on Judgment Day]!
  <!--END_SECTION:quran-->
 
   
