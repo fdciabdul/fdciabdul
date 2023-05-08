@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 71**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 30**
 
-[And there] they will be waited upon with trays and goblets of gold; and there will be found all that the souls might desire, and [all that] the eyes might delight in. And therein shall you abide, [O you who believe:]
+[not giving way to their desires] with any but their spouses - that is, those whom they rightfully possess [through wedlock] -: for then, behold, they are free of all blame,
  <!--END_SECTION:quran-->
 
   
