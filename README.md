@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 1**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 27**
 
-WHEN THE SKY is cleft asunder,
+but forever will abide thy Sustainer’s Self, full of majesty and glory.
  <!--END_SECTION:quran-->
 
   
