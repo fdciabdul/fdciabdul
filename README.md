@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 2**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 22**
 
-Did He not utterly confound their artful planning?
+Verily, the vilest of all creatures in the sight of God are those deaf, those dumb ones who do not use their reason.
  <!--END_SECTION:quran-->
 
   
