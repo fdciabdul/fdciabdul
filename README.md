@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 6**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 9**
 
-Say thou, [O Prophet:] “I am but a mortal like you. It has been revealed to me that your God is the One God: go, then, straight towards Him and seek His forgiveness!” And woe unto those who ascribe divinity to aught beside Him,
+Therefore, the orphan shalt thou never wrong,
  <!--END_SECTION:quran-->
 
   
