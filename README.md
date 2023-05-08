@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 32**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 5**
 
-and has made the mountains firm:
+does it make secure, until the rise of dawn.
  <!--END_SECTION:quran-->
 
   
