@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 95**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 32**
 
-He answered: "That wherein my Sustainer has so securely established me is better [than anything that you could give me]; hence, do but help me with [your labour's] strength, [and] I shall erect a rampart between you and them!
+This is [to be borne in mind]. And anyone who honours the symbols set up by God [shall know that] verily, these [symbols derive their value] from the God-consciousness in the [believers’] hearts.
  <!--END_SECTION:quran-->
 
   
