@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 12**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 124**
 
-they who [mockingly] ask, “When is that Day of Judgment to be?”
+most certainly shall I cut off your hands and your feet in great numbers, because of [your] perverseness, and then I shall most certainly crucify you, in great numbers, all together! "
  <!--END_SECTION:quran-->
 
   
