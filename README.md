@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 13**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 15**
 
-[and so,] whenever Our messages are conveyed to them, they but say, "Fables of ancient times!"
+And, indeed, We have caused such [floating vessels] to remain forever a sign [of Our grace unto man]: who, then, is willing to take it to heart?
  <!--END_SECTION:quran-->
 
   
