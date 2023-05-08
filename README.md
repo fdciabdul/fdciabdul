@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 140**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 17**
 
-And, indeed, He has enjoined upon you in this divine writ that whenever you hear people deny the truth of God's messages and mock at them, you shall avoid their company until they begin to talk of other things - or else, verily, you will become like them. Behold, together with those who deny the truth God will gather in hell the hypocrites,
+and the night, and what it [step by step] unfolds,
  <!--END_SECTION:quran-->
 
   
