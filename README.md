@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 10**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 50**
 
-and truly lost is he who buries it [in darkness].
+and that it is He who destroyed the ancient [tribes of] Ad
  <!--END_SECTION:quran-->
 
   
