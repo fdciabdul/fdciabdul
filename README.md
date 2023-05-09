@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 84**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 23**
 
-Behold, We established him securely on earth, and endowed him with [the knowledge of] the right means to achieve anything [that he might set out to achieve];
+Thus have We determined [the nature of man's creation]: and excellent indeed is Our power to determine [what is to be]!
  <!--END_SECTION:quran-->
 
   
