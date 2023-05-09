@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 11**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 35**
 
-[It was they] who transgressed all bounds of equity all over their lands,
+and gold [beyond count]. Yet all this would have been nothing but a [brief] enjoyment of life in this world - whereas [happiness in] the life to come awaits the God-conscious with thy Sustainer.
  <!--END_SECTION:quran-->
 
   
