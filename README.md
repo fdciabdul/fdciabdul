@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 63**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 11**
 
-Nay - who is it that guides you in the midst of the deep darkness of land and sea, and sends forth the winds as a glad tiding of His coming grace? Could there be any divine power besides God? Sublimely exalted is God above anything to which men may ascribe a share in His divinity!
+[or to] the slanderer that goes about with defaming tales,
  <!--END_SECTION:quran-->
 
   
