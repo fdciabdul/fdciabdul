@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 41**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 2**
 
-and is not – however little you may [be prepared to] believe it - the word of a poet;
+And it will come to pass that those who are [now] bent on denying this truth will wish that they had surrendered themselves to God [in their life time].
  <!--END_SECTION:quran-->
 
   
