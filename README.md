@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 18**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 16**
 
-the Day when the trumpet [of resurrection] is sounded and you all come forward in multitudes;
+and Pharaoh rebelled against the apostle, whereupon We took him to task with a crushing grip.
  <!--END_SECTION:quran-->
 
   
