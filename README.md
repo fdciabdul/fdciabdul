@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 42**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 19**
 
-AND AFTER them We gave rise to new genera­tions:
+Know, then, [O man,] that there is no deity save God, and [while there is yet time,] ask forgive­ness for thy sins and for [the sins of] all other believing men and women: for God knows all your comings and goings as well as your abiding [at rest].
  <!--END_SECTION:quran-->
 
   
