@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 23**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 67**
 
-VERILY, [O believer,] it is We who have bestowed from on high this Qur’an upon thee, step by step - truly a bestowal from on high!
+It is He who creates you out of dust, and then out of a drop of sperm, and then out of a germ-cell; and then He brings you forth as children; and then [He ordains] that you reach maturity, and then, that you grow old - though some of you [He causes to] die earlier -: and [all this He ordains] so that you might reach a term set [by Him], and that you might [learn to] use your reason.
  <!--END_SECTION:quran-->
 
   
