@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 2**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 41**
 
-THE BESTOWAL from on high [of this revelation] issues from the Most Gracious, the Dis­penser of Grace:
+and is not – however little you may [be prepared to] believe it - the word of a poet;
  <!--END_SECTION:quran-->
 
   
