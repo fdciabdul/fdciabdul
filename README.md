@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 19**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 108**
 
-“Hence, be modest in thy bearing, and lower thy voice: for, behold, the ugliest of all voices is the [loud] voice of asses…”
+But do not revile those [beings] whom they invoke instead of God, lest they revile God out of spite, and in ignorance: for, goodly indeed have We made their own doings appear unto every community In time, [however,] unto their Sustainer they must return: and then He will make them [truly] understand all that they were doing.
  <!--END_SECTION:quran-->
 
   
