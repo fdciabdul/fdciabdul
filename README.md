@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 30**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 3**
 
-since He will grant them their just rewards, and give them yet more out of His bounty: for, verily, He is much-forgiving, ever-responsive to gratitude.
+The Most Gracious, the Dispenser of Grace,
  <!--END_SECTION:quran-->
 
   
