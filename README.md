@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 283**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 18**
 
-And if you are on a journey and cannot find a scribe, pledges [may be taken] in hand: but if you trust one another, then let him who is trusted fulfil his trust, and let him be conscious of God, his Sustainer. And do not conceal what you have witnessed - for, verily, he who conceals it is sinful at heart; and God has full knowledge of all that you do.
+knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!
  <!--END_SECTION:quran-->
 
   
