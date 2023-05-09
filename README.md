@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 6**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 125**
 
-"from all [temptation to evil by] invisible forces as well as men,"
+AND LO! We made the Temple a goal to which people might repair again and again, and a sanctuary: take then, the place whereon Abraham once stood as your place of prayer." And thus did We command Abraham and Ishmael: "Purify My Temple for those who will walk around it, and those who will abide near it in meditation, and those who will bow down and prostrate themselves [in prayer]."
  <!--END_SECTION:quran-->
 
   
