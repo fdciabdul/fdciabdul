@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 54**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 26**
 
-yet as soon as He has removed the harm from you, lo! some of you [begin to] ascribe to other powers a share 'in their Sustainer's divinity
+and verily, It is for Us to call them to account.
  <!--END_SECTION:quran-->
 
   
