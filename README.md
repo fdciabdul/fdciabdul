@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 51**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 25**
 
-O YOU who have attained to faith! Do not take the Jews and the Christians for your allies: they are but allies of one another and whoever of you allies himself with them becomes, verily, one of them; behold, God does not guide such evildoers.
+Nor is this [message] the word of any satanic force accursed.
  <!--END_SECTION:quran-->
 
   
