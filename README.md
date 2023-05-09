@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 12**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 63**
 
-O you who have attained to faith! Avoid most guesswork [about one another] for, behold, some of [such] guesswork is [in itself] a sin; and do not spy upon one another, and neither allow your­selves to speak ill of one another behind your backs. Would any of you like to eat the flesh of his dead brother? Nay, you would loathe it! And be conscious of God. Verily, God is an accep­tor of repentance, a dispenser of grace!
+Nay - who is it that guides you in the midst of the deep darkness of land and sea, and sends forth the winds as a glad tiding of His coming grace? Could there be any divine power besides God? Sublimely exalted is God above anything to which men may ascribe a share in His divinity!
  <!--END_SECTION:quran-->
 
   
