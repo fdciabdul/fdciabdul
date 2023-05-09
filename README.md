@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 87**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 92**
 
-And on that Day will they [who had thus been sinning, belatedly] proffer their surrender to God; and all their false imagery will have forsaken them.
+But, by thy Sustainer! [On the Day of Judgment] We shall indeed call them to account, one and all,
  <!--END_SECTION:quran-->
 
   
