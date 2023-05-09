@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 16**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
 
-and Pharaoh rebelled against the apostle, whereupon We took him to task with a crushing grip.
+and, withal, deny all assistance [to their fellow-men]!
  <!--END_SECTION:quran-->
 
   
