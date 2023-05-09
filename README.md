@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 108**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 85**
 
-[But] He will say: “Away with you into this [ignominy]! And speak no more unto Me!
+and [thus] spoke to his father and his people: “What is it that you worship?
  <!--END_SECTION:quran-->
 
   
