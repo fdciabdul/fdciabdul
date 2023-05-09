@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 9**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 30**
 
-Say: “I am not the first of [God’s] apostles; and [like all of them,] I do not know what will be done with me or with you: for I am nothing but a plain warner.”
+since He will grant them their just rewards, and give them yet more out of His bounty: for, verily, He is much-forgiving, ever-responsive to gratitude.
  <!--END_SECTION:quran-->
 
   
