@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 35**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 87**
 
-and gold [beyond count]. Yet all this would have been nothing but a [brief] enjoyment of life in this world - whereas [happiness in] the life to come awaits the God-conscious with thy Sustainer.
+And on that Day will they [who had thus been sinning, belatedly] proffer their surrender to God; and all their false imagery will have forsaken them.
  <!--END_SECTION:quran-->
 
   
