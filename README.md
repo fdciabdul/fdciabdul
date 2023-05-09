@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 43**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 3**
 
-So hold fast to all that has been revealed to thee: for, behold, thou art on a straight way;
+"the God of men,
  <!--END_SECTION:quran-->
 
   
