@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 11**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 24**
 
-and when heaven is laid bare,
+And yet they say: “There is nothing beyond our life in this world. We die as we come to life, and nothing but time destroys us.” But of this they have no knowledge whatever: they do nothing but guess.
  <!--END_SECTION:quran-->
 
   
