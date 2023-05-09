@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 12**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 41**
 
-for, behold, heavy fetters [await them] with Us, and a blazing fire,
+paradise will truly be the goal!
  <!--END_SECTION:quran-->
 
   
