@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 9**
 
-and, withal, deny all assistance [to their fellow-men]!
+[and] their eyes downcast...
  <!--END_SECTION:quran-->
 
   
