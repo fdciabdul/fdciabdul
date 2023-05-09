@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 23**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 7**
 
-Thus have We determined [the nature of man's creation]: and excellent indeed is Our power to determine [what is to be]!
+Hence, when thou art freed [from distress], remain steadfast,
  <!--END_SECTION:quran-->
 
   
