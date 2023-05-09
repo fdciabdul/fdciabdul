@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 125**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 5**
 
-AND LO! We made the Temple a goal to which people might repair again and again, and a sanctuary: take then, the place whereon Abraham once stood as your place of prayer." And thus did We command Abraham and Ishmael: "Purify My Temple for those who will walk around it, and those who will abide near it in meditation, and those who will bow down and prostrate themselves [in prayer]."
+HAVE THE STORIES of those who, in earlier times, refused to acknowledge the truth never yet come within your ken? [They denied it -] and so they had to taste the evil outcome of their own doings, with [more] grievous suffering awaiting them [in the life to come]:
  <!--END_SECTION:quran-->
 
   
