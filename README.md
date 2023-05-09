@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 24**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 4**
 
-And yet they say: “There is nothing beyond our life in this world. We die as we come to life, and nothing but time destroys us.” But of this they have no knowledge whatever: they do nothing but guess.
+"from the evil of the whispering, elusive tempter
  <!--END_SECTION:quran-->
 
   
