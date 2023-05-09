@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 19**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 9**
 
-Know, then, [O man,] that there is no deity save God, and [while there is yet time,] ask forgive­ness for thy sins and for [the sins of] all other believing men and women: for God knows all your comings and goings as well as your abiding [at rest].
+Say: “I am not the first of [God’s] apostles; and [like all of them,] I do not know what will be done with me or with you: for I am nothing but a plain warner.”
  <!--END_SECTION:quran-->
 
   
