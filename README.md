@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 3**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 62**
 
-The Most Gracious, the Dispenser of Grace,
+Such is God, your Sustainer, the Creator of all that exists: there is no deity save Him. How perverted, then, are your minds!
  <!--END_SECTION:quran-->
 
   
