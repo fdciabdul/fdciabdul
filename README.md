@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 3**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 106**
 
-"the God of men,
+[bearing] a discourse which We have gradually unfolded, so that thou might read it out to mankind by stages, seeing that We have bestowed it from on high step by step, as [one] revelation.
  <!--END_SECTION:quran-->
 
   
