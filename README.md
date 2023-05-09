@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 92**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 7**
 
-But, by thy Sustainer! [On the Day of Judgment] We shall indeed call them to account, one and all,
+Verily, thy Sustainer alone is fully aware as to who has strayed from His path, Just as He alone is fully aware of those who have found the right way.
  <!--END_SECTION:quran-->
 
   
