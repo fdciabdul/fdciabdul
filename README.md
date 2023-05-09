@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 108**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 1**
 
-But do not revile those [beings] whom they invoke instead of God, lest they revile God out of spite, and in ignorance: for, goodly indeed have We made their own doings appear unto every community In time, [however,] unto their Sustainer they must return: and then He will make them [truly] understand all that they were doing.
+Alif. Lam. Mim. Ra. THESE ARE MESSAGES of revelation: and what has been bestowed upon thee from on high by thy Sustainer is the truth-yet most people will not believe [in it]?
  <!--END_SECTION:quran-->
 
   
