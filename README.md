@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 26**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 51**
 
-and verily, It is for Us to call them to account.
+O YOU who have attained to faith! Do not take the Jews and the Christians for your allies: they are but allies of one another and whoever of you allies himself with them becomes, verily, one of them; behold, God does not guide such evildoers.
  <!--END_SECTION:quran-->
 
   
