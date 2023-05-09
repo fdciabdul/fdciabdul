@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 12**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 2**
 
-and, indeed, we granted this wisdom unto Luq­man: “Be grateful unto God - for he who is grateful [unto Him] is but grateful for the good of his own self; whereas he who chooses to be ungrateful [ought to know that], verily, God is self-sufficient, ever to be praised!”
+[Woe unto him who amasses wealth and counts it a safeguard,
  <!--END_SECTION:quran-->
 
   
