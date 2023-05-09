@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 6**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-VERILY, towards his Sustainer man is most ungrateful
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
