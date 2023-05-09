@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 79**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 19**
 
-And rise from thy sleep and pray during part of the night [as well], as a free offering from thee, and thy Sustainer may well raise thee to a glorious station [in the life to come].
+the revelations of Abraham and Moses.
  <!--END_SECTION:quran-->
 
   
