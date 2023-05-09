@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 76**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 11**
 
-However, be not grieved by the sayings of those [who deny the truth]: verily, We know all that they keep secret as well as all that they bring into the open.
+and when heaven is laid bare,
  <!--END_SECTION:quran-->
 
   
