@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 67**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 54**
 
-It is He who creates you out of dust, and then out of a drop of sperm, and then out of a germ-cell; and then He brings you forth as children; and then [He ordains] that you reach maturity, and then, that you grow old - though some of you [He causes to] die earlier -: and [all this He ordains] so that you might reach a term set [by Him], and that you might [learn to] use your reason.
+yet as soon as He has removed the harm from you, lo! some of you [begin to] ascribe to other powers a share 'in their Sustainer's divinity
  <!--END_SECTION:quran-->
 
   
