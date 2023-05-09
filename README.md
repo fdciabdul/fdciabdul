@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 18**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 76**
 
-knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!
+However, be not grieved by the sayings of those [who deny the truth]: verily, We know all that they keep secret as well as all that they bring into the open.
  <!--END_SECTION:quran-->
 
   
