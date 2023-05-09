@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 62**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 7**
 
-[And] he added: "Tell me, is this [foolish being] the one whom Thou hast exalted above me? Indeed, if Thou wilt but allow me a respite till the Day of Resurrection, I shall most certainly cause his descendants-all but a few-to obey me blindly!
+who has created thee, and formed thee in accordance with what thou art meant' to be, and shaped thy nature in just proportions,
  <!--END_SECTION:quran-->
 
   
