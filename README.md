@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 13**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 20**
 
-although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"
+At that, a man came running from the farthest end of the city, [and] exclaimed: “O my people! Follow these message-bearers!
  <!--END_SECTION:quran-->
 
   
