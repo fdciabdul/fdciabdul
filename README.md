@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 15**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 6**
 
-Say: "Behold, I would dread, were I [thus] to rebel against my Sustainer, the suffering [which would befall me] on that awesome Day [of Judgment]."
+VERILY, towards his Sustainer man is most ungrateful
  <!--END_SECTION:quran-->
 
   
