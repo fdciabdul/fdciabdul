@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 25**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 17**
 
-Nor is this [message] the word of any satanic force accursed.
+[But only too often] man destroys himself: how stubbornly does he deny the truth!
  <!--END_SECTION:quran-->
 
   
