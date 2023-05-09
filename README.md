@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 9**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 9**
 
-[and] their eyes downcast...
+HAVE THE STORIES of those [deniers of the truth] who lived before you never yet come within your ken - [the stories of] the people of Noah, and of [the tribes of] `Ad and Thamud, and of those who came after them? None knows them [now] save God. There came unto them their apostles with all evidence of the truth -but they covered their mouths with their hands and answered: "Behold, we refuse to regard as true the message with which you [claim to] have been entrusted; and, behold, we are in grave doubt, amounting to suspicion, about [the meaning of] your call to us!"
  <!--END_SECTION:quran-->
 
   
