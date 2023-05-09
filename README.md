@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 10**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 21**
 
-It is all alike [to Him] whether any of you conceals his thought or brings it into the open, and whether he seeks to hide [his evil deeds] under the cover of night or walks [boldly] in the light of day,
+they are dead, not living, and they do not [even] know when they will be raised from the dead!
  <!--END_SECTION:quran-->
 
   
