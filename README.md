@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 32**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 23**
 
-as a ready welcome from Him who is much-forgiving, a dispenser of grace!”
+for We shall have turned towards all the [supposedly good] deeds they ever wrought, and shall have transformed them into scattered dust –
  <!--END_SECTION:quran-->
 
   
