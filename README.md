@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 23**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 19**
 
-and that very thought which you thought about your Sustainer has brought you to perdition, and so now you find yourselves among the lost!”
+“Hence, be modest in thy bearing, and lower thy voice: for, behold, the ugliest of all voices is the [loud] voice of asses…”
  <!--END_SECTION:quran-->
 
   
