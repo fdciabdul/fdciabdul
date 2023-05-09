@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 47**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 30**
 
-For, [many are] they [who] say, “We believe in God and in the Apostle, and we pay heed!” - but then, some of them turn away after this [assertion]: and these are by no means [true] believers.
+ARE, THEN, they who are bent on denying the truth not aware that the heavens and the earth were [once] one single entity, which We then parted asunder? – and [that] We made out of water every living thing? Will they not, then, [begin to] believe?
  <!--END_SECTION:quran-->
 
   
