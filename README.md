@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 12**
 
-unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
+for, behold, heavy fetters [await them] with Us, and a blazing fire,
  <!--END_SECTION:quran-->
 
   
