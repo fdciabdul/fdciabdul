@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 9**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 61**
 
-They will reply: "Yea, a warner did indeed come unto us, but we gave him the lie and said, 'Never has God sent down anything [by way of revelation]! You [self-styled warners] are but lost in a great delusion!"'
+it is they who vie with one another in doing good works, and it is they who outrun [all others] in attaining to them!
  <!--END_SECTION:quran-->
 
   
