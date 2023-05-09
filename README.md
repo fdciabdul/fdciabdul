@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 20**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 114**
 
-[O you who believe!] God has promised you many war-gains which you shall yet achieve; and He has vouchsafed you these [worldly gains] well in advance, and has stayed from you the hands of [hostile] people, so that this [your inner strength] may become a symbol to the believers [who will come after you], and that He may guide you all on a straight way.
+[Whereupon] He will say: “You have spent there but a short while: had you but known [how short it was to be]!
  <!--END_SECTION:quran-->
 
   
