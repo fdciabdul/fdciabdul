@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 18**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 92**
 
-And next morning he found himself in the city, looking fearfully about him, when lo! the one who had sought his help the day before [once again] cried out to him [for help whereupon] Moses said unto him: “Behold, thou art indeed, most clearly, deeply in the wrong!
+Said he: "O my people! Do you hold my family in greater esteem than God? -for, Him you regard as something that may be cast behind you and be forgotten! Verily, my Sustainer encompasses [with His might] all that you do!
  <!--END_SECTION:quran-->
 
   
