@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 30**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 18**
 
-ARE, THEN, they who are bent on denying the truth not aware that the heavens and the earth were [once] one single entity, which We then parted asunder? – and [that] We made out of water every living thing? Will they not, then, [begin to] believe?
+And next morning he found himself in the city, looking fearfully about him, when lo! the one who had sought his help the day before [once again] cried out to him [for help whereupon] Moses said unto him: “Behold, thou art indeed, most clearly, deeply in the wrong!
  <!--END_SECTION:quran-->
 
   
