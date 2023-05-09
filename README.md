@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 49**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 79**
 
-[And they are unaware that] nothing awaits them beyond a single blast [of God’s punishment], which will overtake them while they are still arguing - [against resurrection]:
+And rise from thy sleep and pray during part of the night [as well], as a free offering from thee, and thy Sustainer may well raise thee to a glorious station [in the life to come].
  <!--END_SECTION:quran-->
 
   
