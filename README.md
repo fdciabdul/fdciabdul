@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 6**
 
-Verily, man is bound to lose himself
+Yet [remember:] whatever [spoils taken] from the enemy God has turned over to His Apostle, you did not have to spur horse or riding-camel for its sake: but God gives His apostles mastery over whomever He wills - for God has the power to will anything.
  <!--END_SECTION:quran-->
 
   
