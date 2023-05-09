@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 4**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 73**
 
-"from the evil of the whispering, elusive tempter
+As for us, behold, we have come to believe in our Sustainer, [hoping] that He may forgive us our faults and all that magic unto which thou hast forced us: for God is the best [to look forward to], and the One who is truly abiding."
  <!--END_SECTION:quran-->
 
   
