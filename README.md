@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 12**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 18**
 
-[Easy is it for Him to create likeness and variety:] thus, the two great bodies of water [on earth] are not alike the one sweet, thirst-allaying, pleasant to drink, and the other salty and bitter: and yet, from either of them do you eat fresh meat, and [from either] you take gems which you may wear; and on either thou canst see ships ploughing through the waves, so that you might [be able to] go forth in quest of some of His bounty, and thus have cause to be grateful.
+And once again: What could make thee conceive what that Judgment Day will be?
  <!--END_SECTION:quran-->
 
   
