@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 12**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 37**
 
-GOD is He who has created seven heavens, and, like them, [the many aspects] of the earth. Through all of them flows down from on high, unceasingly, His [creative] will, so that you might come to know that God has the power to will anything, and that God encompasses all things with His knowledge.
+people whom neither [worldly] commerce nor striving after gain can divert from the remembrance of God, and from con­stancy in prayer, and from charity: [people] who are filled with fear [at the thought] of the Day On which all hearts and eyes will be convulsed,
  <!--END_SECTION:quran-->
 
   
