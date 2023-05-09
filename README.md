@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 106**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 4**
 
-[bearing] a discourse which We have gradually unfolded, so that thou might read it out to mankind by stages, seeing that We have bestowed it from on high step by step, as [one] revelation.
+Verily, [O men,] you aim at most divergent ends!
  <!--END_SECTION:quran-->
 
   
