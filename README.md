@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 18**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 34**
 
-And once again: What could make thee conceive what that Judgment Day will be?
+[and so,] behold, We let loose upon them a deadly tempest; and only Lot ’s kinsfolk did We save at the break of dawn,
  <!--END_SECTION:quran-->
 
   
