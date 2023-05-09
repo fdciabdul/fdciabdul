@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 2**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 84**
 
-[Woe unto him who amasses wealth and counts it a safeguard,
+Behold, We established him securely on earth, and endowed him with [the knowledge of] the right means to achieve anything [that he might set out to achieve];
  <!--END_SECTION:quran-->
 
   
