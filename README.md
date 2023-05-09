@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 2**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 49**
 
-And it will come to pass that those who are [now] bent on denying this truth will wish that they had surrendered themselves to God [in their life time].
+[And they are unaware that] nothing awaits them beyond a single blast [of God’s punishment], which will overtake them while they are still arguing - [against resurrection]:
  <!--END_SECTION:quran-->
 
   
