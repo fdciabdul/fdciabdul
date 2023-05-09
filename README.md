@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 7**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 9**
 
-whenever he believes himself to be self-sufficient:
+They will reply: "Yea, a warner did indeed come unto us, but we gave him the lie and said, 'Never has God sent down anything [by way of revelation]! You [self-styled warners] are but lost in a great delusion!"'
  <!--END_SECTION:quran-->
 
   
