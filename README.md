@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 114**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 108**
 
-[Whereupon] He will say: “You have spent there but a short while: had you but known [how short it was to be]!
+[But] He will say: “Away with you into this [ignominy]! And speak no more unto Me!
  <!--END_SECTION:quran-->
 
   
