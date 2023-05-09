@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 41**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 6**
 
-paradise will truly be the goal!
+"from all [temptation to evil by] invisible forces as well as men,"
  <!--END_SECTION:quran-->
 
   
