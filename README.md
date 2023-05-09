@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 61**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 2**
 
-it is they who vie with one another in doing good works, and it is they who outrun [all others] in attaining to them!
+THE BESTOWAL from on high [of this revelation] issues from the Most Gracious, the Dis­penser of Grace:
  <!--END_SECTION:quran-->
 
   
