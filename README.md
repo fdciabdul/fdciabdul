@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 5**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 11**
 
-None the less man chooses to deny what lies ahead of him,
+[It was they] who transgressed all bounds of equity all over their lands,
  <!--END_SECTION:quran-->
 
   
