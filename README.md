@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 85**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 3**
 
-Said He: "Then [know that], verily, in thy absence We have put thy people to a test, and the Samaritan has led them astray."
+Nay, in time you will come to understand!
  <!--END_SECTION:quran-->
 
   
