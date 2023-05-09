@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 13**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 7**
 
-on the Day when they shall be thrust into the fire with [an irresistible] thrust, [and will be told:]
+for him shall We make easy the path towards [ultimate] ease.
  <!--END_SECTION:quran-->
 
   
