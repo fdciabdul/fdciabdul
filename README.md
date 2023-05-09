@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 62**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 12**
 
-Such is God, your Sustainer, the Creator of all that exists: there is no deity save Him. How perverted, then, are your minds!
+and, indeed, we granted this wisdom unto Luq­man: “Be grateful unto God - for he who is grateful [unto Him] is but grateful for the good of his own self; whereas he who chooses to be ungrateful [ought to know that], verily, God is self-sufficient, ever to be praised!”
  <!--END_SECTION:quran-->
 
   
