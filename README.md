@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 21**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
 
-they are dead, not living, and they do not [even] know when they will be raised from the dead!
+unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
  <!--END_SECTION:quran-->
 
   
