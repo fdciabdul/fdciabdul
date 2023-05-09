@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 23**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 29**
 
-for We shall have turned towards all the [supposedly good] deeds they ever wrought, and shall have transformed them into scattered dust –
+Art thou not aware that it is God who makes the night grow longer by shortening the day, and makes the day grow longer by shortening the night, and that He has made the sun and the moon subservient [to His laws], each running its course for a term set [by Him] and that God is fully aware of all that you do?
  <!--END_SECTION:quran-->
 
   
