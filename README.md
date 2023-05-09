@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 3**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 283**
 
-and man cries out, "What has happened to her?" -
+And if you are on a journey and cannot find a scribe, pledges [may be taken] in hand: but if you trust one another, then let him who is trusted fulfil his trust, and let him be conscious of God, his Sustainer. And do not conceal what you have witnessed - for, verily, he who conceals it is sinful at heart; and God has full knowledge of all that you do.
  <!--END_SECTION:quran-->
 
   
