@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 37**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 1**
 
-people whom neither [worldly] commerce nor striving after gain can divert from the remembrance of God, and from con­stancy in prayer, and from charity: [people] who are filled with fear [at the thought] of the Day On which all hearts and eyes will be convulsed,
+CONSIDER the bright morning hours,
  <!--END_SECTION:quran-->
 
   
