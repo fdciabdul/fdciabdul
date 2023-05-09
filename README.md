@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 92**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 2**
 
-Said he: "O my people! Do you hold my family in greater esteem than God? -for, Him you regard as something that may be cast behind you and be forgotten! Verily, my Sustainer encompasses [with His might] all that you do!
+Did He not utterly confound their artful planning?
  <!--END_SECTION:quran-->
 
   
