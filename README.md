@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 3**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 13**
 
-"the God of men,
+Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.
  <!--END_SECTION:quran-->
 
   
