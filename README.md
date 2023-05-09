@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 19**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 42**
 
-O YOU who have attained to faith! It is not lawful for you to [try to] become heirs to your wives [by holding onto them] against their will; and neither shall you keep them under constraint with a view to taking away anything of what you may have given them, unless it be that they have become guilty, in an obvious man­ner, of immoral conduct. And consort with your wives in a goodly manner; for if you dislike them, it may well be that you dislike something which God might yet make a source of abundant good.
+AND AFTER them We gave rise to new genera­tions:
  <!--END_SECTION:quran-->
 
   
