@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 85**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 7**
 
-and [thus] spoke to his father and his people: “What is it that you worship?
+O you who have attained to faith! If you help [the cause of] God, He will help you, and will make firm your steps;
  <!--END_SECTION:quran-->
 
   
