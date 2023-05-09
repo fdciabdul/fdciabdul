@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 19**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 13**
 
-the revelations of Abraham and Moses.
+although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"
  <!--END_SECTION:quran-->
 
   
