@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 7**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 13**
 
-who has created thee, and formed thee in accordance with what thou art meant' to be, and shaped thy nature in just proportions,
+on the Day when they shall be thrust into the fire with [an irresistible] thrust, [and will be told:]
  <!--END_SECTION:quran-->
 
   
