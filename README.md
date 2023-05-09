@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 18**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 32**
 
-of those who have responded to their Sustainer with a goodly response, and of those who did not respond to Him. [As for the latter,] if they possessed all that is on earth, and twice as much, they would surely offer it as ransom [on the Day of Judgment]: a most evil reckoning awaits them, and their goal is hell: and how evil a resting-place!
+as a ready welcome from Him who is much-forgiving, a dispenser of grace!”
  <!--END_SECTION:quran-->
 
   
