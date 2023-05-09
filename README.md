@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 1**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 62**
 
-Alif. Lam. Mim. Ra. THESE ARE MESSAGES of revelation: and what has been bestowed upon thee from on high by thy Sustainer is the truth-yet most people will not believe [in it]?
+[And] he added: "Tell me, is this [foolish being] the one whom Thou hast exalted above me? Indeed, if Thou wilt but allow me a respite till the Day of Resurrection, I shall most certainly cause his descendants-all but a few-to obey me blindly!
  <!--END_SECTION:quran-->
 
   
