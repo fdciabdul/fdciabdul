@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 23**
 
-which smote them with stone-hard blows of chastisement pre-ordained,
+and that very thought which you thought about your Sustainer has brought you to perdition, and so now you find yourselves among the lost!”
  <!--END_SECTION:quran-->
 
   
