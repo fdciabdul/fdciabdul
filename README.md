@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 17**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 5**
 
-[But only too often] man destroys himself: how stubbornly does he deny the truth!
+None the less man chooses to deny what lies ahead of him,
  <!--END_SECTION:quran-->
 
   
