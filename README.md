@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 18**
 
-Verily, he that hates thee has indeed been cut off [from all that is good]!
+the Day when the trumpet [of resurrection] is sounded and you all come forward in multitudes;
  <!--END_SECTION:quran-->
 
   
