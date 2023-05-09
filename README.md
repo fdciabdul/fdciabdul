@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 47**
 
-And what could make thee conceive what that crushing torment will be?
+For, [many are] they [who] say, “We believe in God and in the Apostle, and we pay heed!” - but then, some of them turn away after this [assertion]: and these are by no means [true] believers.
  <!--END_SECTION:quran-->
 
   
