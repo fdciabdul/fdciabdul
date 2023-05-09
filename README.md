@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 7**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
 
-Hence, when thou art freed [from distress], remain steadfast,
+And what could make thee conceive what that crushing torment will be?
  <!--END_SECTION:quran-->
 
   
