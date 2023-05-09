@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 27**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 43**
 
-and thereupon We cause grain to grow out of it,
+So hold fast to all that has been revealed to thee: for, behold, thou art on a straight way;
  <!--END_SECTION:quran-->
 
   
