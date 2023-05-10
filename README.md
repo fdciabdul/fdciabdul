@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 10**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 75**
 
-behold, we stand in awe of our Sustainer's judgment on a distressful, fateful Day!"
+Which, then, of your Sustainer’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
