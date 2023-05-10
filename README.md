@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 62**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 76**
 
-And [withal.] We do not burden any human being with more than he is well able to bear: for with Us is a record that speaks the truth [about what men do and can do]; and none shall be wronged.
+And God propounds [to you] the parable of two [other] men -one of them dumb, unable to do anything of his own accord, and a sheer burden on his master: to whichever task the latter directs him, he accomplishes no good. Can such a one be considered the equal of [a wise man] who enjoins the doing of what is right and himself follows a straight way?
  <!--END_SECTION:quran-->
 
   
