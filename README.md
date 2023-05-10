@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 8**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 10**
 
-[Zachariah] exclaimed: "O my Sustainer! How can I have a son when my wife has always been barren and I have become utterly infirm through old age?"
+Furthermore, defer not to the contemptible swearer of oaths,
  <!--END_SECTION:quran-->
 
   
