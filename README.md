@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 4**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 15**
 
-who has given them food against hunger, and made them safe from danger.
+[the fire] which none shall have to endure but that most hapless wretch
  <!--END_SECTION:quran-->
 
   
