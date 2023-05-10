@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 6**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 8**
 
-Has He not found thee an orphan, and given thee shelter?
+Now had God so willed, He could surely have made them all one single community: none the less, He admits unto His grace him that wills [to be admitted] whereas the evildoers shall have none to protect them and none to succour them [on Judgment Day].
  <!--END_SECTION:quran-->
 
   
