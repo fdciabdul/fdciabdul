@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 108**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 14**
 
-and left him thus to be remembered among later generations:
+Lo! We sent unto them two [apostles], and. they gave the lie to both; and so We strengthened [the two] with a third; and thereupon they said: “Behold, we have been sent unto you [by God]!”
  <!--END_SECTION:quran-->
 
   
