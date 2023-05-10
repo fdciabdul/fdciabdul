@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 7**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 102**
 
-[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.
+People before your time have indeed asked such questions-and in result thereof have come to deny the truth.
  <!--END_SECTION:quran-->
 
   
