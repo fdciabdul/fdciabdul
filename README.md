@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 38**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 8**
 
-And though some be too proud [to listen to this call], they who [in their hearts] are with thy Sustainer extol His limitless glory by night and by day, and never grow weary [thereof].
+Does he [knowingly] attribute his own lying inventions to God - or is he a madman?” Nay, [there is no madness in this Prophet -] but they who will not believe in the life to come are [bound to lose themselves] in suffering and in a profound aberration.
  <!--END_SECTION:quran-->
 
   
