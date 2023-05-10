@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 40**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 6**
 
-[and] neither may the sun overtake the moon, nor can the night usurp the time of day, since all of them float through space [in accordance with Our laws].
+such as, when all mankind is gathered [for judgment], will be enemies unto those [who worshipped them], and will utterly reject their worship?
  <!--END_SECTION:quran-->
 
   
