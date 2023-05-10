@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 10**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 7**
 
-Furthermore, defer not to the contemptible swearer of oaths,
+And found thee lost on thy way, and guided thee?
  <!--END_SECTION:quran-->
 
   
