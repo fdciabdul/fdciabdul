@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 9**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 48**
 
-Hence, if two groups of believers fall to fighting, make peace between them; but then, if one of the two [groups] goes on acting wrongfully towards the other, fight against the one that acts wrongfully until it reverts to God’s commandment; and if they revert, make peace between them with justice, and deal equitably [with them]: for verily, God loves those who act equitably!
+And to how many a community that was im­mersed in evildoing have I given rein for a while! But then I took it to task: for with Me is all journeys’ end!
  <!--END_SECTION:quran-->
 
   
