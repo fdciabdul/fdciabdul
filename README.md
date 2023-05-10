@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 6**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-such as, when all mankind is gathered [for judgment], will be enemies unto those [who worshipped them], and will utterly reject their worship?
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
