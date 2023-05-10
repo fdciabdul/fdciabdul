@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 14**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 85**
 
-And thereupon We made you their successors on earth, so that We might behold how you act.
+And the word [of truth] will stand revealed against them in the face of all the wrong which they had committed, and they will not [be able to] utter a single word [of excuse]:
  <!--END_SECTION:quran-->
 
   
