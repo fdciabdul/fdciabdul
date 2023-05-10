@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 30**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 55**
 
-All this [is ordained by God]; and if one houours God’s sacred commandments, it will redound to his own good in his Sustainer’s sight. And all [kinds of] cattle have been made lawful to you [for sacrifice and food], save what is mentioned to you [as forbidden]. Shun, then, [all that God has forbidden and, most of all,] the loathsome evil of idolatrous beliefs and practices; and shun every word that is untrue,
+seeing that thy Sustainer is fully aware of [what is in the minds of] all beings that are in the heavens and on earth. But, indeed, We did endow some of the prophets more highly than others -just as We bestowed upon David a book of divine wisdom [in token of Our grace]
  <!--END_SECTION:quran-->
 
   
