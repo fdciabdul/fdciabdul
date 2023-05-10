@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 49**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 7**
 
-Say: “Verily, those of olden times and those of later times
+[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.
  <!--END_SECTION:quran-->
 
   
