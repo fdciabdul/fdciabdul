@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 17**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 49**
 
-Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.
+Say: “Verily, those of olden times and those of later times
  <!--END_SECTION:quran-->
 
   
