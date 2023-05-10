@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 5**
+**Surah 38: سُورَةُ صٓ (Saad) - 64**
 
-and then giving forth a reminder,
+Such, behold, will in truth be the [confusion and] mutual wrangling of the people of the fire!
  <!--END_SECTION:quran-->
 
   
