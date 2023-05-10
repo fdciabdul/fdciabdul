@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 73**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 56**
 
-As for us, behold, we have come to believe in our Sustainer, [hoping] that He may forgive us our faults and all that magic unto which thou hast forced us: for God is the best [to look forward to], and the One who is truly abiding."
+and says: “By God! Verily, thou hast almost destroyed me [too, O my erstwhile companion]
  <!--END_SECTION:quran-->
 
   
