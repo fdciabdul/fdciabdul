@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 22**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 46**
 
-Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?
+And do not argue with the followers of earlier revelation otherwise than in a most kindly manner - unless it be such of them as are bent on evildoing and say: “We believe in that which has been be­stowed from on high upon us, as well as that which has been bestowed upon you: or our God and your God is one and the same, and it is unto Him that We [all] surrender ourselves.”
  <!--END_SECTION:quran-->
 
   
