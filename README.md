@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 15**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
 
-God has readied for them suffering severe [in the life to come]. Behold, evil indeed is what they are wont to do:
+"and from the evil of the black darkness whenever it descends,
  <!--END_SECTION:quran-->
 
   
