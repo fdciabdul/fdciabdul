@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 1**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 22**
 
-NAY! I call to witness this land –
+Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?
  <!--END_SECTION:quran-->
 
   
