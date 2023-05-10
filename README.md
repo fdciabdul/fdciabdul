@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 12**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 9**
 
-and when the blazing fire [of hell] is kindled bright,
+and in awe [of God]
  <!--END_SECTION:quran-->
 
   
