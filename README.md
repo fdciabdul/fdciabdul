@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 37**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 12**
 
-“Go thou back unto them [that have sent thee]! For, [God says:] ‘We shall most certainly come upon them with forces which they will never be able to withstand, and shall most certainly cause them to be driven from that [land of theirs], despicable and humbled!’”
+and when the blazing fire [of hell] is kindled bright,
  <!--END_SECTION:quran-->
 
   
