@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 34**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 1**
 
-And so, on the Day when those who were bent on denying the truth will be brought within sight of the fire [and will be asked], “Is not this the truth?” - they will answer, “Yea, by Our Sustainer!” [And] He will say: “Taste, then, this suffering as an outcome of your denial of the truth!”
+NAY! I call to witness this land –
  <!--END_SECTION:quran-->
 
   
