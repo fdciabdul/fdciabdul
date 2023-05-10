@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 3**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 42**
 
-[In the life to come] he shall have to endure a fire fiercely glowing;
+those who eagerly listen to any falsehood, greedily swallowing all that is evil! Hence, if they come to thee [for judgment], thou mayest either judge between them or leave them alone: for, if thou leave them alone, they cannot harm thee in any way. But if thou dost judge, judge between them with equity: verily, God knows those who act equitably.
  <!--END_SECTION:quran-->
 
   
