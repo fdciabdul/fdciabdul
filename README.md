@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 67**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 30**
 
-And the people of the city came [unto Lot], rejoicing at the glad tiding.
+For, they claimed that there are powers that could rival God, and so they strayed from His path. Say: "Enjoy yourselves [in this world], but, verily, the fire will be your journey's end!"
  <!--END_SECTION:quran-->
 
   
