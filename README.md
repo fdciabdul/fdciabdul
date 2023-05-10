@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 15**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 104**
 
-for none [of them] had any fear of what might befall them.
+"[It is] they whose labour has gone astray in [the pursuit of no more than] this world's life, and who none the less think that they are doing good works:
  <!--END_SECTION:quran-->
 
   
