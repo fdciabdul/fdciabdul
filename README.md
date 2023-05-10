@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 14**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 10**
 
-Lo! We sent unto them two [apostles], and. they gave the lie to both; and so We strengthened [the two] with a third; and thereupon they said: “Behold, we have been sent unto you [by God]!”
+And what could make thee conceive what that [abyss] will be?
  <!--END_SECTION:quran-->
 
   
