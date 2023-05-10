@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 17**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 9**
 
-And what could make thee conceive what that Judgment Day will be?
+this, because they hate [the very thought of] what God has bestowed from on high and thus He causes all their deeds to come to nought!
  <!--END_SECTION:quran-->
 
   
