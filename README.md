@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 28**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 275**
 
-and [since] they have no knowledge whatever thereof, they follow nothing but surmise: yet, behold, never can surmise take the place of truth.
+THOSE who gorge themselves on usury behave but as he might behave whom Satan has confounded with his touch; for they say, "Buying and selling is but a kind of usury" - the while God has made buying and selling lawful and usury unlawful. Hence, whoever becomes aware of his Sustainer's admonition, and thereupon desists [from usury], may keep his past gains, and it will be for God to judge him; but as for those who return to it -they are destined for the fire, therein to abide!
  <!--END_SECTION:quran-->
 
   
