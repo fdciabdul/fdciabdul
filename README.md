@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 43**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 20**
 
-Do they [really think that they] have deities that could shield them from Us? Those [alleged dei­ties] are not [even] able to succour themselves: hence, neither can they [who worship them hope to] be aided [by them] against Us.
+nor is this difficult for God.
  <!--END_SECTION:quran-->
 
   
