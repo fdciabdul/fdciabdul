@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 34**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 5**
 
-But on the Day [of Judgment], they who had attained to faith will [be able to] laugh at the [erstwhile] deniers of the truth:
+and then giving forth a reminder,
  <!--END_SECTION:quran-->
 
   
