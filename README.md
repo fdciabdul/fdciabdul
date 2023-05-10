@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 3**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 257**
 
-and neither do you worship that which I worship!
+God is near unto those who have faith, taking them out of deep darkness into the light - whereas near unto those who are bent on denying the truth are the powers of evil that take them out of the light into darkness deep: it is they who are destined for the fire, therein to abide.
  <!--END_SECTION:quran-->
 
   
