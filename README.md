@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 51**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 4**
 
-for, verily, it is truth absolute!
+And [have We not] raised thee high in dignity?
  <!--END_SECTION:quran-->
 
   
