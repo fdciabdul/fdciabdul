@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 2**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 61**
 
-Keep awake [in prayer] at night, all but a small part
+For the like of this, then, let them labour, those who labour [in God’s way]!
  <!--END_SECTION:quran-->
 
   
