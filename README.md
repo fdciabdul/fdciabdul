@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 4**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 28**
 
-And [have We not] raised thee high in dignity?
+and [since] they have no knowledge whatever thereof, they follow nothing but surmise: yet, behold, never can surmise take the place of truth.
  <!--END_SECTION:quran-->
 
   
