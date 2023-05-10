@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 257**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 10**
 
-God is near unto those who have faith, taking them out of deep darkness into the light - whereas near unto those who are bent on denying the truth are the powers of evil that take them out of the light into darkness deep: it is they who are destined for the fire, therein to abide.
+And spend on others out of what We have provided for you as sustenance, ere there come a time when death approaches any of you, and he then says, "O my Sustainer! If only Thou wouldst grant me a delay for a short while, so that I could give in charity and be among the righteous!"
  <!--END_SECTION:quran-->
 
   
