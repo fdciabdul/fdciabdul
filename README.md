@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 5**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
 
-Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store
+and neither will you [ever] worship that which I worship.
  <!--END_SECTION:quran-->
 
   
