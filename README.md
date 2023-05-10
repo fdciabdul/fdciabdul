@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 61**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 22**
 
-For the like of this, then, let them labour, those who labour [in God’s way]!
+[And they will be told:] "Verily, all this is your reward since Your endeavour [in life] has met [God's] goodly acceptance!"
  <!--END_SECTION:quran-->
 
   
