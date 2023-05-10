@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 5**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
 
-And in the succession of night and day, and in the means of subsistence which God sends down from the skies, giving life thereby to the earth after it had been lifeless, and in the change of the winds: [in all this] there are messages for people who use their reason.
+"God the Eternal, the Uncaused Cause of All Being.
  <!--END_SECTION:quran-->
 
   
