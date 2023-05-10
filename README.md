@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 70**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 6**
 
-But when he saw that their hands did not reach out towards it, he deemed their conduct strange and became apprehensive of them. [But] they said: "Fear not! Behold, we are sent to the people of Lot.
+WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],
  <!--END_SECTION:quran-->
 
   
