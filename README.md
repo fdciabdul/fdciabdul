@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 76**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 77**
 
-And God propounds [to you] the parable of two [other] men -one of them dumb, unable to do anything of his own accord, and a sheer burden on his master: to whichever task the latter directs him, he accomplishes no good. Can such a one be considered the equal of [a wise man] who enjoins the doing of what is right and himself follows a straight way?
+AND WHEN Our messengers came unto Lot, he was sorely grieved on their account, seeing that it was beyond his power to shield them; and he exclaimed: "This is a woeful day!"
  <!--END_SECTION:quran-->
 
   
