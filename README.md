@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 82**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 54**
 
-and make it your daily bread [as it were] to call the truth a lie?
+These it is that shall receive a twofold reward for having been patient in adversity, and having repelled evil with good, and having spent on others out of what We provided for them as sus­tenance,
  <!--END_SECTION:quran-->
 
   
