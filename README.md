@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 23**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 15**
 
-However, as for him who turns away, being bent on denying the truth,
+BUT AS FOR man, whenever his Sustainer tries him by His generosity and by letting him enjoy a life of ease, he says, "My Sustainer has been [justly] generous towards me";
  <!--END_SECTION:quran-->
 
   
