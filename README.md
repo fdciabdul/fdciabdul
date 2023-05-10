@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 65**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 40**
 
-therein to abide beyond the count of time: no protec­tor will they find, and none to bring them succour.
+[and] neither may the sun overtake the moon, nor can the night usurp the time of day, since all of them float through space [in accordance with Our laws].
  <!--END_SECTION:quran-->
 
   
