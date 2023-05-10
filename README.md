@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 7**
 
-Verily, man is bound to lose himself
+The way of those upon whom Thou hast bestowed Thy blessings, not of those who have been condemned [by Thee], nor of those who go astray!
  <!--END_SECTION:quran-->
 
   
