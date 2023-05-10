@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 1**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 17**
 
-HE FROWNED and turned away
+And what could make thee conceive what that Judgment Day will be?
  <!--END_SECTION:quran-->
 
   
