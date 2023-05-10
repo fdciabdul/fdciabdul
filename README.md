@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 8**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 15**
 
-Does he [knowingly] attribute his own lying inventions to God - or is he a madman?” Nay, [there is no madness in this Prophet -] but they who will not believe in the life to come are [bound to lose themselves] in suffering and in a profound aberration.
+God has readied for them suffering severe [in the life to come]. Behold, evil indeed is what they are wont to do:
  <!--END_SECTION:quran-->
 
   
