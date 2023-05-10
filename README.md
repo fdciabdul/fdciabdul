@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 54**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 1**
 
-These it is that shall receive a twofold reward for having been patient in adversity, and having repelled evil with good, and having spent on others out of what We provided for them as sus­tenance,
+EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,
  <!--END_SECTION:quran-->
 
   
