@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 86**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 62**
 
-That which rests with God is best for you, if you but believe [in Him]! However, I am not your keeper."
+And [withal.] We do not burden any human being with more than he is well able to bear: for with Us is a record that speaks the truth [about what men do and can do]; and none shall be wronged.
  <!--END_SECTION:quran-->
 
   
