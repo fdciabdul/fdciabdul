@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 29**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 2**
 
-and when I have formed him fully and breathed into him of My spirit, fall down before him in prostration!
+He it is who has created you: and among you are such as deny this truth, and among you are such as believe [in it]. And God sees all that you do.
  <!--END_SECTION:quran-->
 
   
