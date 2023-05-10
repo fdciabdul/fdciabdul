@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 7**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 6**
 
-The way of those upon whom Thou hast bestowed Thy blessings, not of those who have been condemned [by Thee], nor of those who go astray!
+Has He not found thee an orphan, and given thee shelter?
  <!--END_SECTION:quran-->
 
   
