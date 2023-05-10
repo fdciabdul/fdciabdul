@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 2**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 56**
 
-He it is who has created you: and among you are such as deny this truth, and among you are such as believe [in it]. And God sees all that you do.
+On that Day, all dominion shall [visibly] belong to God, He shall judge [all men and make a distinction] between them: thus, all who had attained to faith and did righteous deeds shall find themselves in gardens of bliss,
  <!--END_SECTION:quran-->
 
   
