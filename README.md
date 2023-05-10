@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 5**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 7**
 
-Thee alone do we worship; and unto Thee alone do we turn for aid.
+Hence, when thou art freed [from distress], remain steadfast,
  <!--END_SECTION:quran-->
 
   
