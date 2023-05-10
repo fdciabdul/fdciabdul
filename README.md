@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 46**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 28**
 
-And do not argue with the followers of earlier revelation otherwise than in a most kindly manner - unless it be such of them as are bent on evildoing and say: “We believe in that which has been be­stowed from on high upon us, as well as that which has been bestowed upon you: or our God and your God is one and the same, and it is unto Him that We [all] surrender ourselves.”
+At that, a believing man of Pharaoh’s family, who [until then] had concealed his faith, exclaimed: “Would you slay a man because he says, ‘God is my Sustainer’ - seeing, withal, that he has brought you all evidence of this truth from your Sustainer? Now if he be a liar, his lie will fall back on him; but if he is a man of truth, something [of the punishment] whereof he warns you is bound to befall you: for, verily, God would not grace with His guidance one who has wasted his own self by lying [about Him].
  <!--END_SECTION:quran-->
 
   
