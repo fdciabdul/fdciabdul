@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 64**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 86**
 
-Such, behold, will in truth be the [confusion and] mutual wrangling of the people of the fire!
+That which rests with God is best for you, if you but believe [in Him]! However, I am not your keeper."
  <!--END_SECTION:quran-->
 
   
