@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 53**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 5**
 
-“And then - why have no golden armlets been bestowed on him? or why have no angels come together with him?”
+Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store
  <!--END_SECTION:quran-->
 
   
