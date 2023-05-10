@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 75**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 65**
 
-Which, then, of your Sustainer’s powers can you disavow?
+therein to abide beyond the count of time: no protec­tor will they find, and none to bring them succour.
  <!--END_SECTION:quran-->
 
   
