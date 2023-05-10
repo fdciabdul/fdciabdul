@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 7**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 1**
 
-[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.
+HE FROWNED and turned away
  <!--END_SECTION:quran-->
 
   
