@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 31**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 82**
 
-Are they not aware of how many a generation We have destroyed before their time, [and] that those [that have perished] will never return to them,
+and make it your daily bread [as it were] to call the truth a lie?
  <!--END_SECTION:quran-->
 
   
