@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 4**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 15**
 
-Verily, [O men,] you aim at most divergent ends!
+for none [of them] had any fear of what might befall them.
  <!--END_SECTION:quran-->
 
   
