@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 206**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 7**
 
-Behold, those who are near unto thy Sustainer are never too proud to worship Him; and they extol His limitless glory, and prostrate themselves before Him [alone].
+[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.
  <!--END_SECTION:quran-->
 
   
