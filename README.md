@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 1**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 13**
 
-EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,
+Nay, [O believers,] you arouse in their bosoms a fear more intense than [even their fear of] God: this, because they are people who fail to grasp the truth.
  <!--END_SECTION:quran-->
 
   
