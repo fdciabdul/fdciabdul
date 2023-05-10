@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 6**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 3**
 
-WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],
+and neither do you worship that which I worship!
  <!--END_SECTION:quran-->
 
   
