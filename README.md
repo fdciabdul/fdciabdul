@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 8**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 5**
 
-Now had God so willed, He could surely have made them all one single community: none the less, He admits unto His grace him that wills [to be admitted] whereas the evildoers shall have none to protect them and none to succour them [on Judgment Day].
+as thy Sustainer will have inspired her to do!
  <!--END_SECTION:quran-->
 
   
