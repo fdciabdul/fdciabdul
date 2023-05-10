@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 102**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 40**
 
-People before your time have indeed asked such questions-and in result thereof have come to deny the truth.
+But [remember that an attempt at] requiting evil may, too, become an evil: hence, whoever par­dons [his foe] and makes peace, his reward rests with God - for, verily, He does not love evildoers.
  <!--END_SECTION:quran-->
 
   
