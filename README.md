@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 7**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 34**
 
-And found thee lost on thy way, and guided thee?
+But on the Day [of Judgment], they who had attained to faith will [be able to] laugh at the [erstwhile] deniers of the truth:
  <!--END_SECTION:quran-->
 
   
