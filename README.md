@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 21**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 8**
 
-and in the end He causes him to die and brings him to the grave;
+[Zachariah] exclaimed: "O my Sustainer! How can I have a son when my wife has always been barren and I have become utterly infirm through old age?"
  <!--END_SECTION:quran-->
 
   
