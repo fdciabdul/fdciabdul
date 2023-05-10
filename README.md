@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 3**
 
-and neither will you [ever] worship that which I worship.
+[In the life to come] he shall have to endure a fire fiercely glowing;
  <!--END_SECTION:quran-->
 
   
