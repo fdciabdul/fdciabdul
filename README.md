@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 30**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 17**
 
-For, they claimed that there are powers that could rival God, and so they strayed from His path. Say: "Enjoy yourselves [in this world], but, verily, the fire will be your journey's end!"
+Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.
  <!--END_SECTION:quran-->
 
   
