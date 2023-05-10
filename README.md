@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 7**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 29**
 
-Hence, when thou art freed [from distress], remain steadfast,
+and when I have formed him fully and breathed into him of My spirit, fall down before him in prostration!
  <!--END_SECTION:quran-->
 
   
