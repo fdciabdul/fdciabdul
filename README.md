@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 41**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 67**
 
-AND KNOW that whatever booty you acquire [in war], one-fifth thereof belongs to God and the Apostle, and the near of kin, and the orphans, and the needy, and the wayfarer. [This you must observe] if you believe in God and in what We bestowed from on high upon Our servant on the day when the true was distinguished from the false - the day when the two hosts met in battle. And God has the power to will anything.
+And the people of the city came [unto Lot], rejoicing at the glad tiding.
  <!--END_SECTION:quran-->
 
   
