@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 40**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 70**
 
-But [remember that an attempt at] requiting evil may, too, become an evil: hence, whoever par­dons [his foe] and makes peace, his reward rests with God - for, verily, He does not love evildoers.
+But when he saw that their hands did not reach out towards it, he deemed their conduct strange and became apprehensive of them. [But] they said: "Fear not! Behold, we are sent to the people of Lot.
  <!--END_SECTION:quran-->
 
   
