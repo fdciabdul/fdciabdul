@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 85**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 53**
 
-And the word [of truth] will stand revealed against them in the face of all the wrong which they had committed, and they will not [be able to] utter a single word [of excuse]:
+“And then - why have no golden armlets been bestowed on him? or why have no angels come together with him?”
  <!--END_SECTION:quran-->
 
   
