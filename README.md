@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 104**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 2**
 
-"[It is] they whose labour has gone astray in [the pursuit of no more than] this world's life, and who none the less think that they are doing good works:
+Keep awake [in prayer] at night, all but a small part
  <!--END_SECTION:quran-->
 
   
