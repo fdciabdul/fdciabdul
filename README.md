@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 116**
 
-Verily, he that hates thee has indeed been cut off [from all that is good]!
+Said they: “Indeed, if thou desist not, O Noah, thou wilt surely be stoned to death!”
  <!--END_SECTION:quran-->
 
   
