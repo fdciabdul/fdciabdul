@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 15**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 117**
 
-[the fire] which none shall have to endure but that most hapless wretch
+In His stead, they invoke only life­less symbols - thus invoking none but a rebellious Satan
  <!--END_SECTION:quran-->
 
   
