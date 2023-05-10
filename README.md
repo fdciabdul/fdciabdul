@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 56**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 4**
 
-On that Day, all dominion shall [visibly] belong to God, He shall judge [all men and make a distinction] between them: thus, all who had attained to faith and did righteous deeds shall find themselves in gardens of bliss,
+who has given them food against hunger, and made them safe from danger.
  <!--END_SECTION:quran-->
 
   
