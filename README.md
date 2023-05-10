@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 10**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 206**
 
-And what could make thee conceive what that [abyss] will be?
+Behold, those who are near unto thy Sustainer are never too proud to worship Him; and they extol His limitless glory, and prostrate themselves before Him [alone].
  <!--END_SECTION:quran-->
 
   
