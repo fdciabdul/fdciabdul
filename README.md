@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 116**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 51**
 
-Said they: “Indeed, if thou desist not, O Noah, thou wilt surely be stoned to death!”
+for, verily, it is truth absolute!
  <!--END_SECTION:quran-->
 
   
