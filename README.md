@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 5**
 
-hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
+And in the succession of night and day, and in the means of subsistence which God sends down from the skies, giving life thereby to the earth after it had been lifeless, and in the change of the winds: [in all this] there are messages for people who use their reason.
  <!--END_SECTION:quran-->
 
   
