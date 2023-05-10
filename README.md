@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 30**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 9**
 
-Go on towards the threefold shadow
+Hence, if two groups of believers fall to fighting, make peace between them; but then, if one of the two [groups] goes on acting wrongfully towards the other, fight against the one that acts wrongfully until it reverts to God’s commandment; and if they revert, make peace between them with justice, and deal equitably [with them]: for verily, God loves those who act equitably!
  <!--END_SECTION:quran-->
 
   
