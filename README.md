@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 16**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 5**
 
-and has set up within them the moon as a light [reflected] and set up the sun as a [radiant] lamp?
+Thee alone do we worship; and unto Thee alone do we turn for aid.
  <!--END_SECTION:quran-->
 
   
