@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 56**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 30**
 
-and says: “By God! Verily, thou hast almost destroyed me [too, O my erstwhile companion]
+All this [is ordained by God]; and if one houours God’s sacred commandments, it will redound to his own good in his Sustainer’s sight. And all [kinds of] cattle have been made lawful to you [for sacrifice and food], save what is mentioned to you [as forbidden]. Shun, then, [all that God has forbidden and, most of all,] the loathsome evil of idolatrous beliefs and practices; and shun every word that is untrue,
  <!--END_SECTION:quran-->
 
   
