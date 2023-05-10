@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 77**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 37**
 
-AND WHEN Our messengers came unto Lot, he was sorely grieved on their account, seeing that it was beyond his power to shield them; and he exclaimed: "This is a woeful day!"
+“Go thou back unto them [that have sent thee]! For, [God says:] ‘We shall most certainly come upon them with forces which they will never be able to withstand, and shall most certainly cause them to be driven from that [land of theirs], despicable and humbled!’”
  <!--END_SECTION:quran-->
 
   
