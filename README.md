@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 30**
 
-"God the Eternal, the Uncaused Cause of All Being.
+Go on towards the threefold shadow
  <!--END_SECTION:quran-->
 
   
