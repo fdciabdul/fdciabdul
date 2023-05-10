@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 9**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 31**
 
-and in awe [of God]
+Are they not aware of how many a generation We have destroyed before their time, [and] that those [that have perished] will never return to them,
  <!--END_SECTION:quran-->
 
   
