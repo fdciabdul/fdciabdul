@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 14**
 
-On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
+And thereupon We made you their successors on earth, so that We might behold how you act.
  <!--END_SECTION:quran-->
 
   
