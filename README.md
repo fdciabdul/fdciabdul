@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 55**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 16**
 
-seeing that thy Sustainer is fully aware of [what is in the minds of] all beings that are in the heavens and on earth. But, indeed, We did endow some of the prophets more highly than others -just as We bestowed upon David a book of divine wisdom [in token of Our grace]
+and has set up within them the moon as a light [reflected] and set up the sun as a [radiant] lamp?
  <!--END_SECTION:quran-->
 
   
