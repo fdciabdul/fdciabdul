@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 104**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 47**
 
-Do they not know that it is God alone who can accept the repentance of His servants and is the [true] recipient of whatever is offered for His sake - and that God alone is an acceptor of repentance, a dispenser of grace?
+But, verily, for those who are bent on doing evil, there is suffering in store [even] closer at hand than that [supreme suffering in the hereafter]: but most of them are not aware of it.
  <!--END_SECTION:quran-->
 
   
