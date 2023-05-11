@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 6**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 104**
 
-Nay, verily, man becomes grossly overweening
+Means of insight have now come unto you from your Sustainer [through this divine writ]. Whoever, therefore, chooses to see, does so for his own good; and whoever chooses to remain blind, does so to his own hurt. And [say unto the blind of heart]: "I am not your keeper."
  <!--END_SECTION:quran-->
 
   
