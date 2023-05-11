@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 31**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 96**
 
-They have taken their rabbis and their monks-as well as the Christ, son of Mary-for their lords beside God, although they had been bidden to worship none but the One God, save whom there is no deity: the One who is utterly remote, in His limitless glory, from anything to which they may ascribe a share in His divinity!
+VERILY, those who attain to faith and do righteous deeds will the Most Gracious endow with love:
  <!--END_SECTION:quran-->
 
   
