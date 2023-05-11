@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 18**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 101**
 
-Hence, warn them of that Day which draws ever nearer, when the hearts will chokingly come up to the throats: no loving friend will the evildoers have, nor any intercessor who would be heeded:
+And how could you deny the truth when it is unto you that God's messages are being conveyed, and it is in your midst that His Apostle lives? But he who holds fast unto God has already been guided onto a straight way.
  <!--END_SECTION:quran-->
 
   
