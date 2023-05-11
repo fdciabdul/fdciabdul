@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 157**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 49**
 
-It is they upon whom their Sustainer's blessings and grace are bestowed, and it is they, they who are on the right path!
+And in everything have We created oppos­ites, so that you might bear in mind [that God alone is One].
  <!--END_SECTION:quran-->
 
   
