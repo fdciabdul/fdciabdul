@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 31**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 93**
 
-and has caused its waters to come out of it, and its pastures,
+Not one of all [the beings] that are in the heavens or on earth appears before the Most Gracious other than as a servant:
  <!--END_SECTION:quran-->
 
   
