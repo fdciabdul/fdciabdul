@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 18**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 13**
 
-Thus, when We recite it, follow thou its wording [with all thy mind]:
+BEHOLD, this [divine writ] is indeed a word that between truth and falsehood,
  <!--END_SECTION:quran-->
 
   
