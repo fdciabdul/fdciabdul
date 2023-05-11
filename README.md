@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 24**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
 
-and yet, they choose to worship [imaginary] deities instead of Him! Say [O Prophet]: “Produce an evidence for what you are claiming: this is a reminder [unceasingly voiced] by those who are with me, just as it was a reminder [voiced] by those who came before me.” But nay, most of them do not know the truth, and so they stubbornly turn away [from it]
+Thus, He let loose upon them great swarms of flying creatures
  <!--END_SECTION:quran-->
 
   
