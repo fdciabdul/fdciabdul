@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 223**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 21**
 
-Your wives are your tilth; go, then, unto your tilth as you may desire, but first provide something for your souls, and remain conscious of God, and know that you are destined to meet Him. And give glad tidings unto those who believe.
+Nay, but this [divine writ which they reject] is a discourse sublime,
  <!--END_SECTION:quran-->
 
   
