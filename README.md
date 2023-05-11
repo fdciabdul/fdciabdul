@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 28**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 11**
 
-And he uttered this as a word destined to endure among those who would come after him, so that they might [always] return [to it].
+but aloof from it will remain that most hapless wretch –
  <!--END_SECTION:quran-->
 
   
