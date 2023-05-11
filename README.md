@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 32**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 223**
 
-and whenever they see those [who believe,] they say, "Behold, these [people] have indeed gone astray!"
+Your wives are your tilth; go, then, unto your tilth as you may desire, but first provide something for your souls, and remain conscious of God, and know that you are destined to meet Him. And give glad tidings unto those who believe.
  <!--END_SECTION:quran-->
 
   
