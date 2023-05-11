@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 41**
+**Surah 38: سُورَةُ صٓ (Saad) - 49**
 
-Go forth to war, whether it be easy or difficult [for you], and strive hard in God's cause with your possessions and your lives: this is for your own good -if you but knew it!
+LET [all] this be a reminder [to those who believe in God] - for, verily, the most beauteous of all goals awaits the God-conscious:
  <!--END_SECTION:quran-->
 
   
