@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 6**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 2**
 
-O MAN! What is it that lures thee away from thy bountiful Sustainer,
+THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the All-Know­ing,
  <!--END_SECTION:quran-->
 
   
