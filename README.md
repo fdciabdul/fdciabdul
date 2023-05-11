@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 122**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 21**
 
-Thereafter, [however,) his Sustainer elected him [for His grace], and accepted his repentance, and bestowed His guidance upon him,
+and who keep together what God has bidden to be joined, and stand in awe of their Sustainer and fear the most evil reckoning [which awaits such as do not respond to Him];
  <!--END_SECTION:quran-->
 
   
