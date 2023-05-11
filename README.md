@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 93**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 4**
 
-Not one of all [the beings] that are in the heavens or on earth appears before the Most Gracious other than as a servant:
+[for] no human being has ever been left unguarded.
  <!--END_SECTION:quran-->
 
   
