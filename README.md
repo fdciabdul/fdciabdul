@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 67**
 
-Thus, He let loose upon them great swarms of flying creatures
+[and,] impelled by your arrogance, you would talk senselessly far into the night.”
  <!--END_SECTION:quran-->
 
   
