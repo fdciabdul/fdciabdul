@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 10**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 4**
 
-and truly lost is he who buries it [in darkness].
+within a few years: [for] with God rests all power of decision, first and last. And on that day will the believers [too, have cause to] rejoice
  <!--END_SECTION:quran-->
 
   
