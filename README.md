@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 21**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 157**
 
-and who keep together what God has bidden to be joined, and stand in awe of their Sustainer and fear the most evil reckoning [which awaits such as do not respond to Him];
+It is they upon whom their Sustainer's blessings and grace are bestowed, and it is they, they who are on the right path!
  <!--END_SECTION:quran-->
 
   
