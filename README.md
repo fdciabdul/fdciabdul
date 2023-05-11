@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 4**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
 
-They will ask thee as to what is lawful to them. Say: "Lawful to you are all the good things of life." And as for those hunting animals which you train by imparting to them something of the knowledge that God has imparted to yourselves-eat of what they seize for you, but mention God's name over it. and remain conscious of God: verily, God is swift in reckoning.
+And what could make thee conceive what that crushing torment will be?
  <!--END_SECTION:quran-->
 
   
