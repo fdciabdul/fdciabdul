@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 13**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 12**
 
-and food that chokes, and grievous suffering
+[And they will be told:] “This [has befallen you] because, whenever the One God was invoked, you denied this truth; whereas, when divinity was ascribed to aught beside Him, you believed [in it]! But all judgment rests with God, the Exalted, the Great!”
  <!--END_SECTION:quran-->
 
   
