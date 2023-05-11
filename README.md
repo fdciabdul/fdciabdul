@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 60**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 21**
 
-And [remember:] whatever you are given [now] is but for the [passing] enjoyment of life in this world, and for its embellishment - whereas that which is with God is [so much] better and more enduring. Will you not, then, use your reason?
+and who keep together what God has bidden to be joined, and stand in awe of their Sustainer and fear the most evil reckoning [which awaits such as do not respond to Him];
  <!--END_SECTION:quran-->
 
   
