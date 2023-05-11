@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 181**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 128**
 
-God has indeed heard the saying of those who said, "Behold, God is poor while we are rich!" We shall record what they have said, as well as their slaying of prophets against all right, and We shall say [unto them on Judgment Day]: "Taste suffering through fire
+[And] Moses said unto his people: "Turn unto God for aid, and have patience in adversity. Verily, all the earth belongs to God: He gives it as a heritage - to such as He wills of His servants; and the future belongs to the God-conscious!"
  <!--END_SECTION:quran-->
 
   
