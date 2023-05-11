@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 13**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 14**
 
-BEHOLD, this [divine writ] is indeed a word that between truth and falsehood,
+Never will they fight you, [even] in unison, otherwise than from within fortified strongholds or from behind walls. Severe is their warlike discord among themselves: thou wouldst think that they are united, whereas [in fact] their hearts are at odds [with one another]: this, because they are people who will not use their reason.
  <!--END_SECTION:quran-->
 
   
