@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 42**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 35**
 
-Hence, leave them to indulge in idle talk and play [with words] until they face that [Judgment] Day of theirs which they have been promised –
+It is not conceivable that God should have taken unto Himself a son: limitless is He in His glory! When He wills a thing to be, He but says unto it "Be" -and it is!
  <!--END_SECTION:quran-->
 
   
