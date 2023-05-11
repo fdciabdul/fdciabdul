@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 9**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 65**
 
-and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,
+Which, then, of your Sustainer’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
