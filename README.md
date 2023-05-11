@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 7**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 52**
 
-It is they who say [to their compatriots], "Do not spend anything on those who are with God's Apostle, so that they [may be forced to] leave." However, unto God belong the treasures of the heavens and the earth: but this truth the hypocrites cannot grasp.
+and will cry, “We do [now] believe in it!” But how can they [hope to] attain [to salvation] from so far away,
  <!--END_SECTION:quran-->
 
   
