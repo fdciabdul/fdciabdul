@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 7**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 41**
 
-And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.
+Go forth to war, whether it be easy or difficult [for you], and strive hard in God's cause with your possessions and your lives: this is for your own good -if you but knew it!
  <!--END_SECTION:quran-->
 
   
