@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 21**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 13**
 
-and who keep together what God has bidden to be joined, and stand in awe of their Sustainer and fear the most evil reckoning [which awaits such as do not respond to Him];
+and food that chokes, and grievous suffering
  <!--END_SECTION:quran-->
 
   
