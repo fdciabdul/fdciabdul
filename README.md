@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 67**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 36**
 
-[whereas] it is He who has made the night for you, so that you might have rest therein, and the day, to make [you] see in this, behold, there are messages indeed for people who [are willing to] listen.
+and the blazing fire [of hell] will be lad open before all who [are destined to] see it.
  <!--END_SECTION:quran-->
 
   
