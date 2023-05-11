@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 1**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
 
-EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,
+which smote them with stone-hard blows of chastisement pre-ordained,
  <!--END_SECTION:quran-->
 
   
