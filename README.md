@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 7**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
 
-and to this, behold, he [himself] bears witness indeed:
+"and from the evil of the black darkness whenever it descends,
  <!--END_SECTION:quran-->
 
   
