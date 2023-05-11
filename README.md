@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 82**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 22**
 
-Let them, then, laugh a little - for they will weep a lot in return for what they have earned.
+and neither are equal the living and the dead [of heart]. Behold, [O Muhammad,] God can make hear whomever He wills, whereas thou canst not make hear such as are [dead of heart like the dead] in their graves:
  <!--END_SECTION:quran-->
 
   
