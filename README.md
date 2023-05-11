@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 1**
 
-"from the evil of aught that He has created,
+AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;
  <!--END_SECTION:quran-->
 
   
