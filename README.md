@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 35**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 6**
 
-It is not conceivable that God should have taken unto Himself a son: limitless is He in His glory! When He wills a thing to be, He but says unto it "Be" -and it is!
+As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.
  <!--END_SECTION:quran-->
 
   
