@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 2**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 4**
 
-THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the All-Know­ing,
+They will ask thee as to what is lawful to them. Say: "Lawful to you are all the good things of life." And as for those hunting animals which you train by imparting to them something of the knowledge that God has imparted to yourselves-eat of what they seize for you, but mention God's name over it. and remain conscious of God: verily, God is swift in reckoning.
  <!--END_SECTION:quran-->
 
   
