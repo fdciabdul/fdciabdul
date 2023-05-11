@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 2**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 20**
 
-And so, when they are about to reach the end of their waiting-term, either retain them in a fair manner or part with them in a fair manner. And let two persons of [known] probity from among your own community witness [what you have decided]; and do yourselves bear true witness before God: thus are admonished all who believe in God and the Last Day. And unto everyone who is conscious of God, He [always] grants a way out [of unhappiness],
+but all the while God encompasses them [with His knowledge and might] without their being aware of it.
  <!--END_SECTION:quran-->
 
   
