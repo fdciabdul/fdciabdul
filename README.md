@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 51**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 3**
 
-Will you, then, believe in it [only] after it has come to pass -[on the Day when you will be asked, `Do you believe in it] now, after having [contemptuously] called for its speedy advent?'
+"the God of men,
  <!--END_SECTION:quran-->
 
   
