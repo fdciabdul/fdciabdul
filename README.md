@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 14**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 67**
 
-and to whose life I gave so wide a scope:
+[whereas] it is He who has made the night for you, so that you might have rest therein, and the day, to make [you] see in this, behold, there are messages indeed for people who [are willing to] listen.
  <!--END_SECTION:quran-->
 
   
