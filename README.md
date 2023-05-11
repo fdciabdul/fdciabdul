@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 49**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 28**
 
-And in everything have We created oppos­ites, so that you might bear in mind [that God alone is One].
+And he uttered this as a word destined to endure among those who would come after him, so that they might [always] return [to it].
  <!--END_SECTION:quran-->
 
   
