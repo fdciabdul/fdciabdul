@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 92**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 9**
 
-although it is inconceivable that the Most Gracious should take unto Himself a son!
+and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,
  <!--END_SECTION:quran-->
 
   
