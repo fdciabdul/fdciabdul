@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 17**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 69**
 
-and the night as it darkly falls,
+And thy Sustainer knows all that their hearts conceal as well as all that they bring into the open:
  <!--END_SECTION:quran-->
 
   
