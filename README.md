@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 65**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 8**
 
-Which, then, of your Sustainer’s powers can you disavow?
+and how it is imbued with moral failings as well as with consciousness of God!
  <!--END_SECTION:quran-->
 
   
