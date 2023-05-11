@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 9**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 9**
 
-this, because they hate [the very thought of] what God has bestowed from on high and thus He causes all their deeds to come to nought!
+They will reply: "Yea, a warner did indeed come unto us, but we gave him the lie and said, 'Never has God sent down anything [by way of revelation]! You [self-styled warners] are but lost in a great delusion!"'
  <!--END_SECTION:quran-->
 
   
