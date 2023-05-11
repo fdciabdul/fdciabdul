@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 101**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 7**
 
-And how could you deny the truth when it is unto you that God's messages are being conveyed, and it is in your midst that His Apostle lives? But he who holds fast unto God has already been guided onto a straight way.
+It is they who say [to their compatriots], "Do not spend anything on those who are with God's Apostle, so that they [may be forced to] leave." However, unto God belong the treasures of the heavens and the earth: but this truth the hypocrites cannot grasp.
  <!--END_SECTION:quran-->
 
   
