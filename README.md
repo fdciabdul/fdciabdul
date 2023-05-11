@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 82**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 60**
 
-And on the morrow, those who but yesterday had longed to be in his place exclaimed: “Alas [for our not having been aware] that it is indeed God [alone] who grants abundant sustenance, or gives it in scant measure, unto whichever He wills of His crea­tures! Had not God been gracious to us, He might have caused [the earth] to swallow us, too! Alas [for our having forgotten] that those who deny the truth can never attain to a happy state!”
+And [remember:] whatever you are given [now] is but for the [passing] enjoyment of life in this world, and for its embellishment - whereas that which is with God is [so much] better and more enduring. Will you not, then, use your reason?
  <!--END_SECTION:quran-->
 
   
