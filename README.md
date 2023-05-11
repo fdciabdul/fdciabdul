@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 64**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 1**
 
-Hence, [O sorcerers of Egypt,] decide upon the scheme which you will pursue, and then come forward in one single body: for, indeed, he who prevails today shall prosper indeed!"
+SAY: "He is the One God:
  <!--END_SECTION:quran-->
 
   
