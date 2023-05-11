@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 10**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 8**
 
-All believers are but brethren. Hence, [when­ever they are at odds,] make peace between your two brethren, and remain conscious of God, so that you might be graced with His mercy.
+How [else could it be]? -since, if they [who are hostile to you] were to overcome you, they would not respect any tie [with you,] nor any obligation to protect [you]. They seek to please you with their mouths, the while their hearts remain averse [to you]; and most of them are iniquitous.
  <!--END_SECTION:quran-->
 
   
