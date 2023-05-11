@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 10**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 7**
 
-and the mountains will move with [an awesome] movement.
+Why dost thou not bring before us angels, if thou art a man of truth?
  <!--END_SECTION:quran-->
 
   
