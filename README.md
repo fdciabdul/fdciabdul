@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 9**
+**Surah 38: سُورَةُ صٓ (Saad) - 60**
 
-They will reply: "Yea, a warner did indeed come unto us, but we gave him the lie and said, 'Never has God sent down anything [by way of revelation]! You [self-styled warners] are but lost in a great delusion!"'
+[And] they [who had been seduced] will exclaim: “Nay, but it is you! No welcome to you! It is you who have prepared this for us: and how vile a state to abide in!”
  <!--END_SECTION:quran-->
 
   
