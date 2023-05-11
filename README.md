@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 129**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 16**
 
-Now were it not for a decree that has already gone forth from thy Sustainer, setting a term [for each sinner's repentance], it would inescapably follow [that all who sin must be doomed at once].
+But nay, [O men,] you prefer the life of this world,
  <!--END_SECTION:quran-->
 
   
