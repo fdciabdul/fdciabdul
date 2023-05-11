@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 11**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 17**
 
-but aloof from it will remain that most hapless wretch –
+and the night as it darkly falls,
  <!--END_SECTION:quran-->
 
   
