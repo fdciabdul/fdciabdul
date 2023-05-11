@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 6**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 14**
 
-And how many a prophet did We send to people of olden times!
+and to whose life I gave so wide a scope:
  <!--END_SECTION:quran-->
 
   
