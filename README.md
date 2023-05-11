@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 117**
 
-HAVE WE NOT opened up thy heart,
+Hence, he who invokes, side by side with God, any other deity [- a deity] for whose existence he has no evidence - shall but find his reckoning with his Sustainer: [and,] verily, such deniers of the truth will never attain to a happy state!
  <!--END_SECTION:quran-->
 
   
