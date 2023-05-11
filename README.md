@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 15**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
 
-when you take it up with your tongues, uttering with your mouths something of which you have no knowledge, and deeming it a light matter whereas in the sight of God it is an awful thing!
+HAVE WE NOT opened up thy heart,
  <!--END_SECTION:quran-->
 
   
