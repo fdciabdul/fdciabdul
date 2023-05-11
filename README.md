@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 67**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 104**
 
-[and,] impelled by your arrogance, you would talk senselessly far into the night.”
+Do they not know that it is God alone who can accept the repentance of His servants and is the [true] recipient of whatever is offered for His sake - and that God alone is an acceptor of repentance, a dispenser of grace?
  <!--END_SECTION:quran-->
 
   
