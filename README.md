@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 25**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 106**
 
-And [Abraham] said: “You have chosen to worship idols instead of God for no other reason than to have a bond of love in the life of this world, between yourselves [and your forebears]: but then, on Resurrection Day, you shall disown one another and curse one another - for the goal of you all will be the fire, and you will have none to succour you.
+when their brother Noah said unto them: “Will you not be conscious of God?
  <!--END_SECTION:quran-->
 
   
