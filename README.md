@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 20**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 8**
 
-but all the while God encompasses them [with His knowledge and might] without their being aware of it.
+then He causes him to be begotten out of the essence of a humble fluid;
  <!--END_SECTION:quran-->
 
   
