@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 9**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 18**
 
-on the Day when all secrets will be laid bare,
+Behold, [when Our messages are conveyed to one who is bent on denying the truth,] he reflects and meditates [as to how to disprove them] –
  <!--END_SECTION:quran-->
 
   
