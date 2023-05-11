@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 7**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
 
-Why dost thou not bring before us angels, if thou art a man of truth?
+"from the evil of aught that He has created,
  <!--END_SECTION:quran-->
 
   
