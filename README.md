@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
 
-Verily, he that hates thee has indeed been cut off [from all that is good]!
+Thus, He let loose upon them great swarms of flying creatures
  <!--END_SECTION:quran-->
 
   
