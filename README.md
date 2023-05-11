@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 65**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 2**
 
-But they cruelly slaughtered her. And thereupon [Salih] said: "[Only] for three days [more] shall you enjoy life in your homes: this is a judgment which will not be belied!"
+And so, when they are about to reach the end of their waiting-term, either retain them in a fair manner or part with them in a fair manner. And let two persons of [known] probity from among your own community witness [what you have decided]; and do yourselves bear true witness before God: thus are admonished all who believe in God and the Last Day. And unto everyone who is conscious of God, He [always] grants a way out [of unhappiness],
  <!--END_SECTION:quran-->
 
   
