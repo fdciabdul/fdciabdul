@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 49**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
 
-LET [all] this be a reminder [to those who believe in God] - for, verily, the most beauteous of all goals awaits the God-conscious:
+SAY: "I seek refuge with the Sustainer of the rising dawn,
  <!--END_SECTION:quran-->
 
   
