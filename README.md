@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 31**
 
-And what could make thee conceive what that crushing torment will be?
+And [know that] all of the divine writ with which We have inspired thee is the very truth, confirming the truth of whatever there still remains of earlier revelations for, behold, of [the needs of] His servants God is fully aware, all-seeing.
  <!--END_SECTION:quran-->
 
   
