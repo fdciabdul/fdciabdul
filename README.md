@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 17**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 6**
 
-[for,] had We willed to indulge in a pastime, We would indeed have produced it from within Ourselves - if such had been Our will at all!
+Guide us the straight way.
  <!--END_SECTION:quran-->
 
   
