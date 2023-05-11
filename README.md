@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 6**
 
-"and from the evil of the black darkness whenever it descends,
+In them, indeed, you have a good example for everyone who looks forward [with hope and awe] to God and the Last Day. And if any turns away, [let him know that] God is truly self-sufficient, the One to whom all praise is due."
  <!--END_SECTION:quran-->
 
   
