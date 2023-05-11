@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 65**
 
-hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
+But factions from among those [who came after Jesus] began to hold divergent views: woe, then, unto those who are bent on evildoing - [woe] for the suffering [that will befall them] on a grie­vous Day!
  <!--END_SECTION:quran-->
 
   
