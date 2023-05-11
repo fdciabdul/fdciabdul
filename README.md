@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 19**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 181**
 
-“Hence, be modest in thy bearing, and lower thy voice: for, behold, the ugliest of all voices is the [loud] voice of asses…”
+God has indeed heard the saying of those who said, "Behold, God is poor while we are rich!" We shall record what they have said, as well as their slaying of prophets against all right, and We shall say [unto them on Judgment Day]: "Taste suffering through fire
  <!--END_SECTION:quran-->
 
   
