@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 8**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 32**
 
-and how it is imbued with moral failings as well as with consciousness of God!
+and whenever they see those [who believe,] they say, "Behold, these [people] have indeed gone astray!"
  <!--END_SECTION:quran-->
 
   
