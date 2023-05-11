@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 8**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 42**
 
-and when the girl-child that was buried alive is made to ask
+Hence, leave them to indulge in idle talk and play [with words] until they face that [Judgment] Day of theirs which they have been promised –
  <!--END_SECTION:quran-->
 
   
