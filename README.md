@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 1**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 17**
 
-AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;
+[for,] had We willed to indulge in a pastime, We would indeed have produced it from within Ourselves - if such had been Our will at all!
  <!--END_SECTION:quran-->
 
   
