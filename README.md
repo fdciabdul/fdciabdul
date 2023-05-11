@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 8**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 6**
 
-and unto thy Sustainer turn with love.
+Nay, verily, man becomes grossly overweening
  <!--END_SECTION:quran-->
 
   
