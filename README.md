@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 8**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 10**
 
-How [else could it be]? -since, if they [who are hostile to you] were to overcome you, they would not respect any tie [with you,] nor any obligation to protect [you]. They seek to please you with their mouths, the while their hearts remain averse [to you]; and most of them are iniquitous.
+and the mountains will move with [an awesome] movement.
  <!--END_SECTION:quran-->
 
   
