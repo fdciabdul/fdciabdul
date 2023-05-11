@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 60**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 85**
 
-[And] they [who had been seduced] will exclaim: “Nay, but it is you! No welcome to you! It is you who have prepared this for us: and how vile a state to abide in!”
+On the Day when We shall gather the Godconscious unto [Us,] the Most Gracious, as honoured guests,
  <!--END_SECTION:quran-->
 
   
