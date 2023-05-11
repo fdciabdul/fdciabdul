@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 8**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 11**
 
-then He causes him to be begotten out of the essence of a humble fluid;
+This, because God is the Protector of all who have attained to faith, whereas they who deny the truth have no protector.
  <!--END_SECTION:quran-->
 
   
