@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 5**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 4**
 
-excepting [from this interdict] only those who afterwards repent and made amends: for, behold, God is much forgiving, a dispenser of grace.
+"and from the evil of all human beings bent on occult endeavours,
  <!--END_SECTION:quran-->
 
   
