@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 14**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 78**
 
-Never will they fight you, [even] in unison, otherwise than from within fortified strongholds or from behind walls. Severe is their warlike discord among themselves: thou wouldst think that they are united, whereas [in fact] their hearts are at odds [with one another]: this, because they are people who will not use their reason.
+And Pharaoh pursued them with his hosts: and they were overwhelmed by the sea which was destined to overwhelm them.
  <!--END_SECTION:quran-->
 
   
