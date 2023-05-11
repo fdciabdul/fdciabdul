@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 106**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
 
-when their brother Noah said unto them: “Will you not be conscious of God?
+and, withal, deny all assistance [to their fellow-men]!
  <!--END_SECTION:quran-->
 
   
