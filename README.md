@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 12**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 2**
 
-[And they will be told:] “This [has befallen you] because, whenever the One God was invoked, you denied this truth; whereas, when divinity was ascribed to aught beside Him, you believed [in it]! But all judgment rests with God, the Exalted, the Great!”
+And what could make thee conceive what it is, that Night of Destiny?
  <!--END_SECTION:quran-->
 
   
