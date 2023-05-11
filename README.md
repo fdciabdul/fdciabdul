@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 4**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 1**
 
-within a few years: [for] with God rests all power of decision, first and last. And on that day will the believers [too, have cause to] rejoice
+SAY: "He is the One God:
  <!--END_SECTION:quran-->
 
   
