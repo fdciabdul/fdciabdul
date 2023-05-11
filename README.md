@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 128**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 1**
 
-[And] Moses said unto his people: "Turn unto God for aid, and have patience in adversity. Verily, all the earth belongs to God: He gives it as a heritage - to such as He wills of His servants; and the future belongs to the God-conscious!"
+EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,
  <!--END_SECTION:quran-->
 
   
