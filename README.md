@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 6**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 18**
 
-Guide us the straight way.
+Hence, warn them of that Day which draws ever nearer, when the hearts will chokingly come up to the throats: no loving friend will the evildoers have, nor any intercessor who would be heeded:
  <!--END_SECTION:quran-->
 
   
