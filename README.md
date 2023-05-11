@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 31**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 92**
 
-And [know that] all of the divine writ with which We have inspired thee is the very truth, confirming the truth of whatever there still remains of earlier revelations for, behold, of [the needs of] His servants God is fully aware, all-seeing.
+although it is inconceivable that the Most Gracious should take unto Himself a son!
  <!--END_SECTION:quran-->
 
   
