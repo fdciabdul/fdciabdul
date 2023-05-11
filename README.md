@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 4**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
 
-"and from the evil of all human beings bent on occult endeavours,
+Verily, he that hates thee has indeed been cut off [from all that is good]!
  <!--END_SECTION:quran-->
 
   
