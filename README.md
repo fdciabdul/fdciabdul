@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 7**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 100**
 
-He it is who has bestowed upon thee from on high this divine writ, containing messages that are clear in and by themselves - and these are the essence of the divine writ - as well as others that are allegorical. Now those whose hearts are given to swerving from the truth go after that part of the divine writ which has been expressed in allegory, seeking out [what is bound to create] confusion, and seeking [to arrive at] its final meaning [in an arbitrary manner]; but none save God knows its final meaning. Hence, those who are deeply rooted in knowledge say: "We believe in it; the whole [of the divine writ] is from our Sustainer - albeit none takes this to heart save those who are endowed with insight.
+And he raised his parents to the highest place of honour; and they [all] fell down before Him, prostrating themselves in adoration. Thereupon [Joseph] said: "O my father! This is the real meaning of my dream of long ago, which my Sustainer has made come true. And He was indeed good to me when He freed me from the prison, and [when] He brought you [all unto me] from the desert after Satan had sown discord between me and my brothers. Verily, my Sustainer is unfathomable in [the way He brings about] whatever He wills: verily, He alone is all-knowing, truly wise!
  <!--END_SECTION:quran-->
 
   
