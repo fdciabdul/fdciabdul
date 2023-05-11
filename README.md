@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 18**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 3**
 
-Behold, [when Our messages are conveyed to one who is bent on denying the truth,] he reflects and meditates [as to how to disprove them] –
+It is the star that pierces through [life's] darkness:
  <!--END_SECTION:quran-->
 
   
