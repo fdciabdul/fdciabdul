@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 1**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 8**
 
-SAY: "He is the One God:
+and when the girl-child that was buried alive is made to ask
  <!--END_SECTION:quran-->
 
   
