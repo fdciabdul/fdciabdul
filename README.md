@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 11**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 6**
 
-This, because God is the Protector of all who have attained to faith, whereas they who deny the truth have no protector.
+And how many a prophet did We send to people of olden times!
  <!--END_SECTION:quran-->
 
   
