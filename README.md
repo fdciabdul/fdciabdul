@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 3**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 5**
 
-The Night of Destiny is better than a thousand months:
+excepting [from this interdict] only those who afterwards repent and made amends: for, behold, God is much forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
