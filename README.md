@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 16**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 3**
 
-But nay, [O men,] you prefer the life of this world,
+The Night of Destiny is better than a thousand months:
  <!--END_SECTION:quran-->
 
   
