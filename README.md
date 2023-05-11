@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 104**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 73**
 
-Means of insight have now come unto you from your Sustainer [through this divine writ]. Whoever, therefore, chooses to see, does so for his own good; and whoever chooses to remain blind, does so to his own hurt. And [say unto the blind of heart]: "I am not your keeper."
+For it is out of His grace that He has made for you the night and the day, so that you might rest therein as well as seek to obtain [what you need] of His bounty: and [He gave you all this] so that you might have cause to be grateful.
  <!--END_SECTION:quran-->
 
   
