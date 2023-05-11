@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 85**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 7**
 
-On the Day when We shall gather the Godconscious unto [Us,] the Most Gracious, as honoured guests,
+And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.
  <!--END_SECTION:quran-->
 
   
