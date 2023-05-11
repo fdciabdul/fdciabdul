@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 73**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 31**
 
-For it is out of His grace that He has made for you the night and the day, so that you might rest therein as well as seek to obtain [what you need] of His bounty: and [He gave you all this] so that you might have cause to be grateful.
+They have taken their rabbis and their monks-as well as the Christ, son of Mary-for their lords beside God, although they had been bidden to worship none but the One God, save whom there is no deity: the One who is utterly remote, in His limitless glory, from anything to which they may ascribe a share in His divinity!
  <!--END_SECTION:quran-->
 
   
