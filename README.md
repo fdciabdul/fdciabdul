@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 96**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 82**
 
-VERILY, those who attain to faith and do righteous deeds will the Most Gracious endow with love:
+Let them, then, laugh a little - for they will weep a lot in return for what they have earned.
  <!--END_SECTION:quran-->
 
   
