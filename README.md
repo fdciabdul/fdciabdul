@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 78**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 7**
 
-And Pharaoh pursued them with his hosts: and they were overwhelmed by the sea which was destined to overwhelm them.
+and to this, behold, he [himself] bears witness indeed:
  <!--END_SECTION:quran-->
 
   
