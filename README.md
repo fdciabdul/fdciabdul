@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 52**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 10**
 
-and will cry, “We do [now] believe in it!” But how can they [hope to] attain [to salvation] from so far away,
+and truly lost is he who buries it [in darkness].
  <!--END_SECTION:quran-->
 
   
