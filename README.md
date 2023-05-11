@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 7**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 19**
 
-and, withal, deny all assistance [to their fellow-men]!
+“Hence, be modest in thy bearing, and lower thy voice: for, behold, the ugliest of all voices is the [loud] voice of asses…”
  <!--END_SECTION:quran-->
 
   
