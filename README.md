@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 117**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 64**
 
-Hence, he who invokes, side by side with God, any other deity [- a deity] for whose existence he has no evidence - shall but find his reckoning with his Sustainer: [and,] verily, such deniers of the truth will never attain to a happy state!
+Hence, [O sorcerers of Egypt,] decide upon the scheme which you will pursue, and then come forward in one single body: for, indeed, he who prevails today shall prosper indeed!"
  <!--END_SECTION:quran-->
 
   
