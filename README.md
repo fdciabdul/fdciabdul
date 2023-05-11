@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 65**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 31**
 
-But factions from among those [who came after Jesus] began to hold divergent views: woe, then, unto those who are bent on evildoing - [woe] for the suffering [that will befall them] on a grie­vous Day!
+and has caused its waters to come out of it, and its pastures,
  <!--END_SECTION:quran-->
 
   
