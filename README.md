@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 4**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 6**
 
-[for] no human being has ever been left unguarded.
+O MAN! What is it that lures thee away from thy bountiful Sustainer,
  <!--END_SECTION:quran-->
 
   
