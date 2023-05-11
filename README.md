@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 3**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 129**
 
-"the God of men,
+Now were it not for a decree that has already gone forth from thy Sustainer, setting a term [for each sinner's repentance], it would inescapably follow [that all who sin must be doomed at once].
  <!--END_SECTION:quran-->
 
   
