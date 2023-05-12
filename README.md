@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 109**
 
-Verily, man is bound to lose himself
+Out of their selfish envy, many among the followers of earlier revelation would like to bring you back to denying the truth after you have attained to faith - [even] after the truth has become clear unto them. None the less, forgive and forbear, until God shall make manifest His will: behold, God has the power to will anything.
  <!--END_SECTION:quran-->
 
   
