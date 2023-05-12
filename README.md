@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 3**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 2**
 
-Does man think that We cannot [resurrect him and] bring his bones together again?
+This fellow-man of yours has not gone astray, nor is he deluded,
  <!--END_SECTION:quran-->
 
   
