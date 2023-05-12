@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 89**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 4**
 
-Yet bear thou with them, and say, “Peace [be upon you]!” - for in time they will come to know [the truth].
+Verily, [O men,] you aim at most divergent ends!
  <!--END_SECTION:quran-->
 
   
