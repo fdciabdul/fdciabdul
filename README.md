@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 82**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 8**
 
-whereas by His words God proves the truth to be true, however hateful this may be to those who are lost in sin!"
+and [thus] shall We make easy for thee the path towards [ultimate] ease.
  <!--END_SECTION:quran-->
 
   
