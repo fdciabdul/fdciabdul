@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 14**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 59**
 
-for, verily, thy Sustainer is ever on the watch!
+and who do not ascribe divinity to aught but their Sustainer,
  <!--END_SECTION:quran-->
 
   
