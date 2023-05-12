@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 17**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 3**
 
-although the life to come is better and more enduring.
+The Most Gracious, the Dispenser of Grace,
  <!--END_SECTION:quran-->
 
   
