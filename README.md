@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 16**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 4**
 
-and Pharaoh rebelled against the apostle, whereupon We took him to task with a crushing grip.
+for, behold, thou keepest indeed to a sublime way of life;
  <!--END_SECTION:quran-->
 
   
