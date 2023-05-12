@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 4**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 66**
 
-Woe, then, unto those praying ones
+On the Day when their faces shall be tossed about in the fire, they will exclaim, “Oh, would that we had paid heed unto God, and paid heed unto the Apostle!”
  <!--END_SECTION:quran-->
 
   
