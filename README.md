@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 3**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 10**
 
-The Most Gracious, the Dispenser of Grace,
+in a garden sublime,
  <!--END_SECTION:quran-->
 
   
