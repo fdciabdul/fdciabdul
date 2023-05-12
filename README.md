@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 7**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 5**
 
-which will rise over the [guilty] hearts:
+for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
