@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 29**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 6**
 
-Thereupon his wife approached [the guests] with a loud cry, and struck her face [in astonishment] and exclaimed: “A barren old woman [like me]!”
+Say: "O you who follow the Jewish faith! If you claim that you [alone] are close to God, to the exclusion of all other people, then you should be longing for death - if what you say is true!"
  <!--END_SECTION:quran-->
 
   
