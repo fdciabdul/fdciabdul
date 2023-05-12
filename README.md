@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
 
-"and from the evil of the black darkness whenever it descends,
+together with his wife, that carrier of evil tales,
  <!--END_SECTION:quran-->
 
   
