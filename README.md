@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 12**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 11**
 
-and caused the earth to burst forth with springs, so that the waters met for a purpose pre-ordained:
+ART THOU NOT aware of how those who would always dissemble [their real feelings] speak to their truth-denying brethren from among the followers of earlier revelation: “If you are driven away, we shall most certainly go forth with you, and shall never pay heed to anyone against you; and if war is waged against you, we shall most certainly come to your succour.” But God bears witness that they are most flagrantly lying:
  <!--END_SECTION:quran-->
 
   
