@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 12**
 
-What will his wealth avail him, and all that he has gained?
+O YOU who have attained to faith! Whenever you [intend to] consult the Apostle, offer up something in charity on the occasion of your consultation: this will be for your own good, and more conducive to your [inner] purity. Yet if you are unable to do so, [know that,] verily, God is much-forgiving, a dispen­ser of grace.
  <!--END_SECTION:quran-->
 
   
