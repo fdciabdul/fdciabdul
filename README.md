@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 20**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 1**
 
-And at the earth, how it is spread out?
+Alif. Lam. Ra. THESE ARE MESSAGES of revelation -of a discourse clear in itself and clearly showing the truth.
  <!--END_SECTION:quran-->
 
   
