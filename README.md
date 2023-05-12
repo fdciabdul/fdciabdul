@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 2**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 86**
 
-and the night when it grows still and dark.
+Now [as for thyself, O believer,] thou couldst never foresee that this divine writ would [one day] be offered to thee: but [it did come to thee] by thy Sustainer’s grace. Hence, never uphold those who deny the truth [of divine guidance],
  <!--END_SECTION:quran-->
 
   
