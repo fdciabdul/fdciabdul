@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 18**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 1**
 
-Behold, [when Our messages are conveyed to one who is bent on denying the truth,] he reflects and meditates [as to how to disprove them] –
+CONSIDER the winds that scatter the dust far and wide,
  <!--END_SECTION:quran-->
 
   
