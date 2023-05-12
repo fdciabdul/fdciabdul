@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 100**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 10**
 
-Say: "There is no comparison between the bad things and the good things, even though very many of the bad things may please thee greatly. Be, then, conscious of God, O you who are endowed with insight, so that you might attain to a happy state!"
+For, [many are] they [who] say, “What! After we have been [dead and] lost in the earth, shall we indeed be [restored to life] in a new act of crea­tion?” Nay, but [by saying this] they deny the truth that they are destined to meet their Sustainer!
  <!--END_SECTION:quran-->
 
   
