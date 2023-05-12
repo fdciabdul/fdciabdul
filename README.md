@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 13**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 20**
 
-and when they are flung, linked [all] together, into a tight space within, they will pray for extinction there and then!
+And at the earth, how it is spread out?
  <!--END_SECTION:quran-->
 
   
