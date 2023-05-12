@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 5**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 18**
 
-given to drink from a boiling spring.
+Are, then, they [whose hearts are sealed] wait­ing for the Last Hour - [waiting] that it come upon them of a sudden? But it has already been foretold! And what will their remembrance [of their past sins] avail them, once it has come upon them?
  <!--END_SECTION:quran-->
 
   
