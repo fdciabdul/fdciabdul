@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 4**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 100**
 
-Verily, [O men,] you aim at most divergent ends!
+Say: "There is no comparison between the bad things and the good things, even though very many of the bad things may please thee greatly. Be, then, conscious of God, O you who are endowed with insight, so that you might attain to a happy state!"
  <!--END_SECTION:quran-->
 
   
