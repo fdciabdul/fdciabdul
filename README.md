@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 18**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 13**
 
-Are, then, they [whose hearts are sealed] wait­ing for the Last Hour - [waiting] that it come upon them of a sudden? But it has already been foretold! And what will their remembrance [of their past sins] avail them, once it has come upon them?
+[and] there will be thrones [of happiness] raised high,
  <!--END_SECTION:quran-->
 
   
