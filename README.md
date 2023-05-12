@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 5**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 2**
 
-[And after a time, Noah] said: "O my Sustainer! Verily, I have been calling unto my people night and day
+Did He not utterly confound their artful planning?
  <!--END_SECTION:quran-->
 
   
