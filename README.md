@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 50**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 26**
 
-AND IF thou couldst but see [how it will be] when He causes those who are bent on denying the truth to die: the angels will strike their faces: and their backs, and [will say]: "Taste suffering through fire
+that you may worship none but God-for, verily, I fear lest suffering befall you on a grievous Day!"
  <!--END_SECTION:quran-->
 
   
