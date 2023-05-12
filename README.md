@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 81**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 21**
 
-Would you, now, look down with disdain on a tiding like this,
+and when such [people] are told to follow that which God has bestowed from on high, they answer, “Nay, we shall follow that which we found our forefathers believing in and doing!” Why - [would you follow your forefathers] even if Satan had invited them unto the suffering of the blazing flame?
  <!--END_SECTION:quran-->
 
   
