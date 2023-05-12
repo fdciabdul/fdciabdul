@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 125**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 49**
 
-Behold, I am an apostle [sent by Him] to you, [and therefore] worthy of your trust:
+And in everything have We created oppos­ites, so that you might bear in mind [that God alone is One].
  <!--END_SECTION:quran-->
 
   
