@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 5**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
 
-for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.
+SAY: "I seek refuge with the Sustainer of men,
  <!--END_SECTION:quran-->
 
   
