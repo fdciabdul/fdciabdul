@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 57**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 100**
 
-And who could be more wicked than he to whom his Sustainer's messages are conveyed and who thereupon turns away from them, forgetting all [the evil] that his hands may have wrought? Behold, over their hearts have We laid veils which prevent them from grasping the truth, and into their ears, deafness; and though thou call them onto the right path, they will never allow themselves to be guided.
+And yet, some [people] have come to attribute to all manner of invisible beings a place side by side with God - although it is He who has created them [all]; and in their ignorance they have invented for Him sons and daughters! Limitless is He is His glory, and sublimely exalted above anything that men may devise by way of definition:
  <!--END_SECTION:quran-->
 
   
