@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 17**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 29**
 
-If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,
+Say: “On the Day of the Final Decision, their [newly-found] faith will be of no use to those who [in their lifetime] were bent on denying the truth, nor will they be granted respite!” –
  <!--END_SECTION:quran-->
 
   
