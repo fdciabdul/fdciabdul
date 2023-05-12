@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 89**
 
-"and from the evil of the black darkness whenever it descends,
+Yet bear thou with them, and say, “Peace [be upon you]!” - for in time they will come to know [the truth].
  <!--END_SECTION:quran-->
 
   
