@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 59**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 2**
 
-and who do not ascribe divinity to aught but their Sustainer,
+those who, when they are to receive their due from [other] people, demand that it be given in full –
  <!--END_SECTION:quran-->
 
   
