@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 16**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 7**
 
-who gives the lie to the truth and turns away [from it].
+which will rise over the [guilty] hearts:
  <!--END_SECTION:quran-->
 
   
