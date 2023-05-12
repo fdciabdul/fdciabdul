@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 32**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 14**
 
-but, on the contrary, he gave the lie to the truth and turned away [from it],
+How could it be that He who has created [all] should not know [all]? Yea, He alone is unfathomable [in His wisdom], aware!
  <!--END_SECTION:quran-->
 
   
