@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 12**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 81**
 
-and the earth, bursting forth with plants!
+Would you, now, look down with disdain on a tiding like this,
  <!--END_SECTION:quran-->
 
   
