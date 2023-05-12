@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 6**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 3**
 
-the Day when all men shall stand before the Sustainer of all the worlds?
+Does man think that We cannot [resurrect him and] bring his bones together again?
  <!--END_SECTION:quran-->
 
   
