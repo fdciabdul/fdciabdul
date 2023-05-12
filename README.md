@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 14**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 82**
 
-How could it be that He who has created [all] should not know [all]? Yea, He alone is unfathomable [in His wisdom], aware!
+whereas by His words God proves the truth to be true, however hateful this may be to those who are lost in sin!"
  <!--END_SECTION:quran-->
 
   
