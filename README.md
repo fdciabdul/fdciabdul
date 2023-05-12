@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 33**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 98**
 
-And [on that Day,] the evil of their doings will become obvious to them, and they will be over­whelmed by the very thing which they were wont to deride.
+But whereas they sought to do evil unto him, We [frustrated their designs, and thus] brought them low?
  <!--END_SECTION:quran-->
 
   
