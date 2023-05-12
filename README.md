@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 69**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 6**
 
-But as for those who strive hard in Our cause -We shall most certainly guide them onto paths that lead unto Us: for, behold, God is indeed with the doers of good.
+And then, he whose weight [of good deeds] is heavy in the balance
  <!--END_SECTION:quran-->
 
   
