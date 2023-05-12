@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 152**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 12**
 
-AND, INDEED, God made good His promise unto you when, by His leave, you were about to destroy your foes - until the moment when you lost heart and acted contrary to the [Prophet's] command, and disobeyed after He had brought you within view of that [victory] for which you were longing. There were among you such as cared for this world [alone], just as there were among you such as cared for the life to come: whereupon, in order that He might put you to a test, He prevented you from defeating your foes. But now He has effaced your sin: for God is limitless in His bounty unto the believers.
+[If you do so,] He will forgive you your sins, and [in the life to come] will admit you into gardens through which running waters flow, and into goodly mansions in [those] gardens of perpetual bliss: that [will be] the triumph supreme!
  <!--END_SECTION:quran-->
 
   
