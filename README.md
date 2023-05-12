@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 9**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 2**
 
-HAST THOU ever considered him who tries to prevent
+And what could make thee conceive what it is that comes in the night?
  <!--END_SECTION:quran-->
 
   
