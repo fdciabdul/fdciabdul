@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 4**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 17**
 
-for, indeed, the life to come will be better for thee than this earlier part [of thy life]!
+although the life to come is better and more enduring.
  <!--END_SECTION:quran-->
 
   
