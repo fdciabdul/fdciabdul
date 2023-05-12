@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 2**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 9**
 
-"God the Eternal, the Uncaused Cause of All Being.
+Have they, then, never journeyed about the earth and beheld what happened in the end to those [deniers of the truth] who lived before their time? Greater were they in power than they are; and they left a stronger impact on the earth, and built it up even better than these [are doing]; and to them [too] came their apostles with all evidence of the truth: and so, [when they rejected the truth and thereupon perished,] it was not God who wronged them, but it was they who had wronged themselves.
  <!--END_SECTION:quran-->
 
   
