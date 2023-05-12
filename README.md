@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 15**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 21**
 
-[the fire] which none shall have to endure but that most hapless wretch
+and such, indeed, shall in time be well-pleased.
  <!--END_SECTION:quran-->
 
   
