@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 12**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 6**
 
-IT IS GOD who has made the sea subservient [to His laws, so that it be of use] to you so that ships might sail through it at His behest, and that you might seek to obtain [what you need] of His bounty, and that you might have cause to be grateful.
+the Day when all men shall stand before the Sustainer of all the worlds?
  <!--END_SECTION:quran-->
 
   
