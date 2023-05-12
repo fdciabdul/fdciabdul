@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 51**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 9**
 
-Which, then, of your Sustainer’s powers can you disavow?
+HAST THOU ever considered him who tries to prevent
  <!--END_SECTION:quran-->
 
   
