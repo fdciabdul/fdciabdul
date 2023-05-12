@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 88**
 
-"and from the evil of the envious when he envies."
+Such is God's guidance: He guides therewith whomever He wills of His servants. And had they ascribed divinity to aught beside Him-in vain, indeed, would have been all [the good] that they ever did:
  <!--END_SECTION:quran-->
 
   
