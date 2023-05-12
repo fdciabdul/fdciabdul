@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 1**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-Alif. Lam. Ra. THESE ARE MESSAGES of revelation -of a discourse clear in itself and clearly showing the truth.
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
