@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 100**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 51**
 
-And yet, some [people] have come to attribute to all manner of invisible beings a place side by side with God - although it is He who has created them [all]; and in their ignorance they have invented for Him sons and daughters! Limitless is He is His glory, and sublimely exalted above anything that men may devise by way of definition:
+Which, then, of your Sustainer’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
