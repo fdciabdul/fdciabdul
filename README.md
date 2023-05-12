@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 11**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 92**
 
-ART THOU NOT aware of how those who would always dissemble [their real feelings] speak to their truth-denying brethren from among the followers of earlier revelation: “If you are driven away, we shall most certainly go forth with you, and shall never pay heed to anyone against you; and if war is waged against you, we shall most certainly come to your succour.” But God bears witness that they are most flagrantly lying:
+and to convey this Qur’an [to the world].” Whoever, therefore, chooses to follow the right path, follows it but for his own good; and if any wills to go astray, say [unto him]: “I am only a warner.
  <!--END_SECTION:quran-->
 
   
