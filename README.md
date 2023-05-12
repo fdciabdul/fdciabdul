@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 8**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 90**
 
-and [thus] shall We make easy for thee the path towards [ultimate] ease.
+And, indeed, even before [the return of Moses] had Aaron said unto them: "O my people! You are but being tempted to evil by this [idol] -for, behold, your [only] Sustainer is the Most Gracious! Follow me, then, and obey my bidding!"
  <!--END_SECTION:quran-->
 
   
