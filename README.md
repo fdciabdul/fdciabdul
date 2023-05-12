@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
 
-SAY: "I seek refuge with the Sustainer of men,
+And, behold, with every hardship comes ease:
  <!--END_SECTION:quran-->
 
   
