@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 98**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 29**
 
-But whereas they sought to do evil unto him, We [frustrated their designs, and thus] brought them low?
+Thereupon his wife approached [the guests] with a loud cry, and struck her face [in astonishment] and exclaimed: “A barren old woman [like me]!”
  <!--END_SECTION:quran-->
 
   
