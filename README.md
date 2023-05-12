@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 86**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 12**
 
-Now [as for thyself, O believer,] thou couldst never foresee that this divine writ would [one day] be offered to thee: but [it did come to thee] by thy Sustainer’s grace. Hence, never uphold those who deny the truth [of divine guidance],
+and the earth, bursting forth with plants!
  <!--END_SECTION:quran-->
 
   
