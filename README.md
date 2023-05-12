@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 5**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 16**
 
-for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.
+who gives the lie to the truth and turns away [from it].
  <!--END_SECTION:quran-->
 
   
