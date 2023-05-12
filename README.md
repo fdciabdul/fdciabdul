@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 6**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 54**
 
-Say: "O you who follow the Jewish faith! If you claim that you [alone] are close to God, to the exclusion of all other people, then you should be longing for death - if what you say is true!"
+O you who have attained to faith! If you ever abandon your faith," God will in time bring forth [in your stead] people whom He loves and who love Him - humble towards the believers, proud towards all who deny the truth: [people] who strive hard in God's cause, and do not fear to be censured by anyone who might censure them: such is God's favour, which He grants unto whom He wills. And God is infinite, all-knowing.
  <!--END_SECTION:quran-->
 
   
