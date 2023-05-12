@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 50**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 2**
 
-but [as it was,] his Sustainer had elected him and placed him among the righteous.
+and the night when it grows still and dark.
  <!--END_SECTION:quran-->
 
   
