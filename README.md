@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 7**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-Behold, We have willed that all beauty on earth be a means by which We put men to a test, [showing] which of them are best in conduct;
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
