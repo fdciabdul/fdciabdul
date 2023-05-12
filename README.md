@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 26**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 17**
 
-[And God said:] “On the morrow they will come to know who the boastful liar is!
+Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.
  <!--END_SECTION:quran-->
 
   
