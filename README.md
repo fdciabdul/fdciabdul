@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 26**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
 
-and He brought down from their strongholds those of the followers of earlier reve­lation who had aided the aggressors, and cast terror into their hearts: some you slew, and some you made captive;
+"and from the evil of the black darkness whenever it descends,
  <!--END_SECTION:quran-->
 
   
