@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 21**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 50**
 
-and when such [people] are told to follow that which God has bestowed from on high, they answer, “Nay, we shall follow that which we found our forefathers believing in and doing!” Why - [would you follow your forefathers] even if Satan had invited them unto the suffering of the blazing flame?
+AND IF thou couldst but see [how it will be] when He causes those who are bent on denying the truth to die: the angels will strike their faces: and their backs, and [will say]: "Taste suffering through fire
  <!--END_SECTION:quran-->
 
   
