@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 6**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 18**
 
-And then, he whose weight [of good deeds] is heavy in the balance
+Behold, [when Our messages are conveyed to one who is bent on denying the truth,] he reflects and meditates [as to how to disprove them] –
  <!--END_SECTION:quran-->
 
   
