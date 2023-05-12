@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 13**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 44**
 
-[and] there will be thrones [of happiness] raised high,
+Now if We had willed this [divine writ] to be a discourse in a non-Arabic tongue, they [who now reject it] would surely have said, “Why is it that its messages have not been spelled out clearly? Why - [a message in] a non-Arabic tongue, and [its bearer] an Arab?” Say: “Unto all who have attained to faith, this [divine writ] is a guidance and a source of health; but as for those who will not believe - in their ears is deafness, and so it remains obscure to them: they are [like people who are] being called from too far away.
  <!--END_SECTION:quran-->
 
   
