@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 11**
 
-together with his wife, that carrier of evil tales,
+and never yet came an apostle to them without their deriding him.
  <!--END_SECTION:quran-->
 
   
