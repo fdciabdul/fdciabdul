@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 15**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 33**
 
-Was it, then, a delusion or is it that you failed to see [its truth]?
+And [on that Day,] the evil of their doings will become obvious to them, and they will be over­whelmed by the very thing which they were wont to deride.
  <!--END_SECTION:quran-->
 
   
