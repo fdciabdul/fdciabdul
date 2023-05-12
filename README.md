@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 54**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 27**
 
-O you who have attained to faith! If you ever abandon your faith," God will in time bring forth [in your stead] people whom He loves and who love Him - humble towards the believers, proud towards all who deny the truth: [people] who strive hard in God's cause, and do not fear to be censured by anyone who might censure them: such is God's favour, which He grants unto whom He wills. And God is infinite, all-knowing.
+they speak not until He has spoken unto them, and [whenever they act,] they act at His behest.
  <!--END_SECTION:quran-->
 
   
