@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 48**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 5**
 
-and obvious to them will have become the evil that they had wrought [in life]: and thus shall they be overwhelmed by the very truth which they were wont to deride.
+Thee alone do we worship; and unto Thee alone do we turn for aid.
  <!--END_SECTION:quran-->
 
   
