@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 6**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 145**
 
-"from all [temptation to evil by] invisible forces as well as men,"
+And We ordained for him in the tablets [of the Law] all manner of admonition, clearly spelling out everything. And [We said:] "Hold fast unto them with [all thy] strength, and bid thy people to hold fast to their most goodly rules." I will show you the way the iniquitous shall go.
  <!--END_SECTION:quran-->
 
   
