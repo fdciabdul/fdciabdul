@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 9**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 32**
 
-for what crime she had been slain,
+but, on the contrary, he gave the lie to the truth and turned away [from it],
  <!--END_SECTION:quran-->
 
   
