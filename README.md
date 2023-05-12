@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 88**
+**Surah 38: سُورَةُ صٓ (Saad) - 19**
 
-Such is God's guidance: He guides therewith whomever He wills of His servants. And had they ascribed divinity to aught beside Him-in vain, indeed, would have been all [the good] that they ever did:
+and [likewise] the birds in their assemblies: [together] they all Would turn again and again unto Him [who had created them].
  <!--END_SECTION:quran-->
 
   
