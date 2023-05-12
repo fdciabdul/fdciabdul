@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 66**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 5**
 
-On the Day when their faces shall be tossed about in the fire, they will exclaim, “Oh, would that we had paid heed unto God, and paid heed unto the Apostle!”
+for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
