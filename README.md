@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 6**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 8**
 
-And their leaders launch forth [thus]: “Go ahead, and hold steadfastly onto your deities: this, behold, is the only thing to do!
+Thus, [it will come to pass] when the stars are effaced,
  <!--END_SECTION:quran-->
 
   
