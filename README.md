@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 15**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 12**
 
-for none [of them] had any fear of what might befall them.
+IT IS GOD who has made the sea subservient [to His laws, so that it be of use] to you so that ships might sail through it at His behest, and that you might seek to obtain [what you need] of His bounty, and that you might have cause to be grateful.
  <!--END_SECTION:quran-->
 
   
