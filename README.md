@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 90**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 1**
 
-And, indeed, even before [the return of Moses] had Aaron said unto them: "O my people! You are but being tempted to evil by this [idol] -for, behold, your [only] Sustainer is the Most Gracious! Follow me, then, and obey my bidding!"
+DOOMED are the hands of him of the glowing countence: and doomed is he!
  <!--END_SECTION:quran-->
 
   
