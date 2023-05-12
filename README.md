@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 21**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
 
-and such, indeed, shall in time be well-pleased.
+"and from the evil of the envious when he envies."
  <!--END_SECTION:quran-->
 
   
