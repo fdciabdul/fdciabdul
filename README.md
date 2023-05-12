@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 44**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 8**
 
-Now if We had willed this [divine writ] to be a discourse in a non-Arabic tongue, they [who now reject it] would surely have said, “Why is it that its messages have not been spelled out clearly? Why - [a message in] a non-Arabic tongue, and [its bearer] an Arab?” Say: “Unto all who have attained to faith, this [divine writ] is a guidance and a source of health; but as for those who will not believe - in their ears is deafness, and so it remains obscure to them: they are [like people who are] being called from too far away.
+O you who have attained to faith! Turn unto God in sincere repentance: it may well be that your Sustainer will efface from you your bad deeds, and will admit you into gardens through which running waters flow, on a Day on which God will not shame the Prophet and those who share his faith: their light will spread rapidly before them, and on their right; [and] they will pray: "O our Sustainer! Cause this our light to shine for us forever, and forgive us our sins: for, verily, Thou hast the power to will anything!"
  <!--END_SECTION:quran-->
 
   
