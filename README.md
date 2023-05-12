@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 5**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 4**
 
-Thee alone do we worship; and unto Thee alone do we turn for aid.
+for, indeed, the life to come will be better for thee than this earlier part [of thy life]!
  <!--END_SECTION:quran-->
 
   
