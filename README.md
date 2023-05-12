@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 49**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 5**
 
-And in everything have We created oppos­ites, so that you might bear in mind [that God alone is One].
+[And after a time, Noah] said: "O my Sustainer! Verily, I have been calling unto my people night and day
  <!--END_SECTION:quran-->
 
   
