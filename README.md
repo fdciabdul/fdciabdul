@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 11**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 16**
 
-and never yet came an apostle to them without their deriding him.
+and Pharaoh rebelled against the apostle, whereupon We took him to task with a crushing grip.
  <!--END_SECTION:quran-->
 
   
