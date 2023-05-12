@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 13**
+**Surah 38: سُورَةُ صٓ (Saad) - 6**
 
-And how many a community of greater power than this thy community which has driven thee out, [O Muhammad,] have We destroyed, with none to succour them!
+And their leaders launch forth [thus]: “Go ahead, and hold steadfastly onto your deities: this, behold, is the only thing to do!
  <!--END_SECTION:quran-->
 
   
