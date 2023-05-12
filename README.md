@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 1**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 15**
 
-DOOMED are the hands of him of the glowing countence: and doomed is he!
+for none [of them] had any fear of what might befall them.
  <!--END_SECTION:quran-->
 
   
