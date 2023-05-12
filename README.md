@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 36**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 55**
 
-and the blazing fire [of hell] will be lad open before all who [are destined to] see it.
+and then he looks and sees that [companion of his] in the midst of the blazing fire,
  <!--END_SECTION:quran-->
 
   
