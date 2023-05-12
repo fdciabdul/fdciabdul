@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 18**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 164**
 
-the Day when the trumpet [of resurrection] is sounded and you all come forward in multitudes;
+Say: "Am I, then, to seek a sustainer other than God, when He is the Sustainer of all things?" And whatever [wrong] any human being commits rests upon himself alone; and no bearer of burdens shall be made to bear another's burden. And, in time, unto your Sustainer you all must return: and then He will make you. [truly] understand all that on which you were wont to differ.
  <!--END_SECTION:quran-->
 
   
