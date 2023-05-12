@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
 
-Verily, man is bound to lose himself
+"and from the evil of the black darkness whenever it descends,
  <!--END_SECTION:quran-->
 
   
