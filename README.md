@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 26**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 12**
 
-that you may worship none but God-for, verily, I fear lest suffering befall you on a grievous Day!"
+and caused the earth to burst forth with springs, so that the waters met for a purpose pre-ordained:
  <!--END_SECTION:quran-->
 
   
