@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 17**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 17**
 
-and the night as it darkly falls,
+If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,
  <!--END_SECTION:quran-->
 
   
