@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 19**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 50**
 
-and [likewise] the birds in their assemblies: [together] they all Would turn again and again unto Him [who had created them].
+but [as it was,] his Sustainer had elected him and placed him among the righteous.
  <!--END_SECTION:quran-->
 
   
