@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 10**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 26**
 
-For, [many are] they [who] say, “What! After we have been [dead and] lost in the earth, shall we indeed be [restored to life] in a new act of crea­tion?” Nay, but [by saying this] they deny the truth that they are destined to meet their Sustainer!
+[And God said:] “On the morrow they will come to know who the boastful liar is!
  <!--END_SECTION:quran-->
 
   
