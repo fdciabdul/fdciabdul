@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 1**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
 
-CONSIDER the winds that scatter the dust far and wide,
+What will his wealth avail him, and all that he has gained?
  <!--END_SECTION:quran-->
 
   
