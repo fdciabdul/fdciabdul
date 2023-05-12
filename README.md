@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 7**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 13**
 
-But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.
+and when they are flung, linked [all] together, into a tight space within, they will pray for extinction there and then!
  <!--END_SECTION:quran-->
 
   
