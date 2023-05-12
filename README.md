@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 8**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 15**
 
-Thus, [it will come to pass] when the stars are effaced,
+Was it, then, a delusion or is it that you failed to see [its truth]?
  <!--END_SECTION:quran-->
 
   
