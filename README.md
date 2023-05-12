@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 4**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 17**
 
-Now when thou seest them, their outward appearance may please thee; and when they speak, thou art inclined to lend ear to what they say. [But though they may seem as sure of themselves] as if they were timbers [firmly] propped up, they think that every shout is [directed] against them. They are the [real] enemies [of all faith], so beware of them. [They deserve the imprecation,] "May God destroy them!" How perverted are their minds!
+and the night as it darkly falls,
  <!--END_SECTION:quran-->
 
   
