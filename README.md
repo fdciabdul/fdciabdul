@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 15**
 
-And, behold, with every hardship comes ease:
+[the fire] which none shall have to endure but that most hapless wretch
  <!--END_SECTION:quran-->
 
   
