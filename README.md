@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 12**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 125**
 
-[If you do so,] He will forgive you your sins, and [in the life to come] will admit you into gardens through which running waters flow, and into goodly mansions in [those] gardens of perpetual bliss: that [will be] the triumph supreme!
+Behold, I am an apostle [sent by Him] to you, [and therefore] worthy of your trust:
  <!--END_SECTION:quran-->
 
   
