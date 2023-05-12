@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 2**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 1**
 
-And what could make thee conceive what it is that comes in the night?
+O PROPHET! Why dost thou, out of a desire to please [one or another of] thy wives, impose [on thyself] a prohibition of something that God has made lawful to thee? But God is much-forgiving, a dispenser of grace:
  <!--END_SECTION:quran-->
 
   
