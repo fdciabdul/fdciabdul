@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 135**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 3**
 
-But whenever We removed the plague from them, giving them time to make good their promise, lo, they would break their word.
+wherein there are ordinances of ever-true soundness and clarity.
  <!--END_SECTION:quran-->
 
   
