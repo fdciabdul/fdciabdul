@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 2**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 26**
 
-This fellow-man of yours has not gone astray, nor is he deluded,
+and He brought down from their strongholds those of the followers of earlier reve­lation who had aided the aggressors, and cast terror into their hearts: some you slew, and some you made captive;
  <!--END_SECTION:quran-->
 
   
