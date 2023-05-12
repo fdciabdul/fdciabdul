@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 3**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 7**
 
-[In the life to come] he shall have to endure a fire fiercely glowing;
+Behold, We have willed that all beauty on earth be a means by which We put men to a test, [showing] which of them are best in conduct;
  <!--END_SECTION:quran-->
 
   
