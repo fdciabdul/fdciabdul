@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 39**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 133**
 
-and if you [think that you] have a subterfuge left, try to outwit Me!"
+AND, BEHOLD, Lot was indeed one of Our mes­sage-bearers;
  <!--END_SECTION:quran-->
 
   
