@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 29**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 14**
 
-Say: “On the Day of the Final Decision, their [newly-found] faith will be of no use to those who [in their lifetime] were bent on denying the truth, nor will they be granted respite!” –
+for, behold, he never thought that he would have to return [to God].
  <!--END_SECTION:quran-->
 
   
