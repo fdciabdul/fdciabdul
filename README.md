@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 27**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 9**
 
-they speak not until He has spoken unto them, and [whenever they act,] they act at His behest.
+for what crime she had been slain,
  <!--END_SECTION:quran-->
 
   
