@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 2**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 39**
 
-Did He not utterly confound their artful planning?
+and if you [think that you] have a subterfuge left, try to outwit Me!"
  <!--END_SECTION:quran-->
 
   
