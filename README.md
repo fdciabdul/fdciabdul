@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 8**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 52**
 
-and he who shall have done an atom's weight of evil, shall behold it.
+[They were truly guilty] because all [the evil] that they ever did had been [revealed to them as such] in the [ancient] books of [divine] wisdom;
  <!--END_SECTION:quran-->
 
   
