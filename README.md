@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 95**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 25**
 
-O you who have attained to faith! Kill no game while you are in the state of pilgrimage. And whoever of you kills it intentionally, [shall make] amends in cattle equivalent to what he has killed - with two persons of probity giving their judgment thereon- to be brought as an offering to the Ka`bah; or else he may atone for his sin by feeding the needy, or by the equivalent thereof in fasting: [this,] in order that. he taste the full gravity of his deed, [while] God shall have effaced the past. But whoever does it again, God will inflict His retribution on him: for God is almighty, an avenger of evil.
+This is nothing but the word of mortal man!"
  <!--END_SECTION:quran-->
 
   
