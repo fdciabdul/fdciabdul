@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 29**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 24**
 
-but We have placed on record every single thing [of what they did].
+Woe, on that Day unto those who give the lie to the truth!
  <!--END_SECTION:quran-->
 
   
