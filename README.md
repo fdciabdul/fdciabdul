@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 69**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 2**
 
-[But] We said: O fire! Be thou cool, and [a source of] inner peace for Abraham!”
+Did He not utterly confound their artful planning?
  <!--END_SECTION:quran-->
 
   
