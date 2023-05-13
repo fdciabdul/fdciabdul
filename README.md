@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 45**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
 
-AND CALL to mind Our servants Abraham and Isaac and Jacob, [all of them] endowed with inner strength and vision:
+"and there is nothing that could be compared with Him.
  <!--END_SECTION:quran-->
 
   
