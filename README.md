@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 8**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 1**
 
-[Thus, part of such war-gains shall be given] to the poor among those who have forsaken the domain of evil: those who have been driven from their homelands and their possessions, seeking favour with God and [His] goodly acceptance, and who aid [the cause of] God and His Apostle: it is they, they who are true to their word!
+O THOU human being!
  <!--END_SECTION:quran-->
 
   
