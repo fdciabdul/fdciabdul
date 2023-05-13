@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 2**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 65**
 
-and the moon as it reflects the sun!
+for you are well aware of those from among you who profaned the Sabbath, whereupon We said unto them, "Be as apes despicable!"
  <!--END_SECTION:quran-->
 
   
