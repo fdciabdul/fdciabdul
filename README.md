@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 22**
 
-And, behold, with every hardship comes ease:
+And as he turned his face towards Madyan, he said [to himself]: “It may well be that my Sustainer will [thus] guide me onto the right path”
  <!--END_SECTION:quran-->
 
   
