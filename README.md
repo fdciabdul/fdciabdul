@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 19**
 
-And what could make thee conceive what that crushing torment will be?
+and then, behold, it will be for Us to make its meaning clear.
  <!--END_SECTION:quran-->
 
   
