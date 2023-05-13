@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 1**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 17**
 
-O YOU who have attained to faith! Do not put yourselves forward in the presence of [what] God and His Apostle [may have ordained], but remain conscious of God: for, verily, God is all-hearing, all-knowing!
+and be told: "This is the [very thing] to which you were wont to give the lie!"
  <!--END_SECTION:quran-->
 
   
