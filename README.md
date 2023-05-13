@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 48**
 
-Let them, therefore, worship the Sustainer of this Temple;
+And the earth have We spread out wide - and how well have We ordered it!
  <!--END_SECTION:quran-->
 
   
