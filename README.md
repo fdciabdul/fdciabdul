@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 38**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 32**
 
-[On the Day of Judgment,] every human being will be held in pledge for whatever [evil] he has wrought –
+but, on the contrary, he gave the lie to the truth and turned away [from it],
  <!--END_SECTION:quran-->
 
   
