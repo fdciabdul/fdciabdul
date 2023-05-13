@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 6**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 20**
 
-Not one of the communities that We destroyed in bygone times would ever believe [their prophets]: will these, then, [be more willing to] believe?
+Now those beings that some people invoke beside God cannot create anything, since they themselves are but created:
  <!--END_SECTION:quran-->
 
   
