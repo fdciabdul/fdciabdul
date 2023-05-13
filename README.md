@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 30**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-some [of you] He will have graced with His guidance, whereas, for some a straying from the right path will have become unavoidable: for, behold, they will have taken [their own] evil impulses for their masters in preference to God, thinking all the while that they have found the right path!"
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
