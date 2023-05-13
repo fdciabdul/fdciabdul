@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 2**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 7**
 
-Did He not utterly confound their artful planning?
+But never yet came a prophet to them without their deriding him –
  <!--END_SECTION:quran-->
 
   
