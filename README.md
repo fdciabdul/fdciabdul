@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 69**
 
-And what could make thee conceive what that crushing torment will be?
+[But] We said: O fire! Be thou cool, and [a source of] inner peace for Abraham!”
  <!--END_SECTION:quran-->
 
   
