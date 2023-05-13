@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 62**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 24**
 
-Thus it is, because God alone is the Ultimate Truth, so that all that men invoke beside Him is sheer falsehood, and because God alone is exalted, great!
+and [who], whenever they are asked, "What is it that your Sustainer has bestowed from on high?"-are wont to answer, "Fables of ancient times!"
  <!--END_SECTION:quran-->
 
   
