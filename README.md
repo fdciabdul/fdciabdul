@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 24**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 27**
 
-and [who], whenever they are asked, "What is it that your Sustainer has bestowed from on high?"-are wont to answer, "Fables of ancient times!"
+But Moses said: “With [Him who is] my Sus­tainer as well as your Sustainer have I indeed found refuge from everyone who, immersed in false pride, will not believe in [the coming of] the Day of Reckon­ing!”
  <!--END_SECTION:quran-->
 
   
