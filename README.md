@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 17**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 10**
 
-[for] it is God [Himself] who has bestowed revelation from on high, setting forth the truth, and [thus given man] a balance [wherewith to weigh right and wrong]. And for all thou knowest, the Last Hour may well be near!
+and him that seeks [thy] help shalt thou never chide,
  <!--END_SECTION:quran-->
 
   
