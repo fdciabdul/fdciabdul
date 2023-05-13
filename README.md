@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 24**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 103**
 
-Woe, on that Day unto those who give the lie to the truth!
+Yet - however strongly thou mayest desire it -most people will not believe [in this revelation],
  <!--END_SECTION:quran-->
 
   
