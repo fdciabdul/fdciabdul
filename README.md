@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 16**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 25**
 
-NOW, VERILY, it is We who have created man, and We know what his innermost self whispers within him: for We are closer to him than his neck-vein.
+Say: “Neither shall you be called to account for whatever we may have become guilty of, nor shall we be called to account for whatever you are doing.”
  <!--END_SECTION:quran-->
 
   
