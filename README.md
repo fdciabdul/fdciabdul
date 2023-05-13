@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 10**
 
-"and there is nothing that could be compared with Him.
+in a garden sublime,
  <!--END_SECTION:quran-->
 
   
