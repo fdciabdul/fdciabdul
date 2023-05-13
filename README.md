@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 6**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 24**
 
-"from all [temptation to evil by] invisible forces as well as men,"
+And He it is who, in the valley of Mecca, stayed their hands from you, and your hands from them, after He had enabled you to vanquish them; and God saw indeed what you were doing.
  <!--END_SECTION:quran-->
 
   
