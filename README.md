@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 13**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 3**
 
-Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!
+and neither do you worship that which I worship!
  <!--END_SECTION:quran-->
 
   
