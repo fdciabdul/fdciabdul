@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 1**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 3**
 
-IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:
+and neither do you worship that which I worship!
  <!--END_SECTION:quran-->
 
   
