@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 77**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 7**
 
-AND, INDEED, [a time came when] We thus inspired Moses: "Go forth with My servants by night, and strike out for them a dry path through the sea; [and] fear not of being overtaken, and dread not [the sea]."
+As against this, they who are bent on denying the truth say [unto all who are of like mind]: “Shall we point out to you a man who will tell you that [after your death,] when you will have been scattered in countless fragments, you shall - lo and behold! - be [restored to life] in a new act of creation?
  <!--END_SECTION:quran-->
 
   
