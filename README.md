@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 21**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 49**
 
-[the word] of one to be heeded, and worthy of trust!
+And, behold, well do We know that among you are such as will give the lie to it:
  <!--END_SECTION:quran-->
 
   
