@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 144**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 39**
 
-We have seen thee [O Prophet] often turn thy face towards heaven [for guidance]: and now We shall indeed make thee turn in prayer in a direction which will fulfil thy desire. Turn, then, thy face towards the Inviolable House of Worship; and wherever you all may be, turn your faces towards it [in prayer]. And, verily, those who have been vouchsafed revelation aforetime know well that this [commandment] comes in truth from their Sustainer; and God is not unaware of what they do.
+a good many of olden times,
  <!--END_SECTION:quran-->
 
   
