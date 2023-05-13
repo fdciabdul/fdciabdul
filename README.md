@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 1**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 83**
 
-DOOMED are the hands of him of the glowing countence: and doomed is he!
+AND, BEHOLD, of his persuasion was Abraham, too,
  <!--END_SECTION:quran-->
 
   
