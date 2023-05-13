@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 16**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 3**
 
-they have made their oaths a cover [for their falseness], and thus they turn others away from the path of God: hence, shameful suffering awaits them.
+and conveying [to all the world] a reminder:
  <!--END_SECTION:quran-->
 
   
