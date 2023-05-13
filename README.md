@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 14**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 10**
 
-VERILY, God will admit those who have attained to faith and have done righteous deeds into gardens through which running waters flow: for, behold, God does whatever He wills.
+for him shall We make easy the path towards hardship:
  <!--END_SECTION:quran-->
 
   
