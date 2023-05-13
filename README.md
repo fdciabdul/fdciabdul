@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 41**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 9**
 
-Go forth to war, whether it be easy or difficult [for you], and strive hard in God's cause with your possessions and your lives: this is for your own good -if you but knew it!
+The Sustainer of the east and the west [is He]: there is no deity save Him: hence, ascribe to Him alone the power to determine thy fate,
  <!--END_SECTION:quran-->
 
   
