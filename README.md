@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 3**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
 
-that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,
+Let them, therefore, worship the Sustainer of this Temple;
  <!--END_SECTION:quran-->
 
   
