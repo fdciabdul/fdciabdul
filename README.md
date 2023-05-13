@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 92**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 2**
 
-and to convey this Qur’an [to the world].” Whoever, therefore, chooses to follow the right path, follows it but for his own good; and if any wills to go astray, say [unto him]: “I am only a warner.
+and the moon as it reflects the sun!
  <!--END_SECTION:quran-->
 
   
