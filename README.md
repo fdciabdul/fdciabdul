@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 3**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 48**
 
-Does man think that We cannot [resurrect him and] bring his bones together again?
+[to which] they who had [once] been arrogant will reply, “Behold, we are all in it [together]! Verily, God has judged between His creatures!”
  <!--END_SECTION:quran-->
 
   
