@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 6**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 151**
 
-Guide us the straight way.
+Say: "Come, let me convey unto you what God has [really] forbidden to you: "Do not ascribe divinity, in any way, to aught beside Him; and [do not offend against but, rather,] do good unto your parents; and do not kill your children for fear of poverty - [for] it is We who shall provide sustenance for you as well as for them; and do not commit any shameful deeds, be they open or secret; and do not take any human being's life-[the life] which God has declared to be sacred -otherwise than in [the pursuit of] justice: this has He enjoined upon you so that you might use your reason;
  <!--END_SECTION:quran-->
 
   
