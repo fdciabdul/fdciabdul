@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 12**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 21**
 
-he who [in the life to come] shall have to endure the great fire
+[the word] of one to be heeded, and worthy of trust!
  <!--END_SECTION:quran-->
 
   
