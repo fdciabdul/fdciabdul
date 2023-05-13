@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 9**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 23**
 
-Hence, if two groups of believers fall to fighting, make peace between them; but then, if one of the two [groups] goes on acting wrongfully towards the other, fight against the one that acts wrongfully until it reverts to God’s commandment; and if they revert, make peace between them with justice, and deal equitably [with them]: for verily, God loves those who act equitably!
+HAST THOU ever considered [the kind of man] who makes his own desires his deity, and whom God has [thereupon] let go astray, knowing [that his mind is closed to all guidance], and whose hearing and heart He has sealed, and upon whose sight He has placed a veil? Who, then, could guide him after God [has abandoned him]? Will you not, then, bethink your­selves?
  <!--END_SECTION:quran-->
 
   
