@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 13**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 144**
 
-Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!
+We have seen thee [O Prophet] often turn thy face towards heaven [for guidance]: and now We shall indeed make thee turn in prayer in a direction which will fulfil thy desire. Turn, then, thy face towards the Inviolable House of Worship; and wherever you all may be, turn your faces towards it [in prayer]. And, verily, those who have been vouchsafed revelation aforetime know well that this [commandment] comes in truth from their Sustainer; and God is not unaware of what they do.
  <!--END_SECTION:quran-->
 
   
