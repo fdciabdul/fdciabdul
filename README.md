@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 36**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 1**
 
-[All this will be] a reward from thy Sustainer, a gift in accordance with [His Own] reckoning –
+Ha. Mim.
  <!--END_SECTION:quran-->
 
   
