@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 25**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 16**
 
-This is nothing but the word of mortal man!"
+Nay, verily, it is against Our messages that he knowingly, stubbornly sets himself
  <!--END_SECTION:quran-->
 
   
