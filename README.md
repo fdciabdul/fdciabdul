@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 39**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 27**
 
-a good many of olden times,
+And [as for Abraham,] We bestowed upon him Isaac and [Isaac’s son] Jacob, and caused pro­phethood and revelation to continue among his offspring. And We vouchsafed him his reward in this world; and, verily, in the life to come [too] he shall find himself among the righteous.
  <!--END_SECTION:quran-->
 
   
