@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 15**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 77**
 
-[To both kinds of your enemies, O believers, is bound to happen] the like of [what happened to] those who, a short while before them, had to taste the evil that came from their own doings, with [yet more] grievous suffering awaiting them [in the life to come]:
+AND, INDEED, [a time came when] We thus inspired Moses: "Go forth with My servants by night, and strike out for them a dry path through the sea; [and] fear not of being overtaken, and dread not [the sea]."
  <!--END_SECTION:quran-->
 
   
