@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 28**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 14**
 
-For, one Day We shall gather them all together, and then We shall say unto those who [in their lifetime] ascribed divinity to aught but God, "Stand where you are, you and those [beings and powers] to whom you were wont to ascribe a share in God's divinity! -for by then We shall have [visibly] separated them from one another. And the beings to whom they had ascribed a share in God's divinity will say [to those who had worshipped them], "It was not us that you were wont to worship;
+VERILY, God will admit those who have attained to faith and have done righteous deeds into gardens through which running waters flow: for, behold, God does whatever He wills.
  <!--END_SECTION:quran-->
 
   
