@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 11**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 79**
 
-that on that Day their Sustainer [will show that He] has always been fully aware of them?
+because Pharaoh had led his people astray and had not guided [them] aright.
  <!--END_SECTION:quran-->
 
   
