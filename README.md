@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 38: سُورَةُ صٓ (Saad) - 7**
 
-and thou seest people enter God's religion in hosts,
+Never did we hear of [a claim like] this in any faith of latter days! It is nothing but [a mortal man’s] invention!
  <!--END_SECTION:quran-->
 
   
