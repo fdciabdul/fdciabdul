@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 3**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 15**
 
-VERILY, your Sustainer is God, who has created the heavens and the earth in six aeons, and is established on the throne of His almightiness, governing all that exists. There is none that could intercede with Him unless He grants leave therefor. Thus is God, your Sustainer: worship, therefore, Him [alone]: will you not, then, keep this in mind?
+O YOU who have attained to faith! When you meet in battle those who are bent on denying the truth, advancing in great force, do not turn your backs on them:
  <!--END_SECTION:quran-->
 
   
