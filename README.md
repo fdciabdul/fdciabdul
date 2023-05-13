@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 94**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 1**
 
-And all who henceforth invent lies about God - it is they, they who are evildoers!
+DOOMED are the hands of him of the glowing countence: and doomed is he!
  <!--END_SECTION:quran-->
 
   
