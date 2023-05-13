@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 6**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 84**
 
-Yet [it has always happened] that certain kinds of humans would seek refuge with certain kinds of [such] invisible forces: but these only increased their confusion –
+and of no avail to them was all [the power] that they had acquired.
  <!--END_SECTION:quran-->
 
   
