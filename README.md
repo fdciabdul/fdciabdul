@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 29**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 33**
 
-Or do they in whose hearts is disease think, perchance, that God would never bring their moral failings to light?
+O MEN! Be conscious of your Sustainer, and stand in awe of the Day on which no parent will be of any avail to his child, nor a child will in the least avail his parent! Verily, God’s promise [of resurrection] is true in­deed: let not, then, the life of this world deludes you, and let not [your own] deceptive thoughts about God delude you!
  <!--END_SECTION:quran-->
 
   
