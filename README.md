@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 39**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 1**
 
-That will be the Day of Ultimate Truth: whoever wills, then, let him take the path that leads towards his Sustainer!
+IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:
  <!--END_SECTION:quran-->
 
   
