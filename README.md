@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 151**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 93**
 
-Say: "Come, let me convey unto you what God has [really] forbidden to you: "Do not ascribe divinity, in any way, to aught beside Him; and [do not offend against but, rather,] do good unto your parents; and do not kill your children for fear of poverty - [for] it is We who shall provide sustenance for you as well as for them; and do not commit any shameful deeds, be they open or secret; and do not take any human being's life-[the life] which God has declared to be sacred -otherwise than in [the pursuit of] justice: this has He enjoined upon you so that you might use your reason;
+Only they may rightly be reproached who asked thee for exemption even though they were fully able [to go to war]. They were well-pleased to remain with those who were left behind -wherefore God has sealed their hearts, so that they do not know [what they are doing].
  <!--END_SECTION:quran-->
 
   
