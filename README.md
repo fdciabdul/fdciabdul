@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 8**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 1**
 
-and he who shall have done an atom's weight of evil, shall behold it.
+O YOU who have attained to faith! Do not put yourselves forward in the presence of [what] God and His Apostle [may have ordained], but remain conscious of God: for, verily, God is all-hearing, all-knowing!
  <!--END_SECTION:quran-->
 
   
