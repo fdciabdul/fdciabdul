@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 84**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 33**
 
-and of no avail to them was all [the power] that they had acquired.
+IS, THEN, HE who has every living being in His almighty care, [dealing with each] according to what it deserves -[is, then, He like anything else that exists]? And yet, they ascribe to other beings a share in God's divinity! Say: "Give them any name [you please]: but do you [really think that you could] inform Him of anything on earth that He does not know-or [do you] but play with words?, Nay, goodly seems their false imagery to those who are bent on denying the truth, and so they are turned away from the [right] path: and he whom God lets go astray can never find any guide.
  <!--END_SECTION:quran-->
 
   
