@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 7**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 36**
 
-Never did we hear of [a claim like] this in any faith of latter days! It is nothing but [a mortal man’s] invention!
+[All this will be] a reward from thy Sustainer, a gift in accordance with [His Own] reckoning –
  <!--END_SECTION:quran-->
 
   
