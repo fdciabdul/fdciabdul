@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 19**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 11**
 
-and then, behold, it will be for Us to make its meaning clear.
+that on that Day their Sustainer [will show that He] has always been fully aware of them?
  <!--END_SECTION:quran-->
 
   
