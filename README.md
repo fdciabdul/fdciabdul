@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 17**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 18**
 
-so as to test them by this means: for he who shall turn away from the remembrance of his Sustainer, him will He cause to undergo suffering most grievous.
+and the morn as it softly breathes:
  <!--END_SECTION:quran-->
 
   
