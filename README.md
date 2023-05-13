@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 4**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 17**
 
-pursuing a straight way
+[for] it is God [Himself] who has bestowed revelation from on high, setting forth the truth, and [thus given man] a balance [wherewith to weigh right and wrong]. And for all thou knowest, the Last Hour may well be near!
  <!--END_SECTION:quran-->
 
   
