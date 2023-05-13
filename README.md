@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 5**
 
-What will his wealth avail him, and all that he has gained?
+something that a very mighty one has imparted to him:
  <!--END_SECTION:quran-->
 
   
