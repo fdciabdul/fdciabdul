@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 24**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 3**
 
-and [who], whenever they are asked, "What is it that your Sustainer has bestowed from on high?"-are wont to answer, "Fables of ancient times!"
+that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,
  <!--END_SECTION:quran-->
 
   
