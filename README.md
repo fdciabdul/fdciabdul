@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 7**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 29**
 
-Does he, then, think that no one sees him?
+Or do they in whose hearts is disease think, perchance, that God would never bring their moral failings to light?
  <!--END_SECTION:quran-->
 
   
