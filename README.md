@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 57**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 1**
 
-whereas for those who were bent on denying the truth and gave the lie to Our messages, there shall be shameful suffering in store.
+Ha. Mim.
  <!--END_SECTION:quran-->
 
   
