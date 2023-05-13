@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 6**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
 
-He makes the night grow longer by shortening the day, and makes the day grow longer by shortening the night; and He has full knowledge of what is in the hearts [of men].
+Behold, it is this [kind of man] that thrusts the orphan away,
  <!--END_SECTION:quran-->
 
   
