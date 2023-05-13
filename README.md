@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 2**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 64**
 
-And follow [but] that which comes unto thee through revelation from thy Sustainer: for God is truly aware of all that you do, [O men].
+O Prophet! God is enough for thee and those of the believers who follow thee!
  <!--END_SECTION:quran-->
 
   
