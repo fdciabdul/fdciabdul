@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 22**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 6**
 
-And as he turned his face towards Madyan, he said [to himself]: “It may well be that my Sustainer will [thus] guide me onto the right path”
+turn thou away from them. On the Day when the Summoning Voice will sum­mon [man] unto something that the mind cannot conceive,
  <!--END_SECTION:quran-->
 
   
