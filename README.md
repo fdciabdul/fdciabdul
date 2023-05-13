@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 7**
+**Surah 38: سُورَةُ صٓ (Saad) - 45**
 
-As against this, they who are bent on denying the truth say [unto all who are of like mind]: “Shall we point out to you a man who will tell you that [after your death,] when you will have been scattered in countless fragments, you shall - lo and behold! - be [restored to life] in a new act of creation?
+AND CALL to mind Our servants Abraham and Isaac and Jacob, [all of them] endowed with inner strength and vision:
  <!--END_SECTION:quran-->
 
   
