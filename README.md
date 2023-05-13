@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 32**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 94**
 
-but, on the contrary, he gave the lie to the truth and turned away [from it],
+And all who henceforth invent lies about God - it is they, they who are evildoers!
  <!--END_SECTION:quran-->
 
   
