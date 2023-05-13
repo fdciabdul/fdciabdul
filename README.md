@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 65**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 38**
 
-for you are well aware of those from among you who profaned the Sabbath, whereupon We said unto them, "Be as apes despicable!"
+[On the Day of Judgment,] every human being will be held in pledge for whatever [evil] he has wrought –
  <!--END_SECTION:quran-->
 
   
