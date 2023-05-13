@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 93**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 39**
 
-Only they may rightly be reproached who asked thee for exemption even though they were fully able [to go to war]. They were well-pleased to remain with those who were left behind -wherefore God has sealed their hearts, so that they do not know [what they are doing].
+That will be the Day of Ultimate Truth: whoever wills, then, let him take the path that leads towards his Sustainer!
  <!--END_SECTION:quran-->
 
   
