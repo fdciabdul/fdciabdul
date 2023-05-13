@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 48**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 29**
 
-And the earth have We spread out wide - and how well have We ordered it!
+but We have placed on record every single thing [of what they did].
  <!--END_SECTION:quran-->
 
   
