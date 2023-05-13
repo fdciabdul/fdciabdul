@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 1**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
 
-O THOU human being!
+What will his wealth avail him, and all that he has gained?
  <!--END_SECTION:quran-->
 
   
