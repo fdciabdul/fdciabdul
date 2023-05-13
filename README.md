@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 10**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 3**
 
-and him that seeks [thy] help shalt thou never chide,
+Does man think that We cannot [resurrect him and] bring his bones together again?
  <!--END_SECTION:quran-->
 
   
