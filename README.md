@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 3**
 
-Let them, therefore, worship the Sustainer of this Temple;
+and man cries out, "What has happened to her?" -
  <!--END_SECTION:quran-->
 
   
