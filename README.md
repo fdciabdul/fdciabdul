@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 3**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 4**
 
-and conveying [to all the world] a reminder:
+pursuing a straight way
  <!--END_SECTION:quran-->
 
   
