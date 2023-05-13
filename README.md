@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 7**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 6**
 
-[In all these respects,] let him who has ample means spend in accordance with his amplitude; and let him whose means of subsistence are scanty spend in accordance with what God has given him: God does not burden any human being with more than He has given him - [and it may well be that] God will grant, after hardship, ease.
+"from all [temptation to evil by] invisible forces as well as men,"
  <!--END_SECTION:quran-->
 
   
