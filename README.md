@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 5**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 6**
 
-something that a very mighty one has imparted to him:
+and believes in the truth of the ultimate good
  <!--END_SECTION:quran-->
 
   
