@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 152**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 16**
 
-those who spread corruption on earth instead of setting things to rights!”
+NOW, VERILY, it is We who have created man, and We know what his innermost self whispers within him: for We are closer to him than his neck-vein.
  <!--END_SECTION:quran-->
 
   
