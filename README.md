@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 64**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 12**
 
-O Prophet! God is enough for thee and those of the believers who follow thee!
+he who [in the life to come] shall have to endure the great fire
  <!--END_SECTION:quran-->
 
   
