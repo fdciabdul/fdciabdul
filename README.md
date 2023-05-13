@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 49**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 8**
 
-And, behold, well do We know that among you are such as will give the lie to it:
+and he who shall have done an atom's weight of evil, shall behold it.
  <!--END_SECTION:quran-->
 
   
