@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 15**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
 
-O YOU who have attained to faith! When you meet in battle those who are bent on denying the truth, advancing in great force, do not turn your backs on them:
+"and from the evil of the envious when he envies."
  <!--END_SECTION:quran-->
 
   
