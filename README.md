@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 28**
 
-"and from the evil of the envious when he envies."
+For, one Day We shall gather them all together, and then We shall say unto those who [in their lifetime] ascribed divinity to aught but God, "Stand where you are, you and those [beings and powers] to whom you were wont to ascribe a share in God's divinity! -for by then We shall have [visibly] separated them from one another. And the beings to whom they had ascribed a share in God's divinity will say [to those who had worshipped them], "It was not us that you were wont to worship;
  <!--END_SECTION:quran-->
 
   
