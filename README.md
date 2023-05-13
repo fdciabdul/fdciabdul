@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 17**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 16**
 
-and be told: "This is the [very thing] to which you were wont to give the lie!"
+they have made their oaths a cover [for their falseness], and thus they turn others away from the path of God: hence, shameful suffering awaits them.
  <!--END_SECTION:quran-->
 
   
