@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 6**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 90**
 
-turn thou away from them. On the Day when the Summoning Voice will sum­mon [man] unto something that the mind cannot conceive,
+But they who shall come with evil deeds – their faces will be thrust into the fire, [and they will be asked:] “Is this aught but a just requital for what you were doing [in life]?”
  <!--END_SECTION:quran-->
 
   
