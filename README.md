@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 2**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 61**
 
-And so, when they are about to reach the end of their waiting-term, either retain them in a fair manner or part with them in a fair manner. And let two persons of [known] probity from among your own community witness [what you have decided]; and do yourselves bear true witness before God: thus are admonished all who believe in God and the Last Day. And unto everyone who is conscious of God, He [always] grants a way out [of unhappiness],
+They answered: "We shall try to persuade his father to part with him, and, verily, we shall do [our utmost]!"
  <!--END_SECTION:quran-->
 
   
