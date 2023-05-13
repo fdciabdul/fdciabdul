@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 32**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 1**
 
-And so, We have bestowed this divine writ as a heritage unto such of Our servants as We chose: and among them are some who sin against themselves; and some who keep half-way [between right and wrong]; and some who, by God’s leave, are fore­most in deeds of goodness: [and] this, indeed, is a merit most high!
+WOE unto every slanderer, fault-finder!
  <!--END_SECTION:quran-->
 
   
