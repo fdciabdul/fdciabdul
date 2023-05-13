@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 48**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 6**
 
-[to which] they who had [once] been arrogant will reply, “Behold, we are all in it [together]! Verily, God has judged between His creatures!”
+Guide us the straight way.
  <!--END_SECTION:quran-->
 
   
