@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 23**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 6**
 
-Yet God has full knowledge of what they conceal [in their hearts].
+He makes the night grow longer by shortening the day, and makes the day grow longer by shortening the night; and He has full knowledge of what is in the hearts [of men].
  <!--END_SECTION:quran-->
 
   
