@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 3**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 23**
 
-and man cries out, "What has happened to her?" -
+Yet God has full knowledge of what they conceal [in their hearts].
  <!--END_SECTION:quran-->
 
   
