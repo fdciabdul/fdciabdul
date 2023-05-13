@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 40**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 2**
 
-and if they turn away [from righteousness], know that God is your Lord Supreme: [and] how excellent is this Lord Supreme, and how excellent this Giver of Succour!
+And follow [but] that which comes unto thee through revelation from thy Sustainer: for God is truly aware of all that you do, [O men].
  <!--END_SECTION:quran-->
 
   
