@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 6**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 57**
 
-and believes in the truth of the ultimate good
+whereas for those who were bent on denying the truth and gave the lie to Our messages, there shall be shameful suffering in store.
  <!--END_SECTION:quran-->
 
   
