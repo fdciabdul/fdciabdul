@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 1**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 3**
 
-Ha. Mim.
+VERILY, your Sustainer is God, who has created the heavens and the earth in six aeons, and is established on the throne of His almightiness, governing all that exists. There is none that could intercede with Him unless He grants leave therefor. Thus is God, your Sustainer: worship, therefore, Him [alone]: will you not, then, keep this in mind?
  <!--END_SECTION:quran-->
 
   
