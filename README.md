@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 10**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 7**
 
-for him shall We make easy the path towards hardship:
+[In all these respects,] let him who has ample means spend in accordance with his amplitude; and let him whose means of subsistence are scanty spend in accordance with what God has given him: God does not burden any human being with more than He has given him - [and it may well be that] God will grant, after hardship, ease.
  <!--END_SECTION:quran-->
 
   
