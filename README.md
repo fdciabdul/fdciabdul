@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 83**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 62**
 
-marked out in thy Sustainer's sight [for the punishment of such as are lost in sin]. And these [blows of God-willed doom] are never far from evildoers
+Thus it is, because God alone is the Ultimate Truth, so that all that men invoke beside Him is sheer falsehood, and because God alone is exalted, great!
  <!--END_SECTION:quran-->
 
   
