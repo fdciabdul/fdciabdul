@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 20**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
 
-All [of them] -these as well as those -do We freely endow with some of thy Sustainer's gifts, since thy Sustainer's giving is never confined [to one kind of man].
+And, behold, with every hardship comes ease:
  <!--END_SECTION:quran-->
 
   
