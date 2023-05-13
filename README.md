@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 5**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
 
-And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.
+And what could make thee conceive what that crushing torment will be?
  <!--END_SECTION:quran-->
 
   
