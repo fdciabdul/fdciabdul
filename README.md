@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 7**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 8**
 
-But never yet came a prophet to them without their deriding him –
+and he who shall have done an atom's weight of evil, shall behold it.
  <!--END_SECTION:quran-->
 
   
