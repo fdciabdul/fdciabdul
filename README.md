@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 103**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 41**
 
-Yet - however strongly thou mayest desire it -most people will not believe [in this revelation],
+Go forth to war, whether it be easy or difficult [for you], and strive hard in God's cause with your possessions and your lives: this is for your own good -if you but knew it!
  <!--END_SECTION:quran-->
 
   
