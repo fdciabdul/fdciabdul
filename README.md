@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 10**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 152**
 
-in a garden sublime,
+those who spread corruption on earth instead of setting things to rights!”
  <!--END_SECTION:quran-->
 
   
