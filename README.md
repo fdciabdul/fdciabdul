@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 9**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 24**
 
-The Sustainer of the east and the west [is He]: there is no deity save Him: hence, ascribe to Him alone the power to determine thy fate,
+and [who], whenever they are asked, "What is it that your Sustainer has bestowed from on high?"-are wont to answer, "Fables of ancient times!"
  <!--END_SECTION:quran-->
 
   
