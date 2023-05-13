@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 52**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 8**
 
-[They were truly guilty] because all [the evil] that they ever did had been [revealed to them as such] in the [ancient] books of [divine] wisdom;
+“And, O our Sustainer, bring them into the gardens of perpetual bliss which Thou hast promised them, together with the righteous from among their forebears, and their spouses, and their offspring - for, verily, Thou alone art almighty, truly wise –
  <!--END_SECTION:quran-->
 
   
