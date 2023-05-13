@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 33**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
 
-O MEN! Be conscious of your Sustainer, and stand in awe of the Day on which no parent will be of any avail to his child, nor a child will in the least avail his parent! Verily, God’s promise [of resurrection] is true in­deed: let not, then, the life of this world deludes you, and let not [your own] deceptive thoughts about God delude you!
+And, behold, with every hardship comes ease:
  <!--END_SECTION:quran-->
 
   
