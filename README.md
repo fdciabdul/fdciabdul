@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 83**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 83**
 
-AND, BEHOLD, of his persuasion was Abraham, too,
+marked out in thy Sustainer's sight [for the punishment of such as are lost in sin]. And these [blows of God-willed doom] are never far from evildoers
  <!--END_SECTION:quran-->
 
   
