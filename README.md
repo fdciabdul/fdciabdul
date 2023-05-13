@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 61**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 7**
 
-They answered: "We shall try to persuade his father to part with him, and, verily, we shall do [our utmost]!"
+Does he, then, think that no one sees him?
  <!--END_SECTION:quran-->
 
   
