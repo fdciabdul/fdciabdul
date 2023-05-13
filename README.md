@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 3**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
 
-and neither do you worship that which I worship!
+Let them, therefore, worship the Sustainer of this Temple;
  <!--END_SECTION:quran-->
 
   
