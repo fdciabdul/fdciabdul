@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 9**
 
-And, behold, with every hardship comes ease:
+well-pleased with [the fruit of] their striving,
  <!--END_SECTION:quran-->
 
   
