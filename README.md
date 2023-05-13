@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 1**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 32**
 
-Ha. Mim.
+And so, We have bestowed this divine writ as a heritage unto such of Our servants as We chose: and among them are some who sin against themselves; and some who keep half-way [between right and wrong]; and some who, by God’s leave, are fore­most in deeds of goodness: [and] this, indeed, is a merit most high!
  <!--END_SECTION:quran-->
 
   
