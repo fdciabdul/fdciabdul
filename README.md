@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 23**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 36**
 
-Thus have We determined [the nature of man's creation]: and excellent indeed is Our power to determine [what is to be]!
+a warning to mortal man –
  <!--END_SECTION:quran-->
 
   
