@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 28**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 33**
 
-O YOU who have attained to faith! Remain con­scious of God, and believe in His Apostle, [and] He will grant you doubly of His grace, and will light for you a light wherein you shall walk, and will forgive you [your past sins]: for God is much-forgiving, a dispenser of grace.
+[all this] as a means of livelihood for you and your animals.
  <!--END_SECTION:quran-->
 
   
