@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 142**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 135**
 
-And of the cattle reared for work and for the sake of their flesh, eat whatever God has provided for you as sustenance, and follow not Satan's foot-steps: behold, he is your open foe!
+for, verily, I fear lest suffering befall you on an awesome day!”
  <!--END_SECTION:quran-->
 
   
