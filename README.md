@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 28**
 
-"He begets not, and neither is He begotten;
+He it is who has sent forth His Apostle with the [task of spreading] guidance and the religion of truth, to the end that He make it prevail over every [false] religion; and none can bear witness [to the truth] as God does.
  <!--END_SECTION:quran-->
 
   
