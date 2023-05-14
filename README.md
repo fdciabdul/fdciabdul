@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 11**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 109**
 
-But he would not try to ascend the steep uphill road...
+And [as for thyself, O Muhammad,] follow but what is being revealed unto thee, and be patient in adversity, until God shall give His judgment: for He is the best of all judges.
  <!--END_SECTION:quran-->
 
   
