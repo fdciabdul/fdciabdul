@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 136**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 28**
 
-and then We utterly destroyed the others:
+SAY [O Prophet]: "What do you think? Whether God destroys me and those who follow me, or graces us with His mercy - is there anyone that could protect [you] deniers of the truth from grievous suffering [in the life to come]?"
  <!--END_SECTION:quran-->
 
   
