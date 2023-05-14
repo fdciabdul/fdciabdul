@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 6**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 3**
 
-Lo! [With glee do] they contemplate that [fire],
+And what could make thee conceive what that sudden calamity will be?
  <!--END_SECTION:quran-->
 
   
