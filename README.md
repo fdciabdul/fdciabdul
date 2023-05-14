@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 99**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 9**
 
-AND WHEN they [all arrived in Egypt and] presented themselves before Joseph, he drew his parents unto himself, saying, "Enter Egypt! If God so wills, you shall be secure [from all evil]!"
+Therefore, the orphan shalt thou never wrong,
  <!--END_SECTION:quran-->
 
   
