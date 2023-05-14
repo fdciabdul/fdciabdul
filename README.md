@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 36**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 36**
 
-and the blazing fire [of hell] will be lad open before all who [are destined to] see it.
+[And] have they created the heavens and the earth? Nay, but they have no certainty of anything!
  <!--END_SECTION:quran-->
 
   
