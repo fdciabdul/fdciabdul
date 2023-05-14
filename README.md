@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 48**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 33**
 
-BEAR THEN with patience thy Sustainer's will and be not like him of the great fish, who cried out [in distress] after having given in to anger.
+And who could be better of speech than he who calls [his fellow-men] unto God, and does what is just and right, and says, “Verily, I am of those who have surrendered themselves to God”?
  <!--END_SECTION:quran-->
 
   
