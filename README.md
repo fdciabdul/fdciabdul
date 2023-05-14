@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 10**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 61**
 
-For, [many are] they [who] say, “What! After we have been [dead and] lost in the earth, shall we indeed be [restored to life] in a new act of crea­tion?” Nay, but [by saying this] they deny the truth that they are destined to meet their Sustainer!
+and divert yourselves all the while?
  <!--END_SECTION:quran-->
 
   
