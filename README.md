@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 89**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 14**
 
-God has readied for them gardens through which running waters flow, therein to abide: and this is the triumph supreme!
+whereas, behold, the wicked will indeed be in a blazing fire –
  <!--END_SECTION:quran-->
 
   
