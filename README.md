@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 30**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 49**
 
-Or do they say, “[He is but] a poet - let us wait what time will do unto him”?
+Tell My servants that I - I alone - am truly forgiving, a true dispenser of grace;
  <!--END_SECTION:quran-->
 
   
