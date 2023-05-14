@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 40**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 3**
 
-Or [else, their deeds are] like the depths of darkness upon an abysmal sea, made yet more dark by wave billowing over wave, with [black] clouds above it all: depths of darkness, layer upon layer, [so that] when one holds up his hand, he can hardly see it: for he to whom God gives no light, no light whatever has he!
+"the God of men,
  <!--END_SECTION:quran-->
 
   
