@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 7**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
 
-And they carry your loads to [many] a place which [otherwise] you would be unable to reach without great hardship to yourselves. Verily, your Sustainer is most compassionate, a dispenser of grace!
+WHEN GOD'S SUCCOUR comes, and victory,
  <!--END_SECTION:quran-->
 
   
