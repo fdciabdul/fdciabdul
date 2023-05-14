@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 35**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
 
-so that they may eat of the fruit thereof, though it was not their hands that made it. Will they not, then, be grateful?
+"He begets not, and neither is He begotten;
  <!--END_SECTION:quran-->
 
   
