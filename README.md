@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 35**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 23**
 
-No empty talk will they hear in that [paradise], nor any lie.
+Thus have We determined [the nature of man's creation]: and excellent indeed is Our power to determine [what is to be]!
  <!--END_SECTION:quran-->
 
   
