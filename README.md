@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 41**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 12**
 
-with darkness overspread:
+for, behold, heavy fetters [await them] with Us, and a blazing fire,
  <!--END_SECTION:quran-->
 
   
