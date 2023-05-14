@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 21**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 41**
 
-And so, [O Prophet,] exhort them; thy task is only to exhort:
+with darkness overspread:
  <!--END_SECTION:quran-->
 
   
