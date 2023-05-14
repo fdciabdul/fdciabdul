@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 116**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 10**
 
-[But,] behold, as for those who are bent on denying the truth - neither their worldly possessions nor their children will in the least avail them against God: and it is they who are destined for the fire, therein to abide.
+For, [many are] they [who] say, “What! After we have been [dead and] lost in the earth, shall we indeed be [restored to life] in a new act of crea­tion?” Nay, but [by saying this] they deny the truth that they are destined to meet their Sustainer!
  <!--END_SECTION:quran-->
 
   
