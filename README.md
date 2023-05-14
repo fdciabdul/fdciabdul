@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 5**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 45**
 
-the Sustainer of the heavens and the earth and of all that is between them, and the Sustainer of all the points of sunrise!
+[but] woe on that Day unto those who give the lie to the truth!
  <!--END_SECTION:quran-->
 
   
