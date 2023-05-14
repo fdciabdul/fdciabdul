@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 72**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 36**
 
-for such will be the paradise which you shall have inherited by virtue of your past deeds:
+and the blazing fire [of hell] will be lad open before all who [are destined to] see it.
  <!--END_SECTION:quran-->
 
   
