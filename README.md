@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 1**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 4**
 
-OH, the sudden calamity!
+or add to it [at will]; and [during that time] recite the Qur’an calmly and distinctly, with thy mind attuned to its meaning.
  <!--END_SECTION:quran-->
 
   
