@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 13**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 11**
 
-Yet most certainly will they have to bear their own burdens, and other burdens besides their own; and most certainly will they be called to account on Resurrection Day for all their false assertions!
+[He has sent] an apostle who conveys unto you God's clear messages, so that He might those who have attained to faith and do righteous deeds out of the depths of darkness into the light. And whoever believes in God and does what is right and just, him will He admit into gardens through which running waters flow, therein to abide beyond the count of time: indeed, a most goodly provision will God have granted him!
  <!--END_SECTION:quran-->
 
   
