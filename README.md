@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 28**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 8**
 
-And [on that Day] thou wilt see all people kneeling down [in humility]: all people will be called upon to [face] their record: “Today you shall be requited for all that you ever did!
+Their reward [awaits them] with God: gardens of perpetual bliss, through which running waters flow, therein to abide beyond the count of time; well-pleased is God with them, and well-pleased are they with Him: all this awaits him who of his Sustainer stands in awe!.
  <!--END_SECTION:quran-->
 
   
