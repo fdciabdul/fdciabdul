@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 72**
 
-and neither will you [ever] worship that which I worship.
+They answered: "We miss the King's goblet; and he who produces it shall receive a camel-load [of grain as reward]!" And [the herald added:] "I pledge myself to this _ [promise]!"
  <!--END_SECTION:quran-->
 
   
