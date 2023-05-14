@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 49**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 12**
 
-Tell My servants that I - I alone - am truly forgiving, a true dispenser of grace;
+"'And, withal, we have come to know that we can never elude God [while we live] on earth, and that we can never elude Him by escaping [from life].
  <!--END_SECTION:quran-->
 
   
