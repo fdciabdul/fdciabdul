@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 33**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 1**
 
-And who could be better of speech than he who calls [his fellow-men] unto God, and does what is just and right, and says, “Verily, I am of those who have surrendered themselves to God”?
+VERILY, [O Muhammad,] We have laid open before thee a manifest victory,
  <!--END_SECTION:quran-->
 
   
