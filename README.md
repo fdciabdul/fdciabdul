@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 1**
 
-In the end you will indeed, most surely, behold it with the eye of certainty:
+Nun. CONSIDER the pen, and all that they write [therewith]!
  <!--END_SECTION:quran-->
 
   
