@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 10**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 35**
 
-on that Day will man exclaim "Whither to flee?"
+And give full measure whenever you measure, and weigh with a balance that is true: this will be [for your own] good, and best in the end.
  <!--END_SECTION:quran-->
 
   
