@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 109**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 5**
 
-And [as for thyself, O Muhammad,] follow but what is being revealed unto thee, and be patient in adversity, until God shall give His judgment: for He is the best of all judges.
+the Sustainer of the heavens and the earth and of all that is between them, and the Sustainer of all the points of sunrise!
  <!--END_SECTION:quran-->
 
   
