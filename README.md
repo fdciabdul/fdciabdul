@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 22**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 32**
 
-And [now,] if they who are bent on denying the truth should fight against you, they will indeed turn their backs [in flight], and will find none to protect them and none to bring them succour:
+Say: "Who is there to forbid the beauty which God has brought forth for His creatures, and the good things from among the means of sustenance?" Say: "They are [lawful] in the life of this world unto all who have attained to faith - to be theirs alone on Resurrection Day." Thus clearly do We spell out these messages unto people of [innate] knowledge!
  <!--END_SECTION:quran-->
 
   
