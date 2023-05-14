@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 22**
+**Surah 38: سُورَةُ صٓ (Saad) - 11**
 
-Say: "Verily, no one could ever protect me from God, nor could I ever find a place to hide from Him
+[But] there it is: any and all human beings, however [strongly] leagued together, are bound to suffer defeat [whenever they refuse to accept the truth].
  <!--END_SECTION:quran-->
 
   
