@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 21**
 
-WHEN GOD'S SUCCOUR comes, and victory,
+witnessed~ by all who have [ever] been drawn close unto God.
  <!--END_SECTION:quran-->
 
   
