@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 27**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 17**
 
-Hence, [O Muhammad,] proclaim thou unto all people the [duty of] pilgrimage: they will come unto thee on foot and on every [kind of] fast mount, coming from every far-away point [on earth],
+Let, then, the deniers of the truth have their will: let them have their will for a little while.
  <!--END_SECTION:quran-->
 
   
