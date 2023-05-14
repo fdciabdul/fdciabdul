@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 36**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 21**
 
-a warning to mortal man –
+And so, [O Prophet,] exhort them; thy task is only to exhort:
  <!--END_SECTION:quran-->
 
   
