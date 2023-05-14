@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 55**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 73**
 
-In that [paradise] they shall [rightfully] claim all the fruits [of their past deeds], resting in security;
+and may have [yet other] benefits from them, and [milk] to drink? Will they not, then, be grateful? (
  <!--END_SECTION:quran-->
 
   
