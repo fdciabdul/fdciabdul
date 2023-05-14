@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 6**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 7**
 
-But [as for thee, O believer,] verily, thou hast received this Qur’an out of the grace of One who is wise, all-knowing.
+And they carry your loads to [many] a place which [otherwise] you would be unable to reach without great hardship to yourselves. Verily, your Sustainer is most compassionate, a dispenser of grace!
  <!--END_SECTION:quran-->
 
   
