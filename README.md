@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 14**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 35**
 
-or the feeding, upon a day of [one's own] hunger,
+so that they may eat of the fruit thereof, though it was not their hands that made it. Will they not, then, be grateful?
  <!--END_SECTION:quran-->
 
   
