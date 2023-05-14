@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 30**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 29**
 
-Which, then, of your Sustainer’s powers can you disavow?
+VERILY, all this is an admonition: whoever, then, so wills, may unto his Sustainer find a way.
  <!--END_SECTION:quran-->
 
   
