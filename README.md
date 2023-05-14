@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 1**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 13**
 
-Alif. Lam. Mim.
+Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!
  <!--END_SECTION:quran-->
 
   
