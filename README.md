@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 45**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 6**
 
-[but] woe on that Day unto those who give the lie to the truth!
+Lo! [With glee do] they contemplate that [fire],
  <!--END_SECTION:quran-->
 
   
