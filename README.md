@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 4**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 6**
 
-Lord of the Day of Judgment!
+A fire kindled by God,
  <!--END_SECTION:quran-->
 
   
