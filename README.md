@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 79**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 19**
 
-Have, then, they [who deny the truth] never considered the birds, enabled [by God] to fly in mid-air, with none but God holding them aloft? In this, behold, there are messages indeed for people who will believe!
+VERILY, man is born with a restless disposition.
  <!--END_SECTION:quran-->
 
   
