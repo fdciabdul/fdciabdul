@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 30**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 14**
 
-at that time towards thy Sustainer does he feel impelled to turn!
+or the feeding, upon a day of [one's own] hunger,
  <!--END_SECTION:quran-->
 
   
