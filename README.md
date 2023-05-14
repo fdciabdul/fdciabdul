@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 3**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 116**
 
-And it is He who has spread the earth wide and placed on it firm mountains and running waters, and created thereon two sexes of every [kind of] plant; [and it is He who] causes the night to cover the day. Verily, in all this there are messages indeed for people who think!
+[But,] behold, as for those who are bent on denying the truth - neither their worldly possessions nor their children will in the least avail them against God: and it is they who are destined for the fire, therein to abide.
  <!--END_SECTION:quran-->
 
   
