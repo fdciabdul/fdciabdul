@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 32**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 22**
 
-Say: "Who is there to forbid the beauty which God has brought forth for His creatures, and the good things from among the means of sustenance?" Say: "They are [lawful] in the life of this world unto all who have attained to faith - to be theirs alone on Resurrection Day." Thus clearly do We spell out these messages unto people of [innate] knowledge!
+Say: "Verily, no one could ever protect me from God, nor could I ever find a place to hide from Him
  <!--END_SECTION:quran-->
 
   
