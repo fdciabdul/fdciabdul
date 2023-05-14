@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 29**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 11**
 
-VERILY, all this is an admonition: whoever, then, so wills, may unto his Sustainer find a way.
+But he would not try to ascend the steep uphill road...
  <!--END_SECTION:quran-->
 
   
