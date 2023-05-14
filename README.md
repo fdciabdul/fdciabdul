@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 14**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
 
-whereas, behold, the wicked will indeed be in a blazing fire –
+hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
  <!--END_SECTION:quran-->
 
   
