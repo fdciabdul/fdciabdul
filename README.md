@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 28**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 31**
 
-And let them know that the water [of their wells] is to be divided between them, with each share of water equitably apportioned.”
+And tell the believing women to lower their gaze and to be mindful of their chastity, and not to display their charms [in public] beyond what may [decently] be apparent thereof; hence, let them draw their head-coverings over their bosoms. And let them not display [more of] their charms to any but their husbands, or their fathers, or their husbands’ fathers, or their sons, or their husbands’ Sons, or their brothers, or their brothers’ sons, or their sisters’ sons, or their womenfolk, or those whom they rightfully possess, or such male attendants as are beyond all sexual desire, or children that are as yet unaware of women’s nakedness; and let them not swing their legs [in walking] so as to draw attention to their hidden charms And [always], O you believers - all of you - turn unto God in repentance, so that you might attain to a happy state!
  <!--END_SECTION:quran-->
 
   
