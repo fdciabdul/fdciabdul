@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 11**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 28**
 
-[But] there it is: any and all human beings, however [strongly] leagued together, are bound to suffer defeat [whenever they refuse to accept the truth].
+This, because they were wont to pursue what God con­demns and to hate [whatever would meet with] His goodly acceptance: and so He has caused all their [good] deeds to come to nought.
  <!--END_SECTION:quran-->
 
   
