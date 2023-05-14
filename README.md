@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 4**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 11**
 
-or add to it [at will]; and [during that time] recite the Qur’an calmly and distinctly, with thy mind attuned to its meaning.
+A fire hotly burning!
  <!--END_SECTION:quran-->
 
   
