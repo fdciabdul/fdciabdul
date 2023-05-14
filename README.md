@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 34**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 123**
 
-MEN SHALL take full care of women with the bounties which God has bestowed more abundantly on the former than on the latter, and with what they may spend out of their possessions. And the right­eous women are the truly devout ones, who guard the intimacy which God has [ordained to be] guar­ded. And as for those women whose ill-will you have reason to fear, admonish them [first]; then leave them alone in bed; then beat them; and if thereupon they pay you heed, do not seek to harm them. Behold, God is indeed most high, great!
+And God alone comprehends the hidden reality of the heavens and the earth: for, all that exists goes back to Him [as its source]. Worship Him, then, and place thy trust in Him alone: for thy Sustainer is not unaware of what you do.
  <!--END_SECTION:quran-->
 
   
