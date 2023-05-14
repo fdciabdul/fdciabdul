@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 9**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 1**
 
-Therefore, the orphan shalt thou never wrong,
+OH, the sudden calamity!
  <!--END_SECTION:quran-->
 
   
