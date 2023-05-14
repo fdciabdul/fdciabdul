@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 12**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 10**
 
-With thy Sustainer, on that Day, the journey's end will be!
+Hell is ahead of them; and all that they may have gained [in this world] shall be of no avail whatever to them, and neither shall any of those things which, instead of God, they have come to regard as their protectors: for, awesome suffering awaits them.
  <!--END_SECTION:quran-->
 
   
