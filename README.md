@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 12**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 142**
 
-"'And, withal, we have come to know that we can never elude God [while we live] on earth, and that we can never elude Him by escaping [from life].
+And of the cattle reared for work and for the sake of their flesh, eat whatever God has provided for you as sustenance, and follow not Satan's foot-steps: behold, he is your open foe!
  <!--END_SECTION:quran-->
 
   
