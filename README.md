@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
 
-and thou seest people enter God's religion in hosts,
+In the end you will indeed, most surely, behold it with the eye of certainty:
  <!--END_SECTION:quran-->
 
   
