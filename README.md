@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 12**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 12**
 
-for, behold, heavy fetters [await them] with Us, and a blazing fire,
+VERILY, thy Sustainer's grip is exceedingly strong!
  <!--END_SECTION:quran-->
 
   
