@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 8**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 30**
 
-AND HOW MANY a community has turned with disdain from the commandment of its Sustainer and His apostles! -whereupon We callled them all to account with an accounting severe, and caused them to suffer with a suffering unnameable:
+Or do they say, “[He is but] a poet - let us wait what time will do unto him”?
  <!--END_SECTION:quran-->
 
   
