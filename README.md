@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 28**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 12**
 
-This, because they were wont to pursue what God con­demns and to hate [whatever would meet with] His goodly acceptance: and so He has caused all their [good] deeds to come to nought.
+Oh, verily, it is they, they who are spreading corruption but they perceive it not?
  <!--END_SECTION:quran-->
 
   
