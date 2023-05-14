@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 21**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 24**
 
-witnessed~ by all who have [ever] been drawn close unto God.
+Does man imagine that it is his due to have all that he might wish for,
  <!--END_SECTION:quran-->
 
   
