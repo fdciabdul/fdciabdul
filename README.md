@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 1**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 33**
 
-Nun. CONSIDER the pen, and all that they write [therewith]!
+and splendid companions well matched,
  <!--END_SECTION:quran-->
 
   
