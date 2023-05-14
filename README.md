@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 31**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 47**
 
-And tell the believing women to lower their gaze and to be mindful of their chastity, and not to display their charms [in public] beyond what may [decently] be apparent thereof; hence, let them draw their head-coverings over their bosoms. And let them not display [more of] their charms to any but their husbands, or their fathers, or their husbands’ fathers, or their sons, or their husbands’ Sons, or their brothers, or their brothers’ sons, or their sisters’ sons, or their womenfolk, or those whom they rightfully possess, or such male attendants as are beyond all sexual desire, or children that are as yet unaware of women’s nakedness; and let them not swing their legs [in walking] so as to draw attention to their hidden charms And [always], O you believers - all of you - turn unto God in repentance, so that you might attain to a happy state!
+NOW every community has had an apostle; and only after their apostle has appeared [and delivered his message] is judgment passed on them, in all equity; and never are they wronged.
  <!--END_SECTION:quran-->
 
   
