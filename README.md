@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
 
-[who bears] around her neck a rope of twisted strands!
+and neither will you [ever] worship that which I worship.
  <!--END_SECTION:quran-->
 
   
