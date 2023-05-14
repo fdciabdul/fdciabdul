@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 47**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 89**
 
-NOW every community has had an apostle; and only after their apostle has appeared [and delivered his message] is judgment passed on them, in all equity; and never are they wronged.
+God has readied for them gardens through which running waters flow, therein to abide: and this is the triumph supreme!
  <!--END_SECTION:quran-->
 
   
