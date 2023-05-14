@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 28**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 8**
 
-SAY [O Prophet]: "What do you think? Whether God destroys me and those who follow me, or graces us with His mercy - is there anyone that could protect [you] deniers of the truth from grievous suffering [in the life to come]?"
+AND HOW MANY a community has turned with disdain from the commandment of its Sustainer and His apostles! -whereupon We callled them all to account with an accounting severe, and caused them to suffer with a suffering unnameable:
  <!--END_SECTION:quran-->
 
   
