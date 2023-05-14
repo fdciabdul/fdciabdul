@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 2**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 14**
 
-All praise is due to God alone, the Sustainer of all the worlds,
+And [likewise,] from those who say, "Behold, we are Christians." We have accepted a solemn pledge: and they, too, have forgotten much of what they had been told to bear in mind - wherefore We have given rise among them to enmity and hatred, [to last] until Resurrection Day: and in time God will cause them to understand what they have contrived.
  <!--END_SECTION:quran-->
 
   
