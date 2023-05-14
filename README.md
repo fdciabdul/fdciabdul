@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 11**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 20**
 
-[He has sent] an apostle who conveys unto you God's clear messages, so that He might those who have attained to faith and do righteous deeds out of the depths of darkness into the light. And whoever believes in God and does what is right and just, him will He admit into gardens through which running waters flow, therein to abide beyond the count of time: indeed, a most goodly provision will God have granted him!
+NAY, but [most of] you love this fleeting life,
  <!--END_SECTION:quran-->
 
   
