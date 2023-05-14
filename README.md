@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 36**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
 
-[And] have they created the heavens and the earth? Nay, but they have no certainty of anything!
+[who bears] around her neck a rope of twisted strands!
  <!--END_SECTION:quran-->
 
   
