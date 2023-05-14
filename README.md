@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 4**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
 
-LO! Thus spoke Joseph unto his father: "O my father! Behold, I saw [in a dream] eleven stars, as well as the sun and the moon: I saw them prostrate themselves before me!"
+Behold, it is this [kind of man] that thrusts the orphan away,
  <!--END_SECTION:quran-->
 
   
