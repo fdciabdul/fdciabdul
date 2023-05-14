@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 25**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 30**
 
-And so, because of their sins, they were drowned [in the great flood], and were doomed to suffer the fire [of the hereafter]; and they found none who could succour them against God.
+at that time towards thy Sustainer does he feel impelled to turn!
  <!--END_SECTION:quran-->
 
   
