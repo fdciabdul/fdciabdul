@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 10**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 99**
 
-Hell is ahead of them; and all that they may have gained [in this world] shall be of no avail whatever to them, and neither shall any of those things which, instead of God, they have come to regard as their protectors: for, awesome suffering awaits them.
+AND WHEN they [all arrived in Egypt and] presented themselves before Joseph, he drew his parents unto himself, saying, "Enter Egypt! If God so wills, you shall be secure [from all evil]!"
  <!--END_SECTION:quran-->
 
   
