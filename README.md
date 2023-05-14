@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 79**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 27**
 
-because Pharaoh had led his people astray and had not guided [them] aright.
+Said [Solomon]: “We shall see whether thou hast told the truth or art one of the liars!
  <!--END_SECTION:quran-->
 
   
