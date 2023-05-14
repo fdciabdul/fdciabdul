@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 33**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 17**
 
-[all this] as a means of livelihood for you and your animals.
+No blame attaches to the blind, nor does blame attach to the lame, nor does blame attach to the sick [for staying away from a war in God’s cause]; but whoever heeds [the call of] God and His Apostle [in deed or in heart], him will He admit into gardens through which running waters flow; whereas him who turns away will He chastise with grievous chastise­ment.
  <!--END_SECTION:quran-->
 
   
