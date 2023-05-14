@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 2**
 
-Behold, it is this [kind of man] that thrusts the orphan away,
+All praise is due to God alone, the Sustainer of all the worlds,
  <!--END_SECTION:quran-->
 
   
