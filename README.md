@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 19**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 22**
 
-Have they, then, never beheld the birds above them, spreading their wings and drawing them in? None but the Most Gracious upholds them: for, verily, He keeps all things in His sight.
+And [now,] if they who are bent on denying the truth should fight against you, they will indeed turn their backs [in flight], and will find none to protect them and none to bring them succour:
  <!--END_SECTION:quran-->
 
   
