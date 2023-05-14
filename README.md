@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 1**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 13**
 
-VERILY, [O Muhammad,] We have laid open before thee a manifest victory,
+Hast thou considered whether he may [not] be giving the lie to the truth and turning his back [upon it]?
  <!--END_SECTION:quran-->
 
   
