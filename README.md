@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 27**
 
-hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
+Hence, [O Muhammad,] proclaim thou unto all people the [duty of] pilgrimage: they will come unto thee on foot and on every [kind of] fast mount, coming from every far-away point [on earth],
  <!--END_SECTION:quran-->
 
   
