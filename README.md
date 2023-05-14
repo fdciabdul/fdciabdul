@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 14**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 67**
 
-And [likewise,] from those who say, "Behold, we are Christians." We have accepted a solemn pledge: and they, too, have forgotten much of what they had been told to bear in mind - wherefore We have given rise among them to enmity and hatred, [to last] until Resurrection Day: and in time God will cause them to understand what they have contrived.
+Abraham was neither a "Jew" nor a "Christian", but was one who turned away from all that is false, having surrendered himself unto God; and he was not of those who ascribe divinity to aught beside Him.
  <!--END_SECTION:quran-->
 
   
