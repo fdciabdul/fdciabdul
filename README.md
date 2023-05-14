@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 196**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 54**
 
-And, verily, [the essence of] this [revelation] is indeed found in the ancient books of divine wisdom [as well].
+Oh, verily, they are in doubt as to whether they will meet their Sustainer [on Judgment Day]! Oh, verily, He encompasses everything!
  <!--END_SECTION:quran-->
 
   
