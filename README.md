@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 24**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 59**
 
-Does man imagine that it is his due to have all that he might wish for,
+[As for Jesus,] he was nothing but [a human being -] a servant [of Ours] whom We had graced [with prophethood], and whom We made an example for the children of Israel.
  <!--END_SECTION:quran-->
 
   
