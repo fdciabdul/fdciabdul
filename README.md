@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 67**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 55**
 
-Abraham was neither a "Jew" nor a "Christian", but was one who turned away from all that is false, having surrendered himself unto God; and he was not of those who ascribe divinity to aught beside Him.
+In that [paradise] they shall [rightfully] claim all the fruits [of their past deeds], resting in security;
  <!--END_SECTION:quran-->
 
   
