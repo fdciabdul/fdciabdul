@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 13**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 7**
 
-Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!
+and to this, behold, he [himself] bears witness indeed:
  <!--END_SECTION:quran-->
 
   
