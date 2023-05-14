@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 27**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 98**
 
-Said [Solomon]: “We shall see whether thou hast told the truth or art one of the liars!
+But excepted shall be the truly helpless - be they men or women or children - who cannot bring forth any strength and have not been shown the right way:
  <!--END_SECTION:quran-->
 
   
