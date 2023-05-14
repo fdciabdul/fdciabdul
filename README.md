@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 20**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 12**
 
-NAY, but [most of] you love this fleeting life,
+With thy Sustainer, on that Day, the journey's end will be!
  <!--END_SECTION:quran-->
 
   
