@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 6**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 22**
 
-A fire kindled by God,
+and every time they try in their anguish to come out of it, they shall be returned thereto and [be told]: “Taste suffering through fire [to the full]!”
  <!--END_SECTION:quran-->
 
   
