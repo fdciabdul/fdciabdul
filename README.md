@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 123**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 30**
 
-And God alone comprehends the hidden reality of the heavens and the earth: for, all that exists goes back to Him [as its source]. Worship Him, then, and place thy trust in Him alone: for thy Sustainer is not unaware of what you do.
+Which, then, of your Sustainer’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
