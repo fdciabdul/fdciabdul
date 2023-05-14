@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 35**
 
-BEHOLD, We have bestowed upon thee good in abundance:
+No empty talk will they hear in that [paradise], nor any lie.
  <!--END_SECTION:quran-->
 
   
