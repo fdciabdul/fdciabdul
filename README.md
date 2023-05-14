@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 19**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 3**
 
-VERILY, man is born with a restless disposition.
+And lo! [It so happened that] the Prophet told something in confidence to one of his wives; and when she thereupon divulged it, and God made this known to him, he acquainted [others] with some of it and passed over some of it. And as soon as he let her know it, she asked, "Who has told thee this?" - [to which] he replied, "The All-Knowing, the All-Aware has told me."
  <!--END_SECTION:quran-->
 
   
