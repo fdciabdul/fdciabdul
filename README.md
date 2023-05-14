@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 43**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 87**
 
-And [then,] indeed, after We had destroyed those earlier generations [of sinners], We vouchsafed unto Moses [Our] revelation as a means of insight for men, and as a guidance and grace, so that they might bethink themselves [of Us].
+And on that Day the trumpet [of judgment] will be sounded, and all [creatures] that are in the heavens and all that are on earth will be stricken with terror, except such as God wills [to exempt]: and in utter lowliness all will come unto Him.
  <!--END_SECTION:quran-->
 
   
