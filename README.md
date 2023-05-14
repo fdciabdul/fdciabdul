@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 35**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 4**
 
-And give full measure whenever you measure, and weigh with a balance that is true: this will be [for your own] good, and best in the end.
+LO! Thus spoke Joseph unto his father: "O my father! Behold, I saw [in a dream] eleven stars, as well as the sun and the moon: I saw them prostrate themselves before me!"
  <!--END_SECTION:quran-->
 
   
