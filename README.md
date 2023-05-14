@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 135**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 196**
 
-for, verily, I fear lest suffering befall you on an awesome day!”
+And, verily, [the essence of] this [revelation] is indeed found in the ancient books of divine wisdom [as well].
  <!--END_SECTION:quran-->
 
   
