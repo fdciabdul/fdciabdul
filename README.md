@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 98**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 25**
 
-But excepted shall be the truly helpless - be they men or women or children - who cannot bring forth any strength and have not been shown the right way:
+And so, because of their sins, they were drowned [in the great flood], and were doomed to suffer the fire [of the hereafter]; and they found none who could succour them against God.
  <!--END_SECTION:quran-->
 
   
