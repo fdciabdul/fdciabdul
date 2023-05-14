@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 3**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 72**
 
-And it is He who has spread the earth wide and placed on it firm mountains and running waters, and created thereon two sexes of every [kind of] plant; [and it is He who] causes the night to cover the day. Verily, in all this there are messages indeed for people who think!
+for such will be the paradise which you shall have inherited by virtue of your past deeds:
  <!--END_SECTION:quran-->
 
   
