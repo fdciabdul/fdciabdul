@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 17**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 6**
 
-Let, then, the deniers of the truth have their will: let them have their will for a little while.
+But [as for thee, O believer,] verily, thou hast received this Qur’an out of the grace of One who is wise, all-knowing.
  <!--END_SECTION:quran-->
 
   
