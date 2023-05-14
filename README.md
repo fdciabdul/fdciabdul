@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 5**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 40**
 
-And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.
+Or [else, their deeds are] like the depths of darkness upon an abysmal sea, made yet more dark by wave billowing over wave, with [black] clouds above it all: depths of darkness, layer upon layer, [so that] when one holds up his hand, he can hardly see it: for he to whom God gives no light, no light whatever has he!
  <!--END_SECTION:quran-->
 
   
