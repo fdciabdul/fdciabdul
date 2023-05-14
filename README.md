@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 33**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 28**
 
-and splendid companions well matched,
+And [on that Day] thou wilt see all people kneeling down [in humility]: all people will be called upon to [face] their record: “Today you shall be requited for all that you ever did!
  <!--END_SECTION:quran-->
 
   
