@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 88**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 136**
 
-Then he cast a glance at the stars,
+and then We utterly destroyed the others:
  <!--END_SECTION:quran-->
 
   
