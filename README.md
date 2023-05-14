@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 28**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-He it is who has sent forth His Apostle with the [task of spreading] guidance and the religion of truth, to the end that He make it prevail over every [false] religion; and none can bear witness [to the truth] as God does.
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
