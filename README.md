@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 59**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 1**
 
-[As for Jesus,] he was nothing but [a human being -] a servant [of Ours] whom We had graced [with prophethood], and whom We made an example for the children of Israel.
+Alif. Lam. Mim.
  <!--END_SECTION:quran-->
 
   
