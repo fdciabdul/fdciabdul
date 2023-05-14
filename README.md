@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 22**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 13**
 
-and every time they try in their anguish to come out of it, they shall be returned thereto and [be told]: “Taste suffering through fire [to the full]!”
+And how many a community of greater power than this thy community which has driven thee out, [O Muhammad,] have We destroyed, with none to succour them!
  <!--END_SECTION:quran-->
 
   
