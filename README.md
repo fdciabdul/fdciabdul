@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 62**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 32**
 
-And He it is who causes the night and the day to succeed one another, [revealing Himself in His works] unto him who has the will to take thought - that is has the will to be grateful.
+which – behold!- will throw up sparks like [burning] logs,
  <!--END_SECTION:quran-->
 
   
