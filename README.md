@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 31**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 2**
 
-And [on that Day] paradise will be brought within the sight of the God-conscious, and will no longer be far away; [and they will be told:]
+His is the dominion over the heavens and the earth; He grants life and deals death; and He has the power to will anything.
  <!--END_SECTION:quran-->
 
   
