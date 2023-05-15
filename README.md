@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 2**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 62**
 
-The bestowal from on high of this divine writ issues, beyond any doubt, from the Sustainer of all the worlds:
+And He it is who causes the night and the day to succeed one another, [revealing Himself in His works] unto him who has the will to take thought - that is has the will to be grateful.
  <!--END_SECTION:quran-->
 
   
