@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 31**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 18**
 
-And [know that] all of the divine writ with which We have inspired thee is the very truth, confirming the truth of whatever there still remains of earlier revelations for, behold, of [the needs of] His servants God is fully aware, all-seeing.
+[This, then, is] the parable of those who are bent on denying their Sustainer: all their works are as ashes which the wind blows about fiercely on a stormy day: [in the life to come,] they cannot achieve any benefit whatever from all [the good] that they may have wrought: for this [denial of God] is indeed the farthest one can go astray.
  <!--END_SECTION:quran-->
 
   
