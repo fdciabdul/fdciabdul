@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 10**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
 
-and truly lost is he who buries it [in darkness].
+hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
  <!--END_SECTION:quran-->
 
   
