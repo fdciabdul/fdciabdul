@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 13**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 16**
 
-And how many a community of greater power than this thy community which has driven thee out, [O Muhammad,] have We destroyed, with none to succour them!
+Say: “Do you, perchance, [want to] inform God of [the nature of] your faith although God knows all that is in the heavens and all that is on earth? Indeed, God has full knowledge of every­thing!”
  <!--END_SECTION:quran-->
 
   
