@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 2**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 65**
 
-His is the dominion over the heavens and the earth; He grants life and deals death; and He has the power to will anything.
+But then they relapsed into their former way of thinking and said: “Thou knowest very well that these [idols] cannot speak!”
  <!--END_SECTION:quran-->
 
   
