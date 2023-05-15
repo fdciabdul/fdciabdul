@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 6**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 77**
 
-and believes in the truth of the ultimate good
+until We open before them a gate of [truly] severe suffering [in the life to come]: and then, lo! they will be broken in spirit.
  <!--END_SECTION:quran-->
 
   
