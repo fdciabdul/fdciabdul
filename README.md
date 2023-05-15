@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 21**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 4**
 
-[Hence,] vie with one another in seeking to attain to your Sustainer’s forgiveness, and [thus] to a paradise as vast as the heavens and the earth, which has been readied for those who have attained to faith in God and His Apostle: such is the bounty of God which He grants unto whomever He wills - for God is limitless in His great bounty.
+for, indeed, the life to come will be better for thee than this earlier part [of thy life]!
  <!--END_SECTION:quran-->
 
   
