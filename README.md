@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 29**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 24**
 
-And the followers of earlier revelation should know that they have no power whatever over any of God’s bounty, seeing that all bounty is in God’s hand [alone]: He grants it unto whomever He wills - for God is limitless in His great bounty.
+Hence, give them the tiding of grievous suffering [in the life to come] –
  <!--END_SECTION:quran-->
 
   
