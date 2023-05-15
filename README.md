@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 9**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
 
-[saying, in their hearts,] "We feed you for the sake of God alone: we desire no recompense from you, nor thanks:
+WHEN GOD'S SUCCOUR comes, and victory,
  <!--END_SECTION:quran-->
 
   
