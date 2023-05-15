@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 74**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 8**
 
-side by side with God?” They will answer: “They have forsaken us - or, rather, what we were wont to invoke aforetime did not exist at all!” And they will be told:] “It is thus that God lets the deniers of the truth go astray:
+Or: “[Why has not] a treasure been granted to him [by God]?” Or: “He should [at least] have a [bountiful] garden, so that he could eat thereof [without effort]!” And so these evildoers say [unto one another], “If you were to follow [Muhammad, you would follow] but a man bewitched!”
  <!--END_SECTION:quran-->
 
   
