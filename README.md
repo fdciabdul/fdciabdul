@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 14**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 7**
 
-and to whose life I gave so wide a scope:
+What, then, [O man,] could henceforth cause thee to give the lie to this moral law?
  <!--END_SECTION:quran-->
 
   
