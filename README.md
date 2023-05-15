@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 3**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 13**
 
-And place thy trust in God [alone]: for none is as worthy of trust as God.
+AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.
  <!--END_SECTION:quran-->
 
   
