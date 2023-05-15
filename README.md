@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 7**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 27**
 
-What, then, [O man,] could henceforth cause thee to give the lie to this moral law?
+But We shall most certainly give those who are [thus] bent on denying the truth a taste of suffering severe, and We shall most certainly requite them according to the worst of their deeds!
  <!--END_SECTION:quran-->
 
   
