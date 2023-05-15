@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 10**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 29**
 
-O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?
+And the followers of earlier revelation should know that they have no power whatever over any of God’s bounty, seeing that all bounty is in God’s hand [alone]: He grants it unto whomever He wills - for God is limitless in His great bounty.
  <!--END_SECTION:quran-->
 
   
