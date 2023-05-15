@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 23**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 2**
 
-Said he: “Knowledge [of when it is to befall you] rests with God alone: I but convey unto you the message with which I have been entrusted; but I see that you are people ignorant [of right and wrong]!”
+The bestowal from on high of this divine writ issues, beyond any doubt, from the Sustainer of all the worlds:
  <!--END_SECTION:quran-->
 
   
