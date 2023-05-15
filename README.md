@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 16**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 13**
 
-MOVE NOT thy tongue in haste, [repeating the words of the revelation:]
+Behold, [in the life to come] the truly virtuous: will indeed be in bliss,
  <!--END_SECTION:quran-->
 
   
