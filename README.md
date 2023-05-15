@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 49**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
 
-For on that Day thou wilt see all who were lost in sin linked together in fetters,
+HAVE WE NOT opened up thy heart,
  <!--END_SECTION:quran-->
 
   
