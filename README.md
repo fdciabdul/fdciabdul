@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 6**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 3**
 
-Unto you, your moral law, and unto me, mine!"
+And what could make thee conceive what that sudden calamity will be?
  <!--END_SECTION:quran-->
 
   
