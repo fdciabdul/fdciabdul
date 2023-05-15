@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 19**
 
-HAVE WE NOT opened up thy heart,
+Are then they [who deny the truth] not aware of how God creates [life] in the first instance, and then brings it forth anew? This, verily, is easy for God!
  <!--END_SECTION:quran-->
 
   
