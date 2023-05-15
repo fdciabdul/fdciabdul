@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 49**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 8**
 
-Say: “Produce, then, [another] revelation from God which would offer better guidance than either of these two [and] I shall follow it, if you speak the truth!”
+"'And [so it happened] that we reached out towards heaven: but we found it filled with mighty guards and flames,
  <!--END_SECTION:quran-->
 
   
