@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 1**
 
-SAY: "I seek refuge with the Sustainer of men,
+TRULY, to a happy state shall attain the believers:
  <!--END_SECTION:quran-->
 
   
