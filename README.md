@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 1**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 67**
 
-THE LAST HOUR draws near, and the moon is split asunder!
+And they will say: “O our Sustainer! Behold, we paid heed unto our leaders and our great men, and it is they who have led us astray from the right path!
  <!--END_SECTION:quran-->
 
   
