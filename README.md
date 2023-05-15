@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 27**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 4**
 
-But We shall most certainly give those who are [thus] bent on denying the truth a taste of suffering severe, and We shall most certainly requite them according to the worst of their deeds!
+Such is God's bounty: He grants it to anyone who is willing [to receive it]: for God is limitless in His great bounty.
  <!--END_SECTION:quran-->
 
   
