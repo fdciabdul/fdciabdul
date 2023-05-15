@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 1**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 31**
 
-IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:
+And [on that Day] paradise will be brought within the sight of the God-conscious, and will no longer be far away; [and they will be told:]
  <!--END_SECTION:quran-->
 
   
