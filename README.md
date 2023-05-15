@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 7**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 18**
 
-When they are cast into that [hell], they will hear its breath indrawing as it boils up,
+and the morn as it softly breathes:
  <!--END_SECTION:quran-->
 
   
