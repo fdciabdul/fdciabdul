@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 4**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 1**
 
-Such is God's bounty: He grants it to anyone who is willing [to receive it]: for God is limitless in His great bounty.
+THE LAST HOUR draws near, and the moon is split asunder!
  <!--END_SECTION:quran-->
 
   
