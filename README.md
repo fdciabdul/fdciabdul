@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 1**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 5**
 
-TRULY, to a happy state shall attain the believers:
+does it make secure, until the rise of dawn.
  <!--END_SECTION:quran-->
 
   
