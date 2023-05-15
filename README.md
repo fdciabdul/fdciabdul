@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 46**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 9**
 
-and will have no protector whatever to succour them against God: for he whom God lets go astray shall find no way [of escape].
+[Think of] the time when He shall gather you all together unto the Day of the [Last] Gathering - that Day of Loss and Gain! For, as for him who shall have believed in God and done what is just and right, He will [on that Day] efface his bad deeds, and will admit him into gardens through which running waters flow, therein to abide beyond the count of time: that will be a triumph supreme!
  <!--END_SECTION:quran-->
 
   
