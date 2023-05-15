@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 13**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 18**
 
-Behold, [in the life to come] the truly virtuous: will indeed be in bliss,
+And at the sky, how it is raised aloft?
  <!--END_SECTION:quran-->
 
   
