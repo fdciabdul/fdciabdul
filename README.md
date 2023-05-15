@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 117**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 3**
 
-A brief enjoyment [may be theirs in this world] -but grievous suffering awaits them [in the life to come]!
+He has created the heavens and the earth in accordance with [an inner] truth, and has formed you - and formed you so well; and with Him is your journey's end.
  <!--END_SECTION:quran-->
 
   
