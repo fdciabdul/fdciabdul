@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 11**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 29**
 
-Thereupon he came out of the sanctuary unto his people and signified to them [by gestures]: "Extol His limitless glory by day and by night!"
+enter, then, together with My [other true] servants –
  <!--END_SECTION:quran-->
 
   
