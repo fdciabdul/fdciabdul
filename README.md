@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 8**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 10**
 
-Or: “[Why has not] a treasure been granted to him [by God]?” Or: “He should [at least] have a [bountiful] garden, so that he could eat thereof [without effort]!” And so these evildoers say [unto one another], “If you were to follow [Muhammad, you would follow] but a man bewitched!”
+and truly lost is he who buries it [in darkness].
  <!--END_SECTION:quran-->
 
   
