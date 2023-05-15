@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 24**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 34**
 
-Hence, give them the tiding of grievous suffering [in the life to come] –
+And so, on the Day when those who were bent on denying the truth will be brought within sight of the fire [and will be asked], “Is not this the truth?” - they will answer, “Yea, by Our Sustainer!” [And] He will say: “Taste, then, this suffering as an outcome of your denial of the truth!”
  <!--END_SECTION:quran-->
 
   
