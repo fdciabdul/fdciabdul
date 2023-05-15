@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 8**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 23**
 
-"'And [so it happened] that we reached out towards heaven: but we found it filled with mighty guards and flames,
+like unto pearls [still] hidden in their shells.
  <!--END_SECTION:quran-->
 
   
