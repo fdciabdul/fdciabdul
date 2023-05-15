@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 77**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 3**
 
-until We open before them a gate of [truly] severe suffering [in the life to come]: and then, lo! they will be broken in spirit.
+And place thy trust in God [alone]: for none is as worthy of trust as God.
  <!--END_SECTION:quran-->
 
   
