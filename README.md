@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 6**
 
-which smote them with stone-hard blows of chastisement pre-ordained,
+and believes in the truth of the ultimate good
  <!--END_SECTION:quran-->
 
   
