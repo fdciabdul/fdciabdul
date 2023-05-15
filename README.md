@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 3**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 49**
 
-The Night of Destiny is better than a thousand months:
+even though a short while ago, [just] before it was sent down upon them, they had abandoned all hope!
  <!--END_SECTION:quran-->
 
   
