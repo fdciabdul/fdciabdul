@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 29**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 60**
 
-Or do they in whose hearts is disease think, perchance, that God would never bring their moral failings to light?
+Said some [of them]: “We heard a youth speak of these [gods with scorn]: he is called Abraham.”
  <!--END_SECTION:quran-->
 
   
