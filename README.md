@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 10**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 117**
 
-And they will add: "Had we but listened [to those warnings], or [at least] used our own reason, we would not [now] be among those who are destined for the blazing flame!"
+A brief enjoyment [may be theirs in this world] -but grievous suffering awaits them [in the life to come]!
  <!--END_SECTION:quran-->
 
   
