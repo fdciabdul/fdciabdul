@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 58**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 1**
 
-for, whenever any of them is given the glad tiding of [the birth of] a girl, his face darkens, and he is filled with suppressed anger,
+DOOMED are the hands of him of the glowing countence: and doomed is he!
  <!--END_SECTION:quran-->
 
   
