@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 9**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 19**
 
-Therefore, the orphan shalt thou never wrong,
+And immortal youths will wait upon them: when thou seest them, thou wouldst deem them to be scattered pearls;
  <!--END_SECTION:quran-->
 
   
