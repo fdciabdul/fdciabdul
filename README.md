@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 62**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 48**
 
-[The hypocrites] swear to you by God [that they are acting in good faith], with a view to pleasing you [O believers] - the while it is God and His Apostle whose pleasure they should seek above all else, if indeed they are believers!
+[two gardens] of many wondrous hues.
  <!--END_SECTION:quran-->
 
   
