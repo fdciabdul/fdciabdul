@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 45**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 6**
 
-Thou art but [sent] to warn those who stand in awe of it.
+Guide us the straight way.
  <!--END_SECTION:quran-->
 
   
