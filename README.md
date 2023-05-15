@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 29**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 10**
 
-enter, then, together with My [other true] servants –
+O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?
  <!--END_SECTION:quran-->
 
   
