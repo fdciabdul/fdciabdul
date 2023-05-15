@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 65**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
 
-But they cruelly slaughtered her. And thereupon [Salih] said: "[Only] for three days [more] shall you enjoy life in your homes: this is a judgment which will not be belied!"
+WHEN GOD'S SUCCOUR comes, and victory,
  <!--END_SECTION:quran-->
 
   
