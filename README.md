@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 9**
 
-"and from the evil of the black darkness whenever it descends,
+Therefore, the orphan shalt thou never wrong,
  <!--END_SECTION:quran-->
 
   
