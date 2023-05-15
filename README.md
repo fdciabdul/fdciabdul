@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 37**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
 
-And [think of] the people of Noah: when they gave the lie to [one of] the apostles, We caused them to drown, and made them a symbol for all mankind: for, grievous suffering have We readied for all who [knowingly] do wrong!
+Let them, therefore, worship the Sustainer of this Temple;
  <!--END_SECTION:quran-->
 
   
