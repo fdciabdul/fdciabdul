@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 1**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 57**
 
-SO THAT the Quraysh might remain secure,
+Greater indeed than the creation of man is the creation of the heavens and the earth: yet most men do not understand [what this implies].
  <!--END_SECTION:quran-->
 
   
