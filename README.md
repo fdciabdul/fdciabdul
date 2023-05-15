@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 25**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
 
-This is nothing but the word of mortal man!"
+"and from the evil of the black darkness whenever it descends,
  <!--END_SECTION:quran-->
 
   
