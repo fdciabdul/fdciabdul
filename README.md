@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 40**
 
-Let them, therefore, worship the Sustainer of this Temple;
+VERILY, unto those who give the lie to Our messages and scorn them in their pride, the gates of heaven shall not be opened; and they shall not enter paradise any more than a twisted rope can pass through a needle's eye: for thus do We requite such as are lost in sin.
  <!--END_SECTION:quran-->
 
   
