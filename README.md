@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 32**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 34**
 
-[And remember that] it is God who has created the heavens and the earth, and who sends down water from the sky and thereby brings forth [all manner] of fruits for your sustenance; and who has made ships subservient to. you, so that they may sail through the sea at His behest; and has made the rivers subservient [to His laws, so that they be of use] to you;
+[as if] to prove their ingratitude for all that We have granted them! Enjoy, then, your [brief] life: but in time you will come to know [the truth]!
  <!--END_SECTION:quran-->
 
   
