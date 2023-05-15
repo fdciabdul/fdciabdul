@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 6**
 
-WHEN GOD'S SUCCOUR comes, and victory,
+Unto you, your moral law, and unto me, mine!"
  <!--END_SECTION:quran-->
 
   
