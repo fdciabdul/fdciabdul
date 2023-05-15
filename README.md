@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 25**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 14**
 
-for behold, unto Us will be their return,
+O YOU who have attained to faith! Be helpers [in the cause of God - even as Jesus, the son of Mary, said unto the white-garbed ones, "Who will be my helpers in God's cause?" - whereupon the white-garbed [disciples] replied, "We shall be [thy] helpers [in the cause] of God!" And so [it happened that] some of the children of Israel came to believe [in the apostleship of Jesus], whereas others denied the truth. But [now] We have given strength against their foes unto those who have [truly] attained to faith: and they have become the ones that shall prevail.
  <!--END_SECTION:quran-->
 
   
