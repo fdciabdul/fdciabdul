@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 23**
+**Surah 38: سُورَةُ صٓ (Saad) - 1**
 
-like unto pearls [still] hidden in their shells.
+Sad. CONSIDER this Qur’an, endowed with all that one ought to remember!
  <!--END_SECTION:quran-->
 
   
