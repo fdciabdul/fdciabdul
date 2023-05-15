@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 18**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 13**
 
-And at the sky, how it is raised aloft?
+Yet most certainly will they have to bear their own burdens, and other burdens besides their own; and most certainly will they be called to account on Resurrection Day for all their false assertions!
  <!--END_SECTION:quran-->
 
   
