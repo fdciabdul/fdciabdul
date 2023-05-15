@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 42**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 51**
 
-no falsehood can ever attain to it openly, and neither in a stealthy manner, [since it is] bestowed from on high by One who is truly wise, ever to be praised.
+and when We appointed for Moses forty nights [on Mount Sinai], and in his absence you took to worshipping the [golden] calf, and thus became evildoers:
  <!--END_SECTION:quran-->
 
   
