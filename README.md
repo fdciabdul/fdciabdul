@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 3**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
 
-Most loathsome is it in the sight of God that you say what you do not do!
+SAY: "I seek refuge with the Sustainer of men,
  <!--END_SECTION:quran-->
 
   
