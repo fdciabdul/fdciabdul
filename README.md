@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 10**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 49**
 
-and all that is [hidden] in men's hearts is bared
+For on that Day thou wilt see all who were lost in sin linked together in fetters,
  <!--END_SECTION:quran-->
 
   
