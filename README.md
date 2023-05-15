@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 34**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 9**
 
-And so, on the Day when those who were bent on denying the truth will be brought within sight of the fire [and will be asked], “Is not this the truth?” - they will answer, “Yea, by Our Sustainer!” [And] He will say: “Taste, then, this suffering as an outcome of your denial of the truth!”
+O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!
  <!--END_SECTION:quran-->
 
   
