@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 19**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
 
-And immortal youths will wait upon them: when thou seest them, thou wouldst deem them to be scattered pearls;
+which smote them with stone-hard blows of chastisement pre-ordained,
  <!--END_SECTION:quran-->
 
   
