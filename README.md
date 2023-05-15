@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 65**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 6**
 
-But then they relapsed into their former way of thinking and said: “Thou knowest very well that these [idols] cannot speak!”
+And then, he whose weight [of good deeds] is heavy in the balance
  <!--END_SECTION:quran-->
 
   
