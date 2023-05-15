@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 19**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 5**
 
-Hence, [warn all men of] the Day when the enemies of God shall be gathered together before the fire, and then shall be driven onward,
+whose hearts from their prayer are remote
  <!--END_SECTION:quran-->
 
   
