@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 9**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 62**
 
-O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!
+[The hypocrites] swear to you by God [that they are acting in good faith], with a view to pleasing you [O believers] - the while it is God and His Apostle whose pleasure they should seek above all else, if indeed they are believers!
  <!--END_SECTION:quran-->
 
   
