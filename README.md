@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 13**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 28**
 
-AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.
+Woe on that Day unto those who give the lie to the truth!
  <!--END_SECTION:quran-->
 
   
