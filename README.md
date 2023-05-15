@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 3**
 
-extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
+The Night of Destiny is better than a thousand months:
  <!--END_SECTION:quran-->
 
   
