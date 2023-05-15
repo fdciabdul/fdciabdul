@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 45**
 
-hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
+Thou art but [sent] to warn those who stand in awe of it.
  <!--END_SECTION:quran-->
 
   
