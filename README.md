@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 5**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 58**
 
-whose hearts from their prayer are remote
+for, whenever any of them is given the glad tiding of [the birth of] a girl, his face darkens, and he is filled with suppressed anger,
  <!--END_SECTION:quran-->
 
   
