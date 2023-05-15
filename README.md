@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 19**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 7**
 
-and [likewise] the birds in their assemblies: [together] they all Would turn again and again unto Him [who had created them].
+When they are cast into that [hell], they will hear its breath indrawing as it boils up,
  <!--END_SECTION:quran-->
 
   
