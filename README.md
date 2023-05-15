@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 32**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 3**
 
-which – behold!- will throw up sparks like [burning] logs,
+Yea, indeed, We did test those who lived before them; and so, [too, shall be tested the people now living: and] most certainly will God mark out those who prove themselves true, and most certainly will He mark out those who are lying.
  <!--END_SECTION:quran-->
 
   
