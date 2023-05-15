@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 60**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 41**
 
-Said some [of them]: “We heard a youth speak of these [gods with scorn]: he is called Abraham.”
+of those who were lost in sin:
  <!--END_SECTION:quran-->
 
   
