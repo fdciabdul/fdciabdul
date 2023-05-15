@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 6**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 46**
 
-For, [as thou hast been shown in thy dream,] even thus will thy Sustainer elect thee, and will impart unto thee some understanding of the inner meaning of happenings, and will bestow the full measure of His blessings upon thee and upon the House of Jacob -even as, aforetime, He bestowed it in full measure upon thy forefathers Abraham and Isaac. Verily, thy Sustainer is all-knowing, wise!"
+and will have no protector whatever to succour them against God: for he whom God lets go astray shall find no way [of escape].
  <!--END_SECTION:quran-->
 
   
