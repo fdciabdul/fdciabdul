@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 51**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 10**
 
-The only response of believers, whenever they are summoned unto God and His Apostle in order that [the divine writ] might judge between them, can be no other than, “We have heard, and we pay heed!”- and it is they, they who shall attain to a happy state:
+And when the prayer is ended, disperse freely on earth and seek to obtain [something] of God's bounty; but remember God often, so that you might attain to a happy state!
  <!--END_SECTION:quran-->
 
   
