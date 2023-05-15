@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 34**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 2**
 
-[as if] to prove their ingratitude for all that We have granted them! Enjoy, then, your [brief] life: but in time you will come to know [the truth]!
+"the Sovereign of men,
  <!--END_SECTION:quran-->
 
   
