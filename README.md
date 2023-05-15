@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 4**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 9**
 
-for, indeed, the life to come will be better for thee than this earlier part [of thy life]!
+[saying, in their hearts,] "We feed you for the sake of God alone: we desire no recompense from you, nor thanks:
  <!--END_SECTION:quran-->
 
   
