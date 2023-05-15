@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 37**
 
-Let them, therefore, worship the Sustainer of this Temple;
+which none but the sinners eat!"
  <!--END_SECTION:quran-->
 
   
