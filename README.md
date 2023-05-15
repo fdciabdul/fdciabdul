@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 51**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 14**
 
-and when We appointed for Moses forty nights [on Mount Sinai], and in his absence you took to worshipping the [golden] calf, and thus became evildoers:
+and to whose life I gave so wide a scope:
  <!--END_SECTION:quran-->
 
   
