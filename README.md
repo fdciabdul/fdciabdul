@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 67**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 8**
 
-And they will say: “O our Sustainer! Behold, we paid heed unto our leaders and our great men, and it is they who have led us astray from the right path!
+verily, it will close in upon them
  <!--END_SECTION:quran-->
 
   
