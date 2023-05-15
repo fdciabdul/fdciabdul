@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 28**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 10**
 
-Woe on that Day unto those who give the lie to the truth!
+And they will add: "Had we but listened [to those warnings], or [at least] used our own reason, we would not [now] be among those who are destined for the blazing flame!"
  <!--END_SECTION:quran-->
 
   
