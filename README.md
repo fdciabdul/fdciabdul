@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 10**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 6**
 
-And when the prayer is ended, disperse freely on earth and seek to obtain [something] of God's bounty; but remember God often, so that you might attain to a happy state!
+For, [as thou hast been shown in thy dream,] even thus will thy Sustainer elect thee, and will impart unto thee some understanding of the inner meaning of happenings, and will bestow the full measure of His blessings upon thee and upon the House of Jacob -even as, aforetime, He bestowed it in full measure upon thy forefathers Abraham and Isaac. Verily, thy Sustainer is all-knowing, wise!"
  <!--END_SECTION:quran-->
 
   
