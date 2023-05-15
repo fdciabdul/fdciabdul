@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 57**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 3**
 
-Greater indeed than the creation of man is the creation of the heavens and the earth: yet most men do not understand [what this implies].
+Most loathsome is it in the sight of God that you say what you do not do!
  <!--END_SECTION:quran-->
 
   
