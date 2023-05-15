@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 18**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 32**
 
-and the morn as it softly breathes:
+[And remember that] it is God who has created the heavens and the earth, and who sends down water from the sky and thereby brings forth [all manner] of fruits for your sustenance; and who has made ships subservient to. you, so that they may sail through the sea at His behest; and has made the rivers subservient [to His laws, so that they be of use] to you;
  <!--END_SECTION:quran-->
 
   
