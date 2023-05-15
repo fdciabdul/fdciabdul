@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 16**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 16**
 
-Say: “Do you, perchance, [want to] inform God of [the nature of] your faith although God knows all that is in the heavens and all that is on earth? Indeed, God has full knowledge of every­thing!”
+MOVE NOT thy tongue in haste, [repeating the words of the revelation:]
  <!--END_SECTION:quran-->
 
   
