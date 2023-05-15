@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 40**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 49**
 
-VERILY, unto those who give the lie to Our messages and scorn them in their pride, the gates of heaven shall not be opened; and they shall not enter paradise any more than a twisted rope can pass through a needle's eye: for thus do We requite such as are lost in sin.
+Say: “Produce, then, [another] revelation from God which would offer better guidance than either of these two [and] I shall follow it, if you speak the truth!”
  <!--END_SECTION:quran-->
 
   
