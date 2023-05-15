@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 48**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 19**
 
-[two gardens] of many wondrous hues.
+Hence, [warn all men of] the Day when the enemies of God shall be gathered together before the fire, and then shall be driven onward,
  <!--END_SECTION:quran-->
 
   
