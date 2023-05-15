@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 49**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 12**
 
-even though a short while ago, [just] before it was sent down upon them, they had abandoned all hope!
+he who [in the life to come] shall have to endure the great fire
  <!--END_SECTION:quran-->
 
   
