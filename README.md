@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 1**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 42**
 
-DOOMED are the hands of him of the glowing countence: and doomed is he!
+no falsehood can ever attain to it openly, and neither in a stealthy manner, [since it is] bestowed from on high by One who is truly wise, ever to be praised.
  <!--END_SECTION:quran-->
 
   
