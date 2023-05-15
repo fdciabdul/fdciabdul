@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 6**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 29**
 
-And then, he whose weight [of good deeds] is heavy in the balance
+Or do they in whose hearts is disease think, perchance, that God would never bring their moral failings to light?
  <!--END_SECTION:quran-->
 
   
