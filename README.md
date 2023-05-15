@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 30**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 21**
 
-Say [unto those who deny the truth]: "What do you think? If of a sudden all your water were to vanish underground, who [but God] could provide you with water from [new] unsullied springs?"
+He causes to suffer whomever He wills, and bestows His mercy on whomever He wills; and unto Him you shall be made to return:
  <!--END_SECTION:quran-->
 
   
