@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 21**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 11**
 
-He causes to suffer whomever He wills, and bestows His mercy on whomever He wills; and unto Him you shall be made to return:
+Thereupon he came out of the sanctuary unto his people and signified to them [by gestures]: "Extol His limitless glory by day and by night!"
  <!--END_SECTION:quran-->
 
   
