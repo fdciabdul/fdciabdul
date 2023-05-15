@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 34**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 74**
 
-[and so,] behold, We let loose upon them a deadly tempest; and only Lot ’s kinsfolk did We save at the break of dawn,
+side by side with God?” They will answer: “They have forsaken us - or, rather, what we were wont to invoke aforetime did not exist at all!” And they will be told:] “It is thus that God lets the deniers of the truth go astray:
  <!--END_SECTION:quran-->
 
   
