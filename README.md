@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 19**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 7**
 
-Are then they [who deny the truth] not aware of how God creates [life] in the first instance, and then brings it forth anew? This, verily, is easy for God!
+Whatever [spoils taken] from the people of those villages God has turned over to His Apostle - [all of it] belongs to God and the Apostle, and the near of kin [of deceased believers], and the orphans, and the needy, and the wayfarer, so that it may not be [a benefit] going round and round among such of you as may [already] be rich. Hence, accept [willing­ly] whatever the Apostle* gives you [thereof], and refrain from [demanding] anything that he withholds from you; and remain conscious of God: for, verily, God is severe in retribution.
  <!--END_SECTION:quran-->
 
   
