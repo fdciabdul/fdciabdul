@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 77**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 44**
 
-SAY [unto those who believe]: “No weight or value would my Sustainer attach to you were it not for your faith [in Him]!” And say unto those who deny the truth:] “You have indeed given the lie [to God’s message], and in time this [sin] will cleave unto you!”
+AND YET, if they [who refuse to see the truth] were to see part of the sky falling down, they would [only] say, “[It is but] a mass of clouds!”
  <!--END_SECTION:quran-->
 
   
