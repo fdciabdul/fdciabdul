@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 34**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 26**
 
-But [ere this], indeed, We had tried Solomon by placing upon his throne a [lifeless] body; and thereupon he turned [towards Us; and]
+[Hence,] I shall cause him to endure hell-fire [in the life to come]!
  <!--END_SECTION:quran-->
 
   
