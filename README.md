@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 30**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 17**
 
-But you cannot will it unless God wills [to show you that way]: for, behold, God is indeed all-seeing, wise.
+AND, INDEED, [long] before their time did We try Pharaoh’s people [in the same way]: for there came unto them a noble apostle, [who said:]
  <!--END_SECTION:quran-->
 
   
