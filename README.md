@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 27**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 20**
 
-And what could make thee conceive what hell-fire is?
+nor are the depths of darkness and the light;
  <!--END_SECTION:quran-->
 
   
