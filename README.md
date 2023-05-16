@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 55**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 1**
 
-and whoever wills may take it to heart.
+WOE unto every slanderer, fault-finder!
  <!--END_SECTION:quran-->
 
   
