@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 20**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 11**
 
-nor are the depths of darkness and the light;
+enveloping all mankind, [and causing the sinners to exclaim:] “Grievous is this suffering!
  <!--END_SECTION:quran-->
 
   
