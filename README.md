@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 47**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 55**
 
-and none of you could have saved him!
+and whoever wills may take it to heart.
  <!--END_SECTION:quran-->
 
   
