@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
 
-What will his wealth avail him, and all that he has gained?
+"and from the evil of the envious when he envies."
  <!--END_SECTION:quran-->
 
   
