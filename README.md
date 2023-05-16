@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 23**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 30**
 
-God is He save whom there is no deity: the Sovereign Supreme, the Holy, the One with whom all salvation rests, the Giver of Faith, the One who determines what is true and false, the Almighty, the One who subdues wrong and restores right, the One to whom all greatness belongs! Utterly remote is God, in His limitless glory, from anything to which men may ascribe a share in His divinity!
+But you cannot will it unless God wills [to show you that way]: for, behold, God is indeed all-seeing, wise.
  <!--END_SECTION:quran-->
 
   
