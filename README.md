@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 27**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 14**
 
-Say: “Point out to me those [beings] that you have joined with Him [in your minds] as partners [in His divinity]! Nay - nay, but He [alone] is God, the Almighty, the Wise!”
+and then, lo, they will be fully awakened [to the truth]!
  <!--END_SECTION:quran-->
 
   
