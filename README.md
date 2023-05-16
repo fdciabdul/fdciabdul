@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 145**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 24**
 
-And no human being can die save by God's leave, at a term pre-ordained. And if one desires the rewards of this world, We shall grant him thereof; and if one desires the rewards of the life to come, We shall grant him thereof; and We shall requite those who are grateful [to Us].
+and he is not one to begrudge others the knowledge [of whatever has been revealed to him] out of that which is beyond the reach of human Perception.
  <!--END_SECTION:quran-->
 
   
