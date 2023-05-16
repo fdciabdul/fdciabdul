@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 3**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 30**
 
-But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.
+But you cannot will it unless God wills [to show you that way]: for, behold, God is indeed all-seeing, wise.
  <!--END_SECTION:quran-->
 
   
