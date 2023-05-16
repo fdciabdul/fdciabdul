@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 16**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 145**
 
-NOW, VERILY, it is We who have created man, and We know what his innermost self whispers within him: for We are closer to him than his neck-vein.
+And no human being can die save by God's leave, at a term pre-ordained. And if one desires the rewards of this world, We shall grant him thereof; and if one desires the rewards of the life to come, We shall grant him thereof; and We shall requite those who are grateful [to Us].
  <!--END_SECTION:quran-->
 
   
