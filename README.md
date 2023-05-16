@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 16**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 16**
 
-and gardens dense with follage.
+and carpets spread out…
  <!--END_SECTION:quran-->
 
   
