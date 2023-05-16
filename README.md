@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 41**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 30**
 
-[We destroyed them,] and We set them up as archetypes [of evil] that show the way to the fire [of hell]; and [whereas] no succour will come to them on Resurrection Day,
+[And] he prayed: “O my Sustainer! Succour Thou me against these people who spread corrup­tion!”
  <!--END_SECTION:quran-->
 
   
