@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 1**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 30**
 
-CLOSER DRAWS unto men their reckoning: and yet they remain stubbornly heedless [of its approach].
+Thereupon exclaimed he who had attained to faith: “O my people! Verily, I fear for you the like of what one day befell those others who were leagued together [against God’s truth] –
  <!--END_SECTION:quran-->
 
   
