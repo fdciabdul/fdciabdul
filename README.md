@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 20**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 11**
 
-nor are the depths of darkness and the light;
+You are to believe in God and His Apostle, and to strive hard in God's cause with your possessions and your lives: this is for your own good - if you but knew it!
  <!--END_SECTION:quran-->
 
   
