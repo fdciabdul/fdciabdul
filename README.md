@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 30**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 37**
 
-Thereupon exclaimed he who had attained to faith: “O my people! Verily, I fear for you the like of what one day befell those others who were leagued together [against God’s truth] –
+And walk not on earth with haughty self-conceit: for, verily, thou canst never rend the earth asunder, nor canst thou ever grow as tall as the mountains!
  <!--END_SECTION:quran-->
 
   
