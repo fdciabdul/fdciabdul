@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 3**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 110**
 
-of one-half thereof - or make it a little less than that,
+“Verily, He knows all that is said openly, just as He [alone] knows all that you would conceal.
  <!--END_SECTION:quran-->
 
   
