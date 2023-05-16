@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 2**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 25**
 
-this land in which thou art free to dwell -
+for such as ask [for help] and such as are deprived [of what is good in life];
  <!--END_SECTION:quran-->
 
   
