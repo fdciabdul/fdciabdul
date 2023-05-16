@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 36**
+**Surah 38: سُورَةُ صٓ (Saad) - 67**
 
-And neither do I think that the Last Hour will ever come. But even if [it should come, and] I am brought before my Sustainer, I will surely find something even better than this as [my last] resort!"
+Say: “This is a message tremendous:
  <!--END_SECTION:quran-->
 
   
