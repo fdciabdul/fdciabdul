@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 1**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
 
-WOE unto every slanderer, fault-finder!
+ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
  <!--END_SECTION:quran-->
 
   
