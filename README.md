@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 51**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 76**
 
-Hence, [be patient,] even though they who are bent on denying the truth would all but kill thee with their eyes whenever they hear this reminder, and [though] they say, "[As for Muhammad,] behold, most surely he is a madman!"
+Say: "Would you worship, beside God, aught that has no power either to harm or to benefit you-when God alone is all-hearing, all-knowing?"
  <!--END_SECTION:quran-->
 
   
