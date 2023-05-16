@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 8**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 54**
 
-and on that Day you will most surely be called to account for [what you did with] the boon of life!
+These it is that shall receive a twofold reward for having been patient in adversity, and having repelled evil with good, and having spent on others out of what We provided for them as sus­tenance,
  <!--END_SECTION:quran-->
 
   
