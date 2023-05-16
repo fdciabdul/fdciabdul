@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 37**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 22**
 
-And walk not on earth with haughty self-conceit: for, verily, thou canst never rend the earth asunder, nor canst thou ever grow as tall as the mountains!
+[and will be told:] “Indeed, unmindful hast thou been of this [Day of Judgment]; but now We have lifted from thee thy veil, and sharp is thy sight today!”
  <!--END_SECTION:quran-->
 
   
