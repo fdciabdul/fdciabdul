@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 55**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 16**
 
-Which, then, of your Sustainer’s powers can you disavow?
+and which they shall not [be able to] evade.
  <!--END_SECTION:quran-->
 
   
