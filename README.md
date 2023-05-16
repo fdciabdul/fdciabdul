@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 26**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 77**
 
-[Hence,] I shall cause him to endure hell-fire [in the life to come]!
+SAY [unto those who believe]: “No weight or value would my Sustainer attach to you were it not for your faith [in Him]!” And say unto those who deny the truth:] “You have indeed given the lie [to God’s message], and in time this [sin] will cleave unto you!”
  <!--END_SECTION:quran-->
 
   
