@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 81**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 30**
 
-But nay, they speak as the people of olden times did speak:
+They said: “O our people! Behold, we have been listening to a revelation bestowed from on high after [that of] Moses, confirming the truth of what­ever there still remains [of the Torah]: it guides towards the truth, and onto a straight way.
  <!--END_SECTION:quran-->
 
   
