@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 14**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 2**
 
-and endowed their hearts with strength, so that they stood up and said [to one another]: "Our Sustainer is the Sustainer of the heavens and the earth. Never shall we invoke any deity other than Him: [if we did,] we should indeed have uttered an enormity!
+this land in which thou art free to dwell -
  <!--END_SECTION:quran-->
 
   
