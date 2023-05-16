@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 7**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 30**
 
-But whenever Our messages are conveyed to them in all their clarity, they who are bent on denying the truth speak thus of the truth as soon as it is brought to them: “This is clearly nothing but spell­binding eloquence!”
+Say [unto those who deny the truth]: "What do you think? If of a sudden all your water were to vanish underground, who [but God] could provide you with water from [new] unsullied springs?"
  <!--END_SECTION:quran-->
 
   
