@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 18**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 62**
 
-of Pharaoh, and of [the tribe of] Thamud?
+he said: "Behold, you are people unknown [here]!"
  <!--END_SECTION:quran-->
 
   
