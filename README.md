@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 46**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 18**
 
-and would indeed have cut his life-vein.
+of Pharaoh, and of [the tribe of] Thamud?
  <!--END_SECTION:quran-->
 
   
