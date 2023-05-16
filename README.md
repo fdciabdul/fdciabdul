@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 186**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 8**
 
-For those whom God lets go astray, there is no guide; and He shall leave them in their overweening arrogance, blindly stumbling to and fro.
+through God’s bounty and favour; and God is all-knowing, truly wise.
  <!--END_SECTION:quran-->
 
   
