@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 11**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 16**
 
-enveloping all mankind, [and causing the sinners to exclaim:] “Grievous is this suffering!
+and gardens dense with follage.
  <!--END_SECTION:quran-->
 
   
