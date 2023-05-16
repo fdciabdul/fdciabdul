@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 49**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 10**
 
-Tell My servants that I - I alone - am truly forgiving, a true dispenser of grace;
+Hell is ahead of them; and all that they may have gained [in this world] shall be of no avail whatever to them, and neither shall any of those things which, instead of God, they have come to regard as their protectors: for, awesome suffering awaits them.
  <!--END_SECTION:quran-->
 
   
