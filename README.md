@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 39**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 23**
 
-and who, whenever tyranny afflicts them, defend themselves.
+and in the end he turns his back [on Our message], and glories in his arrogance,
  <!--END_SECTION:quran-->
 
   
