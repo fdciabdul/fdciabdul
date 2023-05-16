@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 1**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 30**
 
-Alif. Lam. Ra. THESE ARE MESSAGES of revelation -of a discourse clear in itself and clearly showing the truth.
+But you cannot will it unless God wills [to show you that way]: for, behold, God is indeed all-seeing, wise.
  <!--END_SECTION:quran-->
 
   
