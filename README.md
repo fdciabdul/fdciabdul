@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 27**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 81**
 
-[But unto the righteous God will say,] "O thou human being that hast attained to inner peace!
+And thereupon We caused the earth to swallow him and his dwelling; and he had none and nothing to succour him against God, nor was he of those who could succour themselves.
  <!--END_SECTION:quran-->
 
   
