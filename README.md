@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 3**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 20**
 
-He has created the heavens and the earth in accordance with [an inner] truth, and has formed you - and formed you so well; and with Him is your journey's end.
+nor are the depths of darkness and the light;
  <!--END_SECTION:quran-->
 
   
