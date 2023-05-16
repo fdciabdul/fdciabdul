@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 103**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 75**
 
-And then Pharaoh resolved to wipe them off [the face of] the earth - whereupon We caused him and all who were with him to drown [in the sea].
+And as for those who henceforth come to believe, and who forsake the domain of evil and strive hard [in God's cause] together with you - these [too] shall belong to you; and they who are [thus] closely related have the highest claim on one another in [accordance with] God's decree. Verily, God has full knowledge of everything.
  <!--END_SECTION:quran-->
 
   
