@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 18**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 29**
 
-Verily, [all] this has indeed been [said] in the earlier revelations –
+[and so it is that] they who attain to faith and do righteous deeds are destined for happiness [in this world] and the most beauteous of all goals [in the life to come]!"
  <!--END_SECTION:quran-->
 
   
