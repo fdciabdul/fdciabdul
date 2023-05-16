@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 202**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 18**
 
-that will come upon them [on resurrection,] all of a sudden, without their being aware [of its approach];
+Verily, [all] this has indeed been [said] in the earlier revelations –
  <!--END_SECTION:quran-->
 
   
