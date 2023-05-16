@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 13**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 48**
 
-God - there is no deity save Him! In God then let the believers place their trust.
+And [so it is that] whenever they are summoned unto God and His Apostle in order that [the divine writ] might judge between them, lo! some of them turn away;
  <!--END_SECTION:quran-->
 
   
