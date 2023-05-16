@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 10**
 
-and neither will you [ever] worship that which I worship.
+He who desires might and glory [ought to know that] all might and glory belong to God [alone]. Unto Him ascend all good words, and the righteous deed does He exalt. But as for those who cunningly devise evil deeds - suffering severe awaits them; and all their devising is bound to come to nought.
  <!--END_SECTION:quran-->
 
   
