@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 81**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 103**
 
-just as thou canst not lead the blind [of heart] out of their error; none canst thou make hear save such as [are willing to] believe in Our messages, and thus surrender themselves unto Us.
+And then Pharaoh resolved to wipe them off [the face of] the earth - whereupon We caused him and all who were with him to drown [in the sea].
  <!--END_SECTION:quran-->
 
   
