@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 20**
+**Surah 38: سُورَةُ صٓ (Saad) - 34**
 
-as well as [in] Manat, the third and last [of this triad]?
+But [ere this], indeed, We had tried Solomon by placing upon his throne a [lifeless] body; and thereupon he turned [towards Us; and]
  <!--END_SECTION:quran-->
 
   
