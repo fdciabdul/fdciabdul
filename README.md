@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 10**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 39**
 
-And thus did [God] reveal unto His servant whatever He deemed right to reveal.
+and who, whenever tyranny afflicts them, defend themselves.
  <!--END_SECTION:quran-->
 
   
