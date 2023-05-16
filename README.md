@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 11**
 
-Verily, man is bound to lose himself
+noble, recording,
  <!--END_SECTION:quran-->
 
   
