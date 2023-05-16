@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 19**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 5**
 
-not as payment for favours received,
+Verily, that which you are promised is true indeed,
  <!--END_SECTION:quran-->
 
   
