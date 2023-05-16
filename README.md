@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 29**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 19**
 
-[and so it is that] they who attain to faith and do righteous deeds are destined for happiness [in this world] and the most beauteous of all goals [in the life to come]!"
+Out of a drop of sperm He creates him, and thereupon determines his nature,
  <!--END_SECTION:quran-->
 
   
