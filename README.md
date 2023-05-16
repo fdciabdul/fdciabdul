@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 7**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 47**
 
-BELIEVE in God and His Apostle, and spend on others out of that of which He has made you trus­tees: for, those of you who have attained to faith and who spend freely [in God’s cause] shall have a great reward.
+and none of you could have saved him!
  <!--END_SECTION:quran-->
 
   
