@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 5**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-and [one day] thou shalt see, and they [who now deride thee] shall see,
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
