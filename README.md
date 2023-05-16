@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 25**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 124**
 
-for such as ask [for help] and such as are deprived [of what is good in life];
+And whenever. a [divine] message comes to them, they say, "We shall not believe unless we are given the like of what God's apostles were given!" [But] God knows best upon whom to bestow His message. Abasement in the sight of God will befall those who have become guilty of evildoing, and suffering severe for all the schemes which they were wont to weave.
  <!--END_SECTION:quran-->
 
   
