@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 8**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 6**
 
-Art thou not aware of such as have been for­bidden [to intrigue through] secret confabulations, and yet [always] revert to that which they have been forbidden, and conspire with one another with a view to sinful doings, and aggressive conduct, and dis­obedience to the Apostle? Now whenever such [people] approach thee, [O Muhammad,] they salute thee with a greeting which God has never countenanced; and they say to themselves, “Why does not God chastise us for what we are saying?” Hell shall be their allotted portion: they shall [in­deed] enter it - and how vile a journey’s end!
+ART THOU NOT aware of how thy Sustainer has dealt with [the tribe of] ‘Ad,
  <!--END_SECTION:quran-->
 
   
