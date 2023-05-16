@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 12**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 10**
 
-HE IT IS who displays before you the lightning, to give rise to [both] fear and hope, and calls heavy clouds into being;
+And thus did [God] reveal unto His servant whatever He deemed right to reveal.
  <!--END_SECTION:quran-->
 
   
