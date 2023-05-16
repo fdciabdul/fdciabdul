@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 16**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 5**
 
-and gardens dense with follage.
+and [one day] thou shalt see, and they [who now deride thee] shall see,
  <!--END_SECTION:quran-->
 
   
