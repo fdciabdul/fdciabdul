@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 17**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 8**
 
-AND, INDEED, [long] before their time did We try Pharaoh’s people [in the same way]: for there came unto them a noble apostle, [who said:]
+and on that Day you will most surely be called to account for [what you did with] the boon of life!
  <!--END_SECTION:quran-->
 
   
