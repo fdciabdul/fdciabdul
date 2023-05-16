@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 57**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 5**
 
-He said: "Hash thou come to drive us out of our land by thy sorcery, O Moses?
+thereby storming [blindly] into any host!
  <!--END_SECTION:quran-->
 
   
