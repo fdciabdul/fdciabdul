@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 8**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 41**
 
-through God’s bounty and favour; and God is all-knowing, truly wise.
+[We destroyed them,] and We set them up as archetypes [of evil] that show the way to the fire [of hell]; and [whereas] no succour will come to them on Resurrection Day,
  <!--END_SECTION:quran-->
 
   
