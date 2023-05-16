@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 41**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 1**
 
-"[And now,] O my companions in imprisonment, [I shall tell you the meaning of your dreams:] as for one of you two, he will [again] give his lord [the King] wine to drink; but as for the other, he will be crucified, and birds will eat off his head. [But whatever be your future,] the matter on which you have asked me to enlighten you has been decided [by God]."
+Alif. Lam. Ra. THESE ARE MESSAGES of revelation -of a discourse clear in itself and clearly showing the truth.
  <!--END_SECTION:quran-->
 
   
