@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 30**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 81**
 
-But you cannot will it unless God wills [to show you that way]: for, behold, God is indeed all-seeing, wise.
+But nay, they speak as the people of olden times did speak:
  <!--END_SECTION:quran-->
 
   
