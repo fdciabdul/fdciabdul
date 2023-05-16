@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 11**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 19**
 
-noble, recording,
+not as payment for favours received,
  <!--END_SECTION:quran-->
 
   
