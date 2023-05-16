@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 10**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 46**
 
-He who desires might and glory [ought to know that] all might and glory belong to God [alone]. Unto Him ascend all good words, and the righteous deed does He exalt. But as for those who cunningly devise evil deeds - suffering severe awaits them; and all their devising is bound to come to nought.
+and would indeed have cut his life-vein.
  <!--END_SECTION:quran-->
 
   
