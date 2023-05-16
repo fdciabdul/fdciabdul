@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 5**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 3**
 
-thereby storming [blindly] into any host!
+But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.
  <!--END_SECTION:quran-->
 
   
