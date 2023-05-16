@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
 
-ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
+and neither will you [ever] worship that which I worship.
  <!--END_SECTION:quran-->
 
   
