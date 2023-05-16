@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 19**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 41**
 
-Out of a drop of sperm He creates him, and thereupon determines his nature,
+"[And now,] O my companions in imprisonment, [I shall tell you the meaning of your dreams:] as for one of you two, he will [again] give his lord [the King] wine to drink; but as for the other, he will be crucified, and birds will eat off his head. [But whatever be your future,] the matter on which you have asked me to enlighten you has been decided [by God]."
  <!--END_SECTION:quran-->
 
   
