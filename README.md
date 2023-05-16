@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 76**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 3**
 
-Say: "Would you worship, beside God, aught that has no power either to harm or to benefit you-when God alone is all-hearing, all-knowing?"
+of one-half thereof - or make it a little less than that,
  <!--END_SECTION:quran-->
 
   
