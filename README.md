@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 30**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 13**
 
-Say [unto those who deny the truth]: "What do you think? If of a sudden all your water were to vanish underground, who [but God] could provide you with water from [new] unsullied springs?"
+God - there is no deity save Him! In God then let the believers place their trust.
  <!--END_SECTION:quran-->
 
   
