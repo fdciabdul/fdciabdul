@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 15**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 12**
 
-[To both kinds of your enemies, O believers, is bound to happen] the like of [what happened to] those who, a short while before them, had to taste the evil that came from their own doings, with [yet more] grievous suffering awaiting them [in the life to come]:
+HE IT IS who displays before you the lightning, to give rise to [both] fear and hope, and calls heavy clouds into being;
  <!--END_SECTION:quran-->
 
   
