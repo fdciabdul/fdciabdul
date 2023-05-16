@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 110**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 16**
 
-“Verily, He knows all that is said openly, just as He [alone] knows all that you would conceal.
+NOW, VERILY, it is We who have created man, and We know what his innermost self whispers within him: for We are closer to him than his neck-vein.
  <!--END_SECTION:quran-->
 
   
