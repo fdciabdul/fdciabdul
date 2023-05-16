@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 48**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 4**
 
-And [so it is that] whenever they are summoned unto God and His Apostle in order that [the divine writ] might judge between them, lo! some of them turn away;
+"and from the evil of all human beings bent on occult endeavours,
  <!--END_SECTION:quran-->
 
   
