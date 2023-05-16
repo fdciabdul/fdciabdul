@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 1**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 36**
 
-ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: His is all dominion, and to Him all praise is due; and He has the power to will anything.
+And neither do I think that the Last Hour will ever come. But even if [it should come, and] I am brought before my Sustainer, I will surely find something even better than this as [my last] resort!"
  <!--END_SECTION:quran-->
 
   
