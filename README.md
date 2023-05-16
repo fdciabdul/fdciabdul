@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 4**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 81**
 
-Verily, We have created man into [a life of] pain, toil and trial.
+just as thou canst not lead the blind [of heart] out of their error; none canst thou make hear save such as [are willing to] believe in Our messages, and thus surrender themselves unto Us.
  <!--END_SECTION:quran-->
 
   
