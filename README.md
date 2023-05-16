@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 55**
 
-"and from the evil of the envious when he envies."
+Which, then, of your Sustainer’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
