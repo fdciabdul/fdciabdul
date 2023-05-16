@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 30**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 33**
 
-But you cannot will it unless God wills [to show you that way]: for, behold, God is indeed all-seeing, wise.
+to let loose upon them stone-hard blows of chastisement,
  <!--END_SECTION:quran-->
 
   
