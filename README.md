@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 1**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 78**
 
-Sad. CONSIDER this Qur’an, endowed with all that one ought to remember!
+HALLOWED be thy Sustainer’s name, full of majesty and glory!
  <!--END_SECTION:quran-->
 
   
