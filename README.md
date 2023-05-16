@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 21**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 37**
 
-AND REMEMBER that brother of [the tribe of] Ad, how - seeing that [other] warnings had already come and gone within his own knowledge as well as in times beyond his ken - he warned his people [who lived] among those sand-dunes: “Worship none but God! Verily, I fear lest suffering befall you on an awesome day!”
+But they gave him the lie. Thereupon an earthquake overtook them: and then they lay lifeless, in their very homes, on the ground.
  <!--END_SECTION:quran-->
 
   
