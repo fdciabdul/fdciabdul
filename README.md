@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 37**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 51**
 
-But they gave him the lie. Thereupon an earthquake overtook them: and then they lay lifeless, in their very homes, on the ground.
+Hence, [be patient,] even though they who are bent on denying the truth would all but kill thee with their eyes whenever they hear this reminder, and [though] they say, "[As for Muhammad,] behold, most surely he is a madman!"
  <!--END_SECTION:quran-->
 
   
