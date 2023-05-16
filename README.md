@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 54**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 27**
 
-These it is that shall receive a twofold reward for having been patient in adversity, and having repelled evil with good, and having spent on others out of what We provided for them as sus­tenance,
+Say: “Point out to me those [beings] that you have joined with Him [in your minds] as partners [in His divinity]! Nay - nay, but He [alone] is God, the Almighty, the Wise!”
  <!--END_SECTION:quran-->
 
   
