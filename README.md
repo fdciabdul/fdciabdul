@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 22**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 59**
 
-[and will be told:] “Indeed, unmindful hast thou been of this [Day of Judgment]; but now We have lifted from thee thy veil, and sharp is thy sight today!”
+Yet when the children among you attain to puberty, let them ask leave of you [at all times], even as those [who have reached maturity] before them have been enjoined to ask it. In this way God makes clear unto you His mes­sages: for God is all-knowing, wise!
  <!--END_SECTION:quran-->
 
   
