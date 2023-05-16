@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 67**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 1**
 
-Say: “This is a message tremendous:
+CLOSER DRAWS unto men their reckoning: and yet they remain stubbornly heedless [of its approach].
  <!--END_SECTION:quran-->
 
   
