@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 1**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 57**
 
-VERILY, [O Muhammad,] We have laid open before thee a manifest victory,
+He said: "Hash thou come to drive us out of our land by thy sorcery, O Moses?
  <!--END_SECTION:quran-->
 
   
