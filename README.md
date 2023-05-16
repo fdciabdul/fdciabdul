@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 124**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 1**
 
-And whenever. a [divine] message comes to them, they say, "We shall not believe unless we are given the like of what God's apostles were given!" [But] God knows best upon whom to bestow His message. Abasement in the sight of God will befall those who have become guilty of evildoing, and suffering severe for all the schemes which they were wont to weave.
+ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: His is all dominion, and to Him all praise is due; and He has the power to will anything.
  <!--END_SECTION:quran-->
 
   
