@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 30**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 17**
 
-They said: “O our people! Behold, we have been listening to a revelation bestowed from on high after [that of] Moses, confirming the truth of what­ever there still remains [of the Torah]: it guides towards the truth, and onto a straight way.
+Let, then, the deniers of the truth have their will: let them have their will for a little while.
  <!--END_SECTION:quran-->
 
   
