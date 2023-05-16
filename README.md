@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 16**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 22**
 
-Remain, then, conscious of God as best you can, and listen [to Him], and pay heed. And spend in charity for the good of your own selves: for, such as from their own covetousness are saved – it is they, they that shall attain to a happy state!
+[And they will be told:] "Verily, all this is your reward since Your endeavour [in life] has met [God's] goodly acceptance!"
  <!--END_SECTION:quran-->
 
   
