@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 16**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 1**
 
-and which they shall not [be able to] evade.
+VERILY, [O Muhammad,] We have laid open before thee a manifest victory,
  <!--END_SECTION:quran-->
 
   
