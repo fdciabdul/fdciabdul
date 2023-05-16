@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 30**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 11**
 
-[And] he prayed: “O my Sustainer! Succour Thou me against these people who spread corrup­tion!”
+NO CALAMITY can ever befall [man] unless it be by God's leave: hence, whoever believes in God guides his [own] heart [towards this truth]; and God has full knowledge of everything.
  <!--END_SECTION:quran-->
 
   
