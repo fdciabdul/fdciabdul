@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 78**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 7**
 
-HALLOWED be thy Sustainer’s name, full of majesty and glory!
+BELIEVE in God and His Apostle, and spend on others out of that of which He has made you trus­tees: for, those of you who have attained to faith and who spend freely [in God’s cause] shall have a great reward.
  <!--END_SECTION:quran-->
 
   
