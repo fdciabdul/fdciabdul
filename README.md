@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 10**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 25**
 
-Hell is ahead of them; and all that they may have gained [in this world] shall be of no avail whatever to them, and neither shall any of those things which, instead of God, they have come to regard as their protectors: for, awesome suffering awaits them.
+for such as ask [for help] and such as are deprived [of what is good in life];
  <!--END_SECTION:quran-->
 
   
