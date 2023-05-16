@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 40**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 16**
 
-"All that you worship instead of God is nothing but [empty] names which you have invented - you and your forefathers- [and] for which God has bestowed no warrant from on high. Judgment [as to what is right and what is wrong] rests with God alone-[and] He has ordained that you should worship nought but Him: this is the [one] ever-true faith; but most people know it not
+and gardens dense with follage.
  <!--END_SECTION:quran-->
 
   
