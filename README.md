@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 23**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 5**
 
-and in the end he turns his back [on Our message], and glories in his arrogance,
+And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.
  <!--END_SECTION:quran-->
 
   
