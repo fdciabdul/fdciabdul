@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 7**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 7**
 
-for him shall We make easy the path towards [ultimate] ease.
+But whenever Our messages are conveyed to them in all their clarity, they who are bent on denying the truth speak thus of the truth as soon as it is brought to them: “This is clearly nothing but spell­binding eloquence!”
  <!--END_SECTION:quran-->
 
   
