@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 17**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 27**
 
-Let, then, the deniers of the truth have their will: let them have their will for a little while.
+[But unto the righteous God will say,] "O thou human being that hast attained to inner peace!
  <!--END_SECTION:quran-->
 
   
