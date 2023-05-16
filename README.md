@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 62**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 4**
 
-he said: "Behold, you are people unknown [here]!"
+Verily, We have created man into [a life of] pain, toil and trial.
  <!--END_SECTION:quran-->
 
   
