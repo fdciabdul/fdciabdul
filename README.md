@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 22**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 101**
 
-[And they will be told:] "Verily, all this is your reward since Your endeavour [in life] has met [God's] goodly acceptance!"
+AND WHEN you go forth [to war] on earth, you will incur no sin by shortening your prayers if you have reason to fear that those who are bent on denying the truth might suddenly fall upon you: for, verily, those who deny the truth are your open foes.
  <!--END_SECTION:quran-->
 
   
