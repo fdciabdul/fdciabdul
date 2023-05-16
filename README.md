@@ -17,9 +17,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 59**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 202**
 
-Yet when the children among you attain to puberty, let them ask leave of you [at all times], even as those [who have reached maturity] before them have been enjoined to ask it. In this way God makes clear unto you His mes­sages: for God is all-knowing, wise!
+that will come upon them [on resurrection,] all of a sudden, without their being aware [of its approach];
  <!--END_SECTION:quran-->
 
   
