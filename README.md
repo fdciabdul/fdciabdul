@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 4**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 21**
 
-"and from the evil of all human beings bent on occult endeavours,
+AND REMEMBER that brother of [the tribe of] Ad, how - seeing that [other] warnings had already come and gone within his own knowledge as well as in times beyond his ken - he warned his people [who lived] among those sand-dunes: “Worship none but God! Verily, I fear lest suffering befall you on an awesome day!”
  <!--END_SECTION:quran-->
 
   
