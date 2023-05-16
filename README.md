@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 81**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 7**
 
-And thereupon We caused the earth to swallow him and his dwelling; and he had none and nothing to succour him against God, nor was he of those who could succour themselves.
+for him shall We make easy the path towards [ultimate] ease.
  <!--END_SECTION:quran-->
 
   
