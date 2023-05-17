@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 3**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 20**
 
-The Night of Destiny is better than a thousand months:
+And thereupon he [went to Pharaoh and] made him aware of the great wonder [of God's grace].
  <!--END_SECTION:quran-->
 
   
