@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 68**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 3**
 
-and indeed guide them onto a straight way.
+The Night of Destiny is better than a thousand months:
  <!--END_SECTION:quran-->
 
   
