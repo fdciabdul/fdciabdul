@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 41**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 68**
 
-AND CALL to mind, through this divine writ, Abraham. Behold, he was a man of truth, [already] a prophet
+Can you, then, ever feel sure that He will not cause a tract of dry land to swallow you up, or let loose upon you a deadly storm-wind, whereupon you would find none to be your protector?
  <!--END_SECTION:quran-->
 
   
