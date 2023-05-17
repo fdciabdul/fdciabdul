@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 39**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-But in time you will come to know who it is that [in this world] shall be visited by suffering which will cover him with ignominy, and upon whom long lasting suffering shall alight [in the life to come]!"
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
