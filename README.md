@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 5**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 5**
 
-Now as for him who believes himself to be self-sufficient
+He governs all that exists, from the celestial space to the earth; and in the end all shall ascend unto Him [for judgment] on a Day the length whereof will be [like] a thousand years of your reckoning.
  <!--END_SECTION:quran-->
 
   
