@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 10**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 9**
 
-in mind will keep it he who stands in awe [of God],
+Hence, if two groups of believers fall to fighting, make peace between them; but then, if one of the two [groups] goes on acting wrongfully towards the other, fight against the one that acts wrongfully until it reverts to God’s commandment; and if they revert, make peace between them with justice, and deal equitably [with them]: for verily, God loves those who act equitably!
  <!--END_SECTION:quran-->
 
   
