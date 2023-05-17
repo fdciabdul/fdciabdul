@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 2**
 
-and thou seest people enter God's religion in hosts,
+and those that carry the burden [of heavy clouds],
  <!--END_SECTION:quran-->
 
   
