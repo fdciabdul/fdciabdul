@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 71**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 8**
 
-And [when] they ask, “When is this promise [of resurrection] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!” –
+Have We not given him two eyes,
  <!--END_SECTION:quran-->
 
   
