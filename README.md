@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 115**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 30**
 
-But as for him who, after guidance has been vouchsafed to him, cuts himself off from the Apostle and follows a path other than that of the believers - him shall We leave unto that which he himself has chosen, and shall cause him to endure hell: and how evil a journey’s end!
+and then leave them alone, and wait [for the truth to unfold as] they, behold, are waiting.
  <!--END_SECTION:quran-->
 
   
