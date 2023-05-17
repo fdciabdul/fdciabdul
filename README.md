@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 165**
 
-"He begets not, and neither is He begotten;
+And yet there are people who choose to believe in beings that allegedly rival God, loving them as [only] God should be loved: whereas those who have attained to faith love God more than all else. If they who are bent on evildoing could but see - as see they will when they are made to suffer [on Resurrection Day] -that all might belongs to God alone, and that God is severe in [meting out] punishment!
  <!--END_SECTION:quran-->
 
   
