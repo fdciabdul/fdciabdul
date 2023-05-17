@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 12**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 82**
 
-His are the keys of the heavens and the earth: He grants abundant sustenance, or gives it in scant measure, unto whomever He wills: for, behold, He has full knowledge of everything.
+Utterly remote, in His glory, is the Sustainer of the heavens and the earth - the Sustainer, in almigh­tiness enthroned from all that they may attribute to Him by way of definition!
  <!--END_SECTION:quran-->
 
   
