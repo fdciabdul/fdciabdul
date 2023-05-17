@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 66**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 15**
 
-Say: “Since all evidence of the truth has come to me from my Sustainer, I am forbidden to worship [any of] those beings whom you invoke instead of God; and I am bidden to surrender myself to the Sustainer of all the worlds.”
+[a fire] which they shall enter on Judgment Day,
  <!--END_SECTION:quran-->
 
   
