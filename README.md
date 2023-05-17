@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 27**
 
-extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
+This [message] is no less than a reminder to all mankind –
  <!--END_SECTION:quran-->
 
   
