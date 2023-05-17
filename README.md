@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 88**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 10**
 
-And thou wilt see the mountains, which [now] thou deemest so firm, pass away as clouds pass away: a work of God, who has ordered all things to per­fection! Verily, He is fully aware of all that you do!
+[the while] God has readied for them [yet more] suffering severe [in the life to come] Hence, remain conscious of God, O you who are endowed with insight - [you] who have attained to faith! God has indeed bestowed on you a reminder from on high:
  <!--END_SECTION:quran-->
 
   
