@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 7**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 41**
 
-so much so that they came to think, as you [once] thought, that God would never [again] send forth anyone [as His apostle].
+AND CALL to mind, through this divine writ, Abraham. Behold, he was a man of truth, [already] a prophet
  <!--END_SECTION:quran-->
 
   
