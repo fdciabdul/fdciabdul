@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 22**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 6**
 
-Thou canst not find people who [truly] believe in God and the Last Day and [at the same time] love anyone who contends against God and His Apostle - even though they be their fathers, or their sons, or their brothers, or [others of] their kindred. [As for the true believers,] it is they in whose hearts He has inscribed faith, and whom He has strength­ened with inspiration from Himself, and whom [in time] He will admit into gardens through which running waters flow, therein to abide. Well-pleased is God with them, and well-pleased are they with Him. They are God’s partisans: oh, verily, it is they, the partisans of God, who shall attain to a happy state!
+on the Day when God will raise them all from the dead and will make them truly understand all that they did [in life]: God will have taken [all of] it into account, even though they [themselves] may have forgotten it - for God is wit­ness unto everything.
  <!--END_SECTION:quran-->
 
   
