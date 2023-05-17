@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 32**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 8**
 
-AND [you ought to] marry the single from among you as well as such of your male and female slaves as are fit [for marriage]. If they [whom you intend to marry] are poor, [let this not deter you;] God will grant them sufficiency out of His bounty - for God is infinite [in His mercy], all-knowing.
+and on that Day you will most surely be called to account for [what you did with] the boon of life!
  <!--END_SECTION:quran-->
 
   
