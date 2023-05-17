@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 2**
 
-in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
+If they could but overcome you, they would [still] remain your foes, and would stretch forth their hands and tongues against you with evil intent: for they desire that you [too] should deny the truth.
  <!--END_SECTION:quran-->
 
   
