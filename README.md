@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 2**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 1**
 
-If they could but overcome you, they would [still] remain your foes, and would stretch forth their hands and tongues against you with evil intent: for they desire that you [too] should deny the truth.
+ALL PRAISE is due to God, who has created the heavens and the earth, and brought into being deep darkness as well as light: and yet, those who are bent on denying the truth regard other powers as their Sustainer's equals!
  <!--END_SECTION:quran-->
 
   
