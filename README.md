@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 80**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 21**
 
-And say [in thy prayer]: "O my Sustainer! Cause me to enter [upon whatever I may do] in a manner. true and sincere, and cause me to leave [it] in a manner true and sincere, and grant me, out of Thy grace, sustaining strength!"
+HAD WE bestowed this Qur’an from on high upon a mountain, thou wouldst indeed see it humbling itself, breaking asunder for awe of God. And [all] such parables We propound unto men, so that they might [learn to] think.
  <!--END_SECTION:quran-->
 
   
