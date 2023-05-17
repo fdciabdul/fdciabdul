@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 16**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
 
-IS IT NOT time that the hearts of all who have attained to faith should feel humble at the remem­brance of God and of all the truth that has been bestowed [on them] from on high, lest they become like those who were granted revelation aforetime, and whose hearts have hardened with the passing of time so that many of them are [now] depraved?
+and lifted from thee the burden
  <!--END_SECTION:quran-->
 
   
