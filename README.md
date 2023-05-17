@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 68**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 32**
 
-Can you, then, ever feel sure that He will not cause a tract of dry land to swallow you up, or let loose upon you a deadly storm-wind, whereupon you would find none to be your protector?
+And so, We have bestowed this divine writ as a heritage unto such of Our servants as We chose: and among them are some who sin against themselves; and some who keep half-way [between right and wrong]; and some who, by God’s leave, are fore­most in deeds of goodness: [and] this, indeed, is a merit most high!
  <!--END_SECTION:quran-->
 
   
