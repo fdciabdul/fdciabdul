@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 15**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 25**
 
-[a fire] which they shall enter on Judgment Day,
+And among His wonders is this: the skies and the earth stand firm at His behest. [Remember all this: for] in the end, when He will call you forth from the earth with a single call - lo! you will [all] emerge [for judgment].
  <!--END_SECTION:quran-->
 
   
