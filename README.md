@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 6**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 13**
 
-ART THOU NOT aware of how thy Sustainer has dealt with [the tribe of] ‘Ad,
+Hence, [bethink yourselves of the Last Hour,] when the trumpet [of judgment] shall be sounded with a single blast,
  <!--END_SECTION:quran-->
 
   
