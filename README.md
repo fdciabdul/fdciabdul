@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 8**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 2**
 
-for, behold, unto thy Sustainer all must return.
+has imparted this Qur’an [unto man].
  <!--END_SECTION:quran-->
 
   
