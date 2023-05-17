@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 19**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 5**
 
-And the earth -We have spread it out wide, and placed on it mountains firm, and caused [life] of every kind to grow on it in a balanced manner,
+Thus, as for him who gives [to others] and is conscious of God,
  <!--END_SECTION:quran-->
 
   
