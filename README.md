@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 20**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 2**
 
-And thereupon he [went to Pharaoh and] made him aware of the great wonder [of God's grace].
+sparks of fire striking,
  <!--END_SECTION:quran-->
 
   
