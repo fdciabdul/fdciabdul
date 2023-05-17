@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 19**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 97**
 
-whereas those who are bent on denying the truth of Our messages – they are such as have lost themselves in evil,
+and only to this end have We made this [divine writ] easy to understand, in thine own tongue, [O Prophet,] so that thou might convey thereby a glad tiding to the God-conscious, and warn thereby those who are given to [futile] contention:
  <!--END_SECTION:quran-->
 
   
