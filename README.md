@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 2**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 2**
 
-sparks of fire striking,
+How awesome the sudden calamity!
  <!--END_SECTION:quran-->
 
   
