@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 165**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 8**
 
-And yet there are people who choose to believe in beings that allegedly rival God, loving them as [only] God should be loved: whereas those who have attained to faith love God more than all else. If they who are bent on evildoing could but see - as see they will when they are made to suffer [on Resurrection Day] -that all might belongs to God alone, and that God is severe in [meting out] punishment!
+for, behold, unto thy Sustainer all must return.
  <!--END_SECTION:quran-->
 
   
