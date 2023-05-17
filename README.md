@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 2**
+**Surah 38: سُورَةُ صٓ (Saad) - 67**
 
-All praise is due to God alone, the Sustainer of all the worlds,
+Say: “This is a message tremendous:
  <!--END_SECTION:quran-->
 
   
