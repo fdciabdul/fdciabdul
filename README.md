@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 20**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 5**
 
-[with] fire closing in upon them.
+something that a very mighty one has imparted to him:
  <!--END_SECTION:quran-->
 
   
