@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 25**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 10**
 
-And so, because of their sins, they were drowned [in the great flood], and were doomed to suffer the fire [of the hereafter]; and they found none who could succour them against God.
+in mind will keep it he who stands in awe [of God],
  <!--END_SECTION:quran-->
 
   
