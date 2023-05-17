@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 78**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 28**
 
-Then, when he beheld the sun rising, he said, "This is my Sustainer! This one is the greatest [of all]!" - but when it [too] went down, he exclaimed: "O my people! Behold, far be it from me to ascribe divinity, as you do, to aught beside God!
+to everyone of you who wills to walk a straight way.
  <!--END_SECTION:quran-->
 
   
