@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 5**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 27**
 
-Thus, as for him who gives [to others] and is conscious of God,
+and who stand in dread of their Sustainer's chastisement –
  <!--END_SECTION:quran-->
 
   
