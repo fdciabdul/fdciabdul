@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 5**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 24**
 
-to the truth gave the lie, before their time, the people of Noah and, after them, all those [others] who were leagued together [against God’s message-bearers]; and each of those com­munities schemed against the apostle sent unto them, aiming to lay hands on him; and they contended [against his message] with fallacious arguments, so as to render void the truth thereby: but then I took them to task - and how awesome was My retribution!
+Woe, on that Day unto those who give the lie to the truth!
  <!--END_SECTION:quran-->
 
   
