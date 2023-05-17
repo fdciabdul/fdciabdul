@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 19**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 5**
 
-Now as for him whose record shall be placed in his right hand, he will exclaim: "Come you all!" Read this my record!
+Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store
  <!--END_SECTION:quran-->
 
   
