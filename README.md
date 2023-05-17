@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 8**
+**Surah 38: سُورَةُ صٓ (Saad) - 63**
 
-the like of whom has never been reared in all the land? –
+[and] whom we made the target of our derision? Or is it that [they are here, and] our eyes have missed them?”
  <!--END_SECTION:quran-->
 
   
