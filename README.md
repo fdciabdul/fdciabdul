@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 67**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
 
-Say: “This is a message tremendous:
+And what could make thee conceive what that crushing torment will be?
  <!--END_SECTION:quran-->
 
   
