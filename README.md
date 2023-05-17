@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 21**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 14**
 
-Nay, but this [divine writ which they reject] is a discourse sublime,
+But they gave him the lie, and cruelly slaughtered her - whereupon their Sustainer visited them with utter destruction for this their sin, destroying them all alike:
  <!--END_SECTION:quran-->
 
   
