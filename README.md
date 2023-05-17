@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 2**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 16**
 
-and [when] the earth yields up her burdens,
+IS IT NOT time that the hearts of all who have attained to faith should feel humble at the remem­brance of God and of all the truth that has been bestowed [on them] from on high, lest they become like those who were granted revelation aforetime, and whose hearts have hardened with the passing of time so that many of them are [now] depraved?
  <!--END_SECTION:quran-->
 
   
