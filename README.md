@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 8**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
 
-Have We not given him two eyes,
+extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
  <!--END_SECTION:quran-->
 
   
