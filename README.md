@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 7**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
 
-[Thou art but entrusted with Our message:] and so We have revealed unto thee a discourse in the Arabic tongue in order that thou mayest warn the foremost of all cities and all who dwell around it to wit, warn [them] of the Day of the Gathering, [the coming of] which is beyond all doubt: [the Day when] some shall find themselves in paradise, and some in the blazing flame.
+HAVE WE NOT opened up thy heart,
  <!--END_SECTION:quran-->
 
   
