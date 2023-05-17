@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 14**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 71**
 
-O YOU who have attained to faith! Behold, some of your spouses and your children are enemies unto you: so beware of them! But if you pardon [their faults] and forbear, and forgive-then, behold, God will be much-forgiving, a dispenser of grace.
+And [when] they ask, “When is this promise [of resurrection] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!” –
  <!--END_SECTION:quran-->
 
   
