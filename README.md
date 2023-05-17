@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 120**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 44**
 
-“Peace be upon Moses and Aaron!”
+And yet, [O Muhammad,] never have We vouchsafed them any revelations which they could quote, and neither have We sent unto them any warner before thee.
  <!--END_SECTION:quran-->
 
   
