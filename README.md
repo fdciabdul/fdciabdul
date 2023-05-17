@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 93**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 5**
 
-for whatever they have done!
+O our Sustainer! Make us not a plaything for those who are bent on denying the truth! And forgive us our sins, O our sustainer: for Thou alone art, almighty, truly wise!"
  <!--END_SECTION:quran-->
 
   
