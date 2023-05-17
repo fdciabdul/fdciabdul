@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 5**
 
-And what could make thee conceive what that crushing torment will be?
+Now as for him who believes himself to be self-sufficient
  <!--END_SECTION:quran-->
 
   
