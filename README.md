@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 12**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 14**
 
-And what could make thee conceive what it is, that steep uphill road?
+And from the wind-driven clouds We send down waters pouring in abundance,
  <!--END_SECTION:quran-->
 
   
