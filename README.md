@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 4**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 14**
 
-to be a herald of glad tidings as well as a warning. And yet, [whenever this divine writ is offered to men,] most of them turn away, so that they cannot hear [its message];
+O YOU who have attained to faith! Behold, some of your spouses and your children are enemies unto you: so beware of them! But if you pardon [their faults] and forbear, and forgive-then, behold, God will be much-forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
