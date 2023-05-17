@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 14**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 5**
 
-for, behold, he never thought that he would have to return [to God].
+And when Our punishment came upon them, they had nothing to say for themselves, and could only cry, "Verily, we were wrongdoers!"
  <!--END_SECTION:quran-->
 
   
