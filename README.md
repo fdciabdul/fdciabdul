@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 14**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 12**
 
-And from the wind-driven clouds We send down waters pouring in abundance,
+His are the keys of the heavens and the earth: He grants abundant sustenance, or gives it in scant measure, unto whomever He wills: for, behold, He has full knowledge of everything.
  <!--END_SECTION:quran-->
 
   
