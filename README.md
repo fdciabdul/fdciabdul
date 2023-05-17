@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 10**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 30**
 
-[the while] God has readied for them [yet more] suffering severe [in the life to come] Hence, remain conscious of God, O you who are endowed with insight - [you] who have attained to faith! God has indeed bestowed on you a reminder from on high:
+In this [story], behold, there are messages indeed [for those who think]: for, verily, We always put [man] to a test.
  <!--END_SECTION:quran-->
 
   
