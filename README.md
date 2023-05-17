@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 19**
 
-BEHOLD, We have bestowed upon thee good in abundance:
+whereas those who are bent on denying the truth of Our messages – they are such as have lost themselves in evil,
  <!--END_SECTION:quran-->
 
   
