@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 30**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
 
-and then leave them alone, and wait [for the truth to unfold as] they, behold, are waiting.
+in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
  <!--END_SECTION:quran-->
 
   
