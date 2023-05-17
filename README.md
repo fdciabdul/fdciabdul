@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 112**
 
-HAVE WE NOT opened up thy heart,
+whereas anyone who will have done [whatever he could] of righteous deeds, and was a believer withal, need have no fear of being wronged or deprived [of aught of his merit].
  <!--END_SECTION:quran-->
 
   
