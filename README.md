@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 24**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 66**
 
-Woe, on that Day unto those who give the lie to the truth!
+Say: “Since all evidence of the truth has come to me from my Sustainer, I am forbidden to worship [any of] those beings whom you invoke instead of God; and I am bidden to surrender myself to the Sustainer of all the worlds.”
  <!--END_SECTION:quran-->
 
   
