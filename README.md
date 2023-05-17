@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 2**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 7**
 
-How awesome the sudden calamity!
+[Thou art but entrusted with Our message:] and so We have revealed unto thee a discourse in the Arabic tongue in order that thou mayest warn the foremost of all cities and all who dwell around it to wit, warn [them] of the Day of the Gathering, [the coming of] which is beyond all doubt: [the Day when] some shall find themselves in paradise, and some in the blazing flame.
  <!--END_SECTION:quran-->
 
   
