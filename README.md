@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 67**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 14**
 
-Say: “This is a message tremendous:
+for, behold, he never thought that he would have to return [to God].
  <!--END_SECTION:quran-->
 
   
