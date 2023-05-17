@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 30**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 10**
 
-In this [story], behold, there are messages indeed [for those who think]: for, verily, We always put [man] to a test.
+And they will add: "Had we but listened [to those warnings], or [at least] used our own reason, we would not [now] be among those who are destined for the blazing flame!"
  <!--END_SECTION:quran-->
 
   
