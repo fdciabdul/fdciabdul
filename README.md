@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 8**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 24**
 
-and on that Day you will most surely be called to account for [what you did with] the boon of life!
+him will God cause to suffer the greatest suffering [in the life to come]:
  <!--END_SECTION:quran-->
 
   
