@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 68**
 
-Thus, He let loose upon them great swarms of flying creatures
+and indeed guide them onto a straight way.
  <!--END_SECTION:quran-->
 
   
