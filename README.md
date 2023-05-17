@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 25**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 29**
 
-And among His wonders is this: the skies and the earth stand firm at His behest. [Remember all this: for] in the end, when He will call you forth from the earth with a single call - lo! you will [all] emerge [for judgment].
+and olive trees and date-palms,
  <!--END_SECTION:quran-->
 
   
