@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 179**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 39**
 
-And most certainly have We destined for hell many of the invisible beings and men who have hearts with which they fail to grasp the truth, and eyes with which they fail to see, and ears with which they fail to hear. They are like cattle -nay, they are even less conscious of the right way: it is they, they who are the [truly] heedless!
+a good many of olden times,
  <!--END_SECTION:quran-->
 
   
