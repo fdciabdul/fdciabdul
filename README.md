@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 5**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 2**
 
-And when Our punishment came upon them, they had nothing to say for themselves, and could only cry, "Verily, we were wrongdoers!"
+All praise is due to God alone, the Sustainer of all the worlds,
  <!--END_SECTION:quran-->
 
   
