@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 14**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
 
-But they gave him the lie, and cruelly slaughtered her - whereupon their Sustainer visited them with utter destruction for this their sin, destroying them all alike:
+BEHOLD, We have bestowed upon thee good in abundance:
  <!--END_SECTION:quran-->
 
   
