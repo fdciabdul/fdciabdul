@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 2**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 148**
 
-He who has created death as well as life, so that He might put you to a test [and thus show] which of you is best in conduct, and [make you realize that] He alone is almighty, truly forgiving.
+and [this time] they believed [in him] and so We allowed them to enjoy their life during the time allotted to them?
  <!--END_SECTION:quran-->
 
   
