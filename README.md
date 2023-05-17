@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 6**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 2**
 
-[and,] verily, the hours of night the mind most strongly and speak with the clearest voice,
+He who has created death as well as life, so that He might put you to a test [and thus show] which of you is best in conduct, and [make you realize that] He alone is almighty, truly forgiving.
  <!--END_SECTION:quran-->
 
   
