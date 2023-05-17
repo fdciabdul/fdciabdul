@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 8**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 115**
 
-As for such [of the unbelievers] as do not fight against you on account of [your] faith, and neither drive you forth from your homelands, God does not forbid you to show them kindness and to behave towards them with full equity: for, verily, God loves those who act equitably.
+But as for him who, after guidance has been vouchsafed to him, cuts himself off from the Apostle and follows a path other than that of the believers - him shall We leave unto that which he himself has chosen, and shall cause him to endure hell: and how evil a journey’s end!
  <!--END_SECTION:quran-->
 
   
