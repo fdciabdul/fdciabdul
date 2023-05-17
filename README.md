@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 7**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 20**
 
-What, then, [O man,] could henceforth cause thee to give the lie to this moral law?
+[with] fire closing in upon them.
  <!--END_SECTION:quran-->
 
   
