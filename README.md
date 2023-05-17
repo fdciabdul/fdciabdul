@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 6**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 179**
 
-on the Day when God will raise them all from the dead and will make them truly understand all that they did [in life]: God will have taken [all of] it into account, even though they [themselves] may have forgotten it - for God is wit­ness unto everything.
+And most certainly have We destined for hell many of the invisible beings and men who have hearts with which they fail to grasp the truth, and eyes with which they fail to see, and ears with which they fail to hear. They are like cattle -nay, they are even less conscious of the right way: it is they, they who are the [truly] heedless!
  <!--END_SECTION:quran-->
 
   
