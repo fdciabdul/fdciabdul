@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 27**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 18**
 
-and who stand in dread of their Sustainer's chastisement –
+Verily, [all] this has indeed been [said] in the earlier revelations –
  <!--END_SECTION:quran-->
 
   
