@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 55**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 82**
 
-They asked: “Hast thou come unto us [with this claim] in all earnest - or art thou one of those jesters?”
+whereas by His words God proves the truth to be true, however hateful this may be to those who are lost in sin!"
  <!--END_SECTION:quran-->
 
   
