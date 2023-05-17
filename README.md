@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 2**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 19**
 
-and those that carry the burden [of heavy clouds],
+And the earth -We have spread it out wide, and placed on it mountains firm, and caused [life] of every kind to grow on it in a balanced manner,
  <!--END_SECTION:quran-->
 
   
