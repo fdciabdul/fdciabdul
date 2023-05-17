@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 77**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 19**
 
-Then, when he beheld the moon rising, he said, "This is my Sustainer!"-but when it went down, he said, "Indeed, if my Sustainer guide me not. I will most certainly become one of the people who go astray!"
+Now as for him whose record shall be placed in his right hand, he will exclaim: "Come you all!" Read this my record!
  <!--END_SECTION:quran-->
 
   
