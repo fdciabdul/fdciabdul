@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 13**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 77**
 
-Hence, [bethink yourselves of the Last Hour,] when the trumpet [of judgment] shall be sounded with a single blast,
+Then, when he beheld the moon rising, he said, "This is my Sustainer!"-but when it went down, he said, "Indeed, if my Sustainer guide me not. I will most certainly become one of the people who go astray!"
  <!--END_SECTION:quran-->
 
   
