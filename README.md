@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 1**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 2**
 
-ALL PRAISE is due to God, who has created the heavens and the earth, and brought into being deep darkness as well as light: and yet, those who are bent on denying the truth regard other powers as their Sustainer's equals!
+All praise is due to God alone, the Sustainer of all the worlds,
  <!--END_SECTION:quran-->
 
   
