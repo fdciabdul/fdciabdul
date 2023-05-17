@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 5**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
 
-something that a very mighty one has imparted to him:
+which smote them with stone-hard blows of chastisement pre-ordained,
  <!--END_SECTION:quran-->
 
   
