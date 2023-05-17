@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 82**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 10**
 
-whereas by His words God proves the truth to be true, however hateful this may be to those who are lost in sin!"
+Hell is ahead of them; and all that they may have gained [in this world] shall be of no avail whatever to them, and neither shall any of those things which, instead of God, they have come to regard as their protectors: for, awesome suffering awaits them.
  <!--END_SECTION:quran-->
 
   
