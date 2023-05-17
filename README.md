@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 21**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 6**
 
-and such, indeed, shall in time be well-pleased.
+[and,] verily, the hours of night the mind most strongly and speak with the clearest voice,
  <!--END_SECTION:quran-->
 
   
