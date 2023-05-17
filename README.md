@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 2**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 3**
 
-has imparted this Qur’an [unto man].
+[since it will come] from God, unto whom there are many ways of ascent:
  <!--END_SECTION:quran-->
 
   
