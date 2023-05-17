@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 63**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 9**
 
-[and] whom we made the target of our derision? Or is it that [they are here, and] our eyes have missed them?”
+and a tongue, and a pair of lips,
  <!--END_SECTION:quran-->
 
   
