@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 6**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 8**
 
-excepting only such as attain to faith and do good works: and theirs shall be a reward unending!
+the like of whom has never been reared in all the land? –
  <!--END_SECTION:quran-->
 
   
