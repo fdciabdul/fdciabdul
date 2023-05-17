@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 39**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
 
-a good many of olden times,
+HAVE WE NOT opened up thy heart,
  <!--END_SECTION:quran-->
 
   
