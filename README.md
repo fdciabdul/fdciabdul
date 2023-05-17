@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 82**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 32**
 
-Utterly remote, in His glory, is the Sustainer of the heavens and the earth - the Sustainer, in almigh­tiness enthroned from all that they may attribute to Him by way of definition!
+AND [you ought to] marry the single from among you as well as such of your male and female slaves as are fit [for marriage]. If they [whom you intend to marry] are poor, [let this not deter you;] God will grant them sufficiency out of His bounty - for God is infinite [in His mercy], all-knowing.
  <!--END_SECTION:quran-->
 
   
