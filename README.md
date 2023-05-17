@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 5**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 55**
 
-Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store
+They asked: “Hast thou come unto us [with this claim] in all earnest - or art thou one of those jesters?”
  <!--END_SECTION:quran-->
 
   
