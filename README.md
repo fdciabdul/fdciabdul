@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 10**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 16**
 
-Hell is ahead of them; and all that they may have gained [in this world] shall be of no avail whatever to them, and neither shall any of those things which, instead of God, they have come to regard as their protectors: for, awesome suffering awaits them.
+the like of [what happens] when Satan says unto man, “Deny the truth!” - but as soon as [man] has denied the truth, [Satan] says, “Behold, I am not responsible for thee: behold, I fear God, the Sustainer of all the worlds!”
  <!--END_SECTION:quran-->
 
   
