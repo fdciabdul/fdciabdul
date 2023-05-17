@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 2**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 4**
 
-All praise is due to God alone, the Sustainer of all the worlds,
+to be a herald of glad tidings as well as a warning. And yet, [whenever this divine writ is offered to men,] most of them turn away, so that they cannot hear [its message];
  <!--END_SECTION:quran-->
 
   
