@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 28**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 7**
 
-SAY [O Prophet]: "What do you think? Whether God destroys me and those who follow me, or graces us with His mercy - is there anyone that could protect [you] deniers of the truth from grievous suffering [in the life to come]?"
+so much so that they came to think, as you [once] thought, that God would never [again] send forth anyone [as His apostle].
  <!--END_SECTION:quran-->
 
   
