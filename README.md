@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 112**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-whereas anyone who will have done [whatever he could] of righteous deeds, and was a believer withal, need have no fear of being wronged or deprived [of aught of his merit].
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
