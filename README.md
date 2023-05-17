@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 12**
 
-and lifted from thee the burden
+And what could make thee conceive what it is, that steep uphill road?
  <!--END_SECTION:quran-->
 
   
