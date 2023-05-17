@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 39**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 39**
 
-Say: “O my [truth-denying] people! Do yet all that may be within your power, [whereas] I, behold, shall labour [in God’s way]: in time you will come to know
+But in time you will come to know who it is that [in this world] shall be visited by suffering which will cover him with ignominy, and upon whom long lasting suffering shall alight [in the life to come]!"
  <!--END_SECTION:quran-->
 
   
