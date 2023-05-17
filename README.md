@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 3**
+**Surah 38: سُورَةُ صٓ (Saad) - 67**
 
-[since it will come] from God, unto whom there are many ways of ascent:
+Say: “This is a message tremendous:
  <!--END_SECTION:quran-->
 
   
