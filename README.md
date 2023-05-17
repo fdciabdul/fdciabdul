@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 27**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
 
-This [message] is no less than a reminder to all mankind –
+"He begets not, and neither is He begotten;
  <!--END_SECTION:quran-->
 
   
