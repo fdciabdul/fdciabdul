@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 18**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 17**
 
-Verily, [all] this has indeed been [said] in the earlier revelations –
+And what could make thee conceive what that Judgment Day will be?
  <!--END_SECTION:quran-->
 
   
