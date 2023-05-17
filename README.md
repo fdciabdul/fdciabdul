@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 44**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 12**
 
-And yet, [O Muhammad,] never have We vouchsafed them any revelations which they could quote, and neither have We sent unto them any warner before thee.
+BEHOLD, it is indeed for Us to grace [you] with guidance;
  <!--END_SECTION:quran-->
 
   
