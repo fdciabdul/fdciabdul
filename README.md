@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 9**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 39**
 
-and a tongue, and a pair of lips,
+Say: “O my [truth-denying] people! Do yet all that may be within your power, [whereas] I, behold, shall labour [in God’s way]: in time you will come to know
  <!--END_SECTION:quran-->
 
   
