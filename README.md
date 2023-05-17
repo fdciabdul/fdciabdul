@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 8**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 21**
 
-running in con­fusion towards the Summoning Voice; [and] those who [now] deny the truth will exclaim, “Calamitous is this Day!”
+Nay, but this [divine writ which they reject] is a discourse sublime,
  <!--END_SECTION:quran-->
 
   
