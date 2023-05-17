@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 25**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 120**
 
-But they [only] ask, "When is this promise to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!"
+“Peace be upon Moses and Aaron!”
  <!--END_SECTION:quran-->
 
   
