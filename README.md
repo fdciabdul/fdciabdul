@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 12**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 93**
 
-BEHOLD, it is indeed for Us to grace [you] with guidance;
+for whatever they have done!
  <!--END_SECTION:quran-->
 
   
