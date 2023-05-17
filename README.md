@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 24**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 7**
 
-him will God cause to suffer the greatest suffering [in the life to come]:
+What, then, [O man,] could henceforth cause thee to give the lie to this moral law?
  <!--END_SECTION:quran-->
 
   
