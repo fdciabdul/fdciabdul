@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 20**
 
-WHEN GOD'S SUCCOUR comes, and victory,
+as well as [in] Manat, the third and last [of this triad]?
  <!--END_SECTION:quran-->
 
   
