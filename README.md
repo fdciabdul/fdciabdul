@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 83**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 8**
 
-[all] save such of them as are truly Thy servants!”
+And [warn all men that] when the trumpet-call [of resurrection] is sounded,
  <!--END_SECTION:quran-->
 
   
