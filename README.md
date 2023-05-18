@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 79**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 33**
 
-and is the One who gives me to eat and to drink,
+and splendid companions well matched,
  <!--END_SECTION:quran-->
 
   
