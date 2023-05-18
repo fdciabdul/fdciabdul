@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 6**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 22**
 
-and will admit them to the paradise which He has promised them.
+Nay, but they who are bent on denying the truth give the lie [to this divine writ]!
  <!--END_SECTION:quran-->
 
   
