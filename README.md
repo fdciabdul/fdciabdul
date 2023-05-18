@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 13**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 6**
 
-In that [garden] they will on couches recline, and will know therein neither [burning] sun nor cold severe,
+Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.
  <!--END_SECTION:quran-->
 
   
