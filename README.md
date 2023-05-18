@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 128**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 3**
 
-for, verily, God is with those who are conscious of Him and are doers of good withal!
+This, because they who are bent on denying the truth pursue falsehood, whereas they who have attained to faith pursue [but] the truth [that flows] from their Sustainer. In this way does God set forth unto man the parables of their true state.
  <!--END_SECTION:quran-->
 
   
