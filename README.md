@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 17**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 3**
 
-[But] know that God gives life to the earth after it has been lifeless! We have indeed made Our messages clear unto you, so that you might use your reason.
+It is the star that pierces through [life's] darkness:
  <!--END_SECTION:quran-->
 
   
