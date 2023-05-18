@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 11**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 7**
 
-But he would not try to ascend the steep uphill road...
+whereas such as seek to go beyond that [limit] are truly transgressors;
  <!--END_SECTION:quran-->
 
   
