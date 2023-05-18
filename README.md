@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 1**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 102**
 
-ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!
+And such is thy Sustainer's punishing grasp whenever He takes to task any community that is given to evildoing: verily, His punishing grasp is grievous, severe!
  <!--END_SECTION:quran-->
 
   
