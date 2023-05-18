@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 8**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 10**
 
-and the moon is darkened,
+But as for him whose record shall be given to him behind his back;
  <!--END_SECTION:quran-->
 
   
