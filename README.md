@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 57**
+**Surah 38: سُورَةُ صٓ (Saad) - 87**
 
-And so, on that Day their excuse will be of no avail to those who were bent on evildoing, nor will they be allowed to make amends.
+This [divine writ], behold, is no less than a reminder to all the worlds —
  <!--END_SECTION:quran-->
 
   
