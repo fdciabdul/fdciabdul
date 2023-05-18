@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 8**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 32**
 
-verily, it will close in upon them
+and whenever they see those [who believe,] they say, "Behold, these [people] have indeed gone astray!"
  <!--END_SECTION:quran-->
 
   
