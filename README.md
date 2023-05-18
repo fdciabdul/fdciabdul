@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 84**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 4**
 
-the while you are [helplessly] looking on -
+He knows all that is in the heavens and on earth; and He knows all that you keep secret as well as all that you bring into the open: for God has full knowledge of what is in the hearts [of men].
  <!--END_SECTION:quran-->
 
   
