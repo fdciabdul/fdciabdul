@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 49**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 10**
 
-even though a short while ago, [just] before it was sent down upon them, they had abandoned all hope!
+But the foremost shall be [they who in life were] the foremost [in faith and good works]:
  <!--END_SECTION:quran-->
 
   
