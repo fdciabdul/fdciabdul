@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 3**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 7**
 
-This, because they who are bent on denying the truth pursue falsehood, whereas they who have attained to faith pursue [but] the truth [that flows] from their Sustainer. In this way does God set forth unto man the parables of their true state.
+AND LO! We did accept a solemn pledge from all the prophets from thee, [O Muhammad,] as well as from Noah, and Abraham, and Moses, and Jesus the son of Mary -: for We accepted a most weighty, solemn pledge from [all of] them,
  <!--END_SECTION:quran-->
 
   
