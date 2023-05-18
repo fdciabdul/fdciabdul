@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 33**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 17**
 
-[Iblis] replied: "It is not for me to prostrate myself before mortal man whom Thou hast created out of sounding clay, out of dark slime transmuted!"
+[and] said: "O our father! Behold, we went off racing with one another, and left Joseph behind with our things; and thereupon the wolf devoured him! But [we know that] thou wouldst not believe us even though we speak the truth" -
  <!--END_SECTION:quran-->
 
   
