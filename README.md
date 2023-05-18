@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 20**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 13**
 
-What, then, is amiss with them that they will not believe [in a life to come]?
+[or] one who is cruel, by greed possessed, and, in addition to all this, utterly useless [to his fellow-men].
  <!--END_SECTION:quran-->
 
   
