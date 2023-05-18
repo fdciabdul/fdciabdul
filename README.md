@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 43**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 15**
 
-[And she has recognized the truth] although that which she has been wont to worship instead of God had kept her away [from the right path]: for, behold, she is descended of people who deny the truth!”
+If anyone thinks that God will not succour him in this world and in the life to come, let him reach out unto heaven by any [other] means and [thus try to] make headway: and then let him see whether this scheme of his will indeed do away with the cause of his anguish.
  <!--END_SECTION:quran-->
 
   
