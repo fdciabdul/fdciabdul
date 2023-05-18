@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 23**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 117**
 
-with its fruits within easy reach.
+Verily, thy Sustainer knows best as to who strays from His path, and best knows He as to who are the right-guided.
  <!--END_SECTION:quran-->
 
   
