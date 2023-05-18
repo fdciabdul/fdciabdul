@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 3**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 1**
 
-of one-half thereof - or make it a little less than that,
+ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!
  <!--END_SECTION:quran-->
 
   
