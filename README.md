@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 100**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 9**
 
-[And he prayed:] “O my Sustainer! Bestow upon me the gift of [a son who shall be] one of the righteous!” –
+in endless columns!
  <!--END_SECTION:quran-->
 
   
