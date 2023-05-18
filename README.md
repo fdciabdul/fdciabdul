@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 3**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
 
-It is the star that pierces through [life's] darkness:
+WHEN GOD'S SUCCOUR comes, and victory,
  <!--END_SECTION:quran-->
 
   
