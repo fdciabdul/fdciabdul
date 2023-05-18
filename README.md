@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 20**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
 
-And [one day] he looked in vain for [a parti­cular one of] the birds; and so he said: How is it that I do not see the hoopoe? Or could he be among the absent?
+Let them, therefore, worship the Sustainer of this Temple;
  <!--END_SECTION:quran-->
 
   
