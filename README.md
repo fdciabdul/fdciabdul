@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 57**
 
-and thou seest people enter God's religion in hosts,
+And so, on that Day their excuse will be of no avail to those who were bent on evildoing, nor will they be allowed to make amends.
  <!--END_SECTION:quran-->
 
   
