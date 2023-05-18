@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 17**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 5**
 
-[and] said: "O our father! Behold, we went off racing with one another, and left Joseph behind with our things; and thereupon the wolf devoured him! But [we know that] thou wouldst not believe us even though we speak the truth" -
+It is they whom the worst of suffering awaits: for it is they, they who in the life to come shall be the greatest losers!
  <!--END_SECTION:quran-->
 
   
