@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 32**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 33**
 
-and whenever they see those [who believe,] they say, "Behold, these [people] have indeed gone astray!"
+[Iblis] replied: "It is not for me to prostrate myself before mortal man whom Thou hast created out of sounding clay, out of dark slime transmuted!"
  <!--END_SECTION:quran-->
 
   
