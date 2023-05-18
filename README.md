@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 5**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 45**
 
-He it is who has made the sun a [source of] radiant light and the moon a light [reflected], and has determined for it phases so that you might know how to compute the years and to measure [time]. None of this has God created without [an inner] truth. Clearly does He spell out these messages unto people of [innate] knowledge:
+AND THEN We sent forth Moses and his brother Aaron with Our messages and a manifest authority [from Us]
  <!--END_SECTION:quran-->
 
   
