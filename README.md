@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 3**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 25**
 
-Yet for all thou didst know, [O Muhammad,] he might perhaps have grown in purity,
+For, none can make suffer as He will make suffer [the sinners] on that Day,
  <!--END_SECTION:quran-->
 
   
