@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 15**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 65**
 
-[They will be seated] on gold-encrusted thrones of happiness,
+Art thou not aware that it is God who has made subservient to you all that is on earth, and the ships that sail through the sea at His behest - and [that it is He who] holds the celestial bodies [in their orbits], so that they may not fall upon the earth otherwise than by His leave? Verily, God is most compassionate towards men, a dispenser of grace –
  <!--END_SECTION:quran-->
 
   
