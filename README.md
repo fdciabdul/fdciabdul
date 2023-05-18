@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 5**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 43**
 
-It is they whom the worst of suffering awaits: for it is they, they who in the life to come shall be the greatest losers!
+[And she has recognized the truth] although that which she has been wont to worship instead of God had kept her away [from the right path]: for, behold, she is descended of people who deny the truth!”
  <!--END_SECTION:quran-->
 
   
