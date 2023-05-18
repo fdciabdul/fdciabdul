@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 56**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 2**
 
-and says: “By God! Verily, thou hast almost destroyed me [too, O my erstwhile companion]
+guiding towards consciousness of what is right; and so We have come to believe in it. And we shall never ascribe divinity to anyone beside our Sustainer,
  <!--END_SECTION:quran-->
 
   
