@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 6**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 27**
 
-Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.
+hence, how [will they fare] when the angels gather them in death, striking their faces and their backs?
  <!--END_SECTION:quran-->
 
   
