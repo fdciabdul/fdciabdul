@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 18**
+**Surah 38: سُورَةُ صٓ (Saad) - 83**
 
-so that anyone who seeks to learn [the unknowable] by stealth is pursued by a flame clear to see.
+[all] save such of them as are truly Thy servants!”
  <!--END_SECTION:quran-->
 
   
