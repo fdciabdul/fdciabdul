@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 45**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 1**
 
-AND THEN We sent forth Moses and his brother Aaron with Our messages and a manifest authority [from Us]
+DOOMED are the hands of him of the glowing countence: and doomed is he!
  <!--END_SECTION:quran-->
 
   
