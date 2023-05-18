@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 52**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 6**
 
-They will say: “Oh, woe unto us! Who has roused us from our sleep [of death]?” [Whereupon they will be told:] “This is what the Most Gracious has promised! And His message-bearers spoke the truth!”
+And do not through giving seek thyself to gain,
  <!--END_SECTION:quran-->
 
   
