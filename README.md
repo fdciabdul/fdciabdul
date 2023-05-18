@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 11**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 30**
 
-and when heaven is laid bare,
+On the Day when every human being will find himself faced with all the good that he has done, and with all the evil that he has done, [many a one] will wish that there were a long span of time between himself and that [Day]. Hence, God warns you to beware of Him; but God is most compassionate towards His creatures.
  <!--END_SECTION:quran-->
 
   
