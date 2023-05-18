@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 20**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 89**
 
-as well as [in] Manat, the third and last [of this triad]?
+And once again he chose the right means [to achieve a right end].
  <!--END_SECTION:quran-->
 
   
