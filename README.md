@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 39**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 8**
 
-laughing, rejoicing at glad tidings.
+verily, it will close in upon them
  <!--END_SECTION:quran-->
 
   
