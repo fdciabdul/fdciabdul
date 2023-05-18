@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 34**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 36**
 
-[And so, tell those who are bent on denying the truth that] they who shall be gathered unto hell upon their faces – it is they who [in the life to come] will be worst in station and still farther astray from the path [of truth]!
+IS NOT God enough for His servant? And yet, they would frighten thee with those [imaginary divine powers which they worship] beside Him! But he whom God lets go astray can never find any guide,
  <!--END_SECTION:quran-->
 
   
