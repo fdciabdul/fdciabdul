@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 3**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 12**
 
-Behold, from on high have We bestowed it on a blessed night: for, verily, We have always been warning [man].
+aware of whatever you do!
  <!--END_SECTION:quran-->
 
   
