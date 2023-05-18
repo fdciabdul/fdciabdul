@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 10**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 10**
 
-But as for him whose record shall be given to him behind his back;
+AND WERE it not for God’s favour upon you, [O man,] and His grace, and that God is a wise acceptor of repentance...!
  <!--END_SECTION:quran-->
 
   
