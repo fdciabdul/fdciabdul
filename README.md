@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 115**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 80**
 
-And God would never-after having invited them to His guidance -condemn people for going astray ere He has made [entirely] clear unto them of what they should beware. Verily, God has full knowledge of everything.
+And say [in thy prayer]: "O my Sustainer! Cause me to enter [upon whatever I may do] in a manner. true and sincere, and cause me to leave [it] in a manner true and sincere, and grant me, out of Thy grace, sustaining strength!"
  <!--END_SECTION:quran-->
 
   
