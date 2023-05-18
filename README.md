@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 25**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-For, none can make suffer as He will make suffer [the sinners] on that Day,
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
