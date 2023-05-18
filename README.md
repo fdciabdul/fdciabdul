@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 33**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 10**
 
-and splendid companions well matched,
+And spend on others out of what We have provided for you as sustenance, ere there come a time when death approaches any of you, and he then says, "O my Sustainer! If only Thou wouldst grant me a delay for a short while, so that I could give in charity and be among the righteous!"
  <!--END_SECTION:quran-->
 
   
