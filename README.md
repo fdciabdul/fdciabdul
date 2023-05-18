@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 10**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 30**
 
-AND WERE it not for God’s favour upon you, [O man,] and His grace, and that God is a wise acceptor of repentance...!
+And as for him who does this with malicious intent and a will to do wrong - him shall We, in time, cause to endure [suffering through] fire: for this is indeed easy for God.
  <!--END_SECTION:quran-->
 
   
