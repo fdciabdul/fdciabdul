@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 36**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 60**
 
-IS NOT God enough for His servant? And yet, they would frighten thee with those [imaginary divine powers which they worship] beside Him! But he whom God lets go astray can never find any guide,
+AND [know that] women advanced in years, who no longer feel any sexual desire, incur no sin if they discard their [outer] garments, provided they do not aim at a showy display of [their] charms. But [even so,] it is better for them to abstain [from this]: and God is all-hearing, all-knowing.
  <!--END_SECTION:quran-->
 
   
