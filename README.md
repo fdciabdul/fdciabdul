@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 89**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 16**
 
-And once again he chose the right means [to achieve a right end].
+“O my dear son,” [continued Luqman,] “verily, if there be but the weight of a mustard-seed, and though it be [hidden] in a rock, or in the skies, or in the earth, God will bring it to light: for, behold, God is unfathomable [in His wisdom], all-aware
  <!--END_SECTION:quran-->
 
   
