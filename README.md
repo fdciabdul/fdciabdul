@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 58**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 8**
 
-for, verily, God Himself is the Provider of all sustenance, the Lord of all might, the Eternal!
+There is no deity save Him: He grants life and deals death: He is your Sustainer as well as the Sustainer of your forebears of old.
  <!--END_SECTION:quran-->
 
   
