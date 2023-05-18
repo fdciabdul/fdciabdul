@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 11**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 20**
 
-Those of the bedouin who stayed behind will say unto thee: “[The need to take care of] our chat­tels and our families kept us busy: do then, [O Prophet,] ask God to forgive us!” [Thus,] they will utter with their tongues something that is not in their hearts. Say: “Who, then, has it in his power to avert from you aught that God may have willed, whether it be His will to harm you or to confer a benefit on you? Nay, but God is fully aware of what you do!
+And [then and there] a man came running from the farthermost end of the city, and said: “O Moses! Behold, the great ones [of the kingdom] are deli­berating upon thy case with a view to killing thee! Begone, then: verily, I am of those who wish thee well!”
  <!--END_SECTION:quran-->
 
   
