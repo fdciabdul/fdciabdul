@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 61**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 15**
 
-[theirs will be the] gardens of perpetual bliss which the Most Gracious has promised unto His servants, in a realm which is beyond the reach of human perception: [and,] verily, His promise is ever sure of fulfilment!
+[They will be seated] on gold-encrusted thrones of happiness,
  <!--END_SECTION:quran-->
 
   
