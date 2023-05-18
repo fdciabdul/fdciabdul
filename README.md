@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 9**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 39**
 
-in endless columns!
+laughing, rejoicing at glad tidings.
  <!--END_SECTION:quran-->
 
   
