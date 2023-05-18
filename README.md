@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 84**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 5**
 
-Hence, be not in haste [to call down God's punishment] upon them: for We but number the number of their days.
+He it is who has made the sun a [source of] radiant light and the moon a light [reflected], and has determined for it phases so that you might know how to compute the years and to measure [time]. None of this has God created without [an inner] truth. Clearly does He spell out these messages unto people of [innate] knowledge:
  <!--END_SECTION:quran-->
 
   
