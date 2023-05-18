@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 65**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 11**
 
-Art thou not aware that it is God who has made subservient to you all that is on earth, and the ships that sail through the sea at His behest - and [that it is He who] holds the celestial bodies [in their orbits], so that they may not fall upon the earth otherwise than by His leave? Verily, God is most compassionate towards men, a dispenser of grace –
+Those of the bedouin who stayed behind will say unto thee: “[The need to take care of] our chat­tels and our families kept us busy: do then, [O Prophet,] ask God to forgive us!” [Thus,] they will utter with their tongues something that is not in their hearts. Say: “Who, then, has it in his power to avert from you aught that God may have willed, whether it be His will to harm you or to confer a benefit on you? Nay, but God is fully aware of what you do!
  <!--END_SECTION:quran-->
 
   
