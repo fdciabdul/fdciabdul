@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 13**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 9**
 
-Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.
+O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!
  <!--END_SECTION:quran-->
 
   
