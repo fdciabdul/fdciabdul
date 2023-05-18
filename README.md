@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 60**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
 
-AND [know that] women advanced in years, who no longer feel any sexual desire, incur no sin if they discard their [outer] garments, provided they do not aim at a showy display of [their] charms. But [even so,] it is better for them to abstain [from this]: and God is all-hearing, all-knowing.
+In the end you will indeed, most surely, behold it with the eye of certainty:
  <!--END_SECTION:quran-->
 
   
