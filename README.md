@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 31**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 13**
 
-And [on that Day] paradise will be brought within the sight of the God-conscious, and will no longer be far away; [and they will be told:]
+In that [garden] they will on couches recline, and will know therein neither [burning] sun nor cold severe,
  <!--END_SECTION:quran-->
 
   
