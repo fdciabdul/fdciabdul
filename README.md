@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 10**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 84**
 
-But the foremost shall be [they who in life were] the foremost [in faith and good works]:
+the while you are [helplessly] looking on -
  <!--END_SECTION:quran-->
 
   
