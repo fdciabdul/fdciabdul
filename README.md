@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 27**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 52**
 
-hence, how [will they fare] when the angels gather them in death, striking their faces and their backs?
+They will say: “Oh, woe unto us! Who has roused us from our sleep [of death]?” [Whereupon they will be told:] “This is what the Most Gracious has promised! And His message-bearers spoke the truth!”
  <!--END_SECTION:quran-->
 
   
