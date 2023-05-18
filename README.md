@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 61**
 
-HAVE WE NOT opened up thy heart,
+[theirs will be the] gardens of perpetual bliss which the Most Gracious has promised unto His servants, in a realm which is beyond the reach of human perception: [and,] verily, His promise is ever sure of fulfilment!
  <!--END_SECTION:quran-->
 
   
