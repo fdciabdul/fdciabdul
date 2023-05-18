@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 5**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 147**
 
-Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store
+and all that they said was this: "O our Sustainer! Forgive us our sins and the lack of moderation in our doings! And make firm our steps, and succour us against people who deny the truth!" -
  <!--END_SECTION:quran-->
 
   
