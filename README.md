@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 6**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 37**
 
-you would indeed, most surely, behold the blazing fire [of hell]!
+[But bear in mind:] never does their flesh reach God, and neither their blood: it is only your God-consciousness that reaches Him. It is to this end that We have made them subservient to your needs, so that you might glorify God for all the guidance with which He has graced you. And give thou this glad tiding unto the doers of good:
  <!--END_SECTION:quran-->
 
   
