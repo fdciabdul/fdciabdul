@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 10**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 8**
 
-and all that is [hidden] in men's hearts is bared
+Is, then, he to whom the evil of his own doings is [so] alluring that [in the end] he regards it as good [anything but a follower of Satan]? For, verily, God lets go astray him that wills [to go astray], just as He guides him that wills [to be guided]. Hence, [O believer,] do not waste thyself in sorrowing over them: verily, God has full knowledge of all that they do!
  <!--END_SECTION:quran-->
 
   
