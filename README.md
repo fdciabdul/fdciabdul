@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 32**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 6**
 
-As for those who avoid the [truly] grave sins and shameful deeds - even though they may some­times stumble behold, thy Sustainer is abounding in forgiveness. He is fully aware of you when He brings you into being out of dust, and when you are still hidden in your mothers’ wombs: do not, then, consider your­selves pure - [for] He knows best as to who is conscious of Him.
+VERILY, towards his Sustainer man is most ungrateful
  <!--END_SECTION:quran-->
 
   
