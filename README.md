@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 37**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 84**
 
-Now this Qur'an could not possibly have been devised by anyone save God: nay indeed, it confirms the truth of whatever there still remains [of earlier revelations] and clearly spells out the revelation [which comes] -let there be no doubt about it-from the Sustainer of all the worlds.
+Hence, be not in haste [to call down God's punishment] upon them: for We but number the number of their days.
  <!--END_SECTION:quran-->
 
   
