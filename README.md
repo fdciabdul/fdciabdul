@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 24**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-and some faces will on that Day be overcast with despair,
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
