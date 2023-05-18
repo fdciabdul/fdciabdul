@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 4**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 11**
 
-And [have We not] raised thee high in dignity?
+But he would not try to ascend the steep uphill road...
  <!--END_SECTION:quran-->
 
   
