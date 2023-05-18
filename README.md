@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 15**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
 
-If anyone thinks that God will not succour him in this world and in the life to come, let him reach out unto heaven by any [other] means and [thus try to] make headway: and then let him see whether this scheme of his will indeed do away with the cause of his anguish.
+"and there is nothing that could be compared with Him.
  <!--END_SECTION:quran-->
 
   
