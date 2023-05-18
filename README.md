@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 4**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 23**
 
-He knows all that is in the heavens and on earth; and He knows all that you keep secret as well as all that you bring into the open: for God has full knowledge of what is in the hearts [of men].
+with its fruits within easy reach.
  <!--END_SECTION:quran-->
 
   
