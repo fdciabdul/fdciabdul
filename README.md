@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 50**
 
-Verily, man is bound to lose himself
+But whenever We removed the suffering from them, lo! they would break their word.
  <!--END_SECTION:quran-->
 
   
