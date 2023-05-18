@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 6**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 8**
 
-And do not through giving seek thyself to gain,
+and the moon is darkened,
  <!--END_SECTION:quran-->
 
   
