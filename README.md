@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 9**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
 
-God only forbids you to turn in friendship towards such as fight against you because of [your] faith, and drive you forth from your homelands, or aid [others] in driving you forth: and as for those [from among you] who turn towards them in friendship; it is they, they who are truly wrongdoers!
+HAVE WE NOT opened up thy heart,
  <!--END_SECTION:quran-->
 
   
