@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 22**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 8**
 
-Nay, but they who are bent on denying the truth give the lie [to this divine writ]!
+and the moon is darkened,
  <!--END_SECTION:quran-->
 
   
