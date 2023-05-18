@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 65**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 30**
 
-But then they relapsed into their former way of thinking and said: “Thou knowest very well that these [idols] cannot speak!”
+On that Day We will ask hell, “Art thou filled?”- and it will answer, “[Nay,] is there yet more [for me]?”
  <!--END_SECTION:quran-->
 
   
