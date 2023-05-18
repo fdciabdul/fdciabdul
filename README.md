@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 12**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 21**
 
-aware of whatever you do!
+Nay, but this [divine writ which they reject] is a discourse sublime,
  <!--END_SECTION:quran-->
 
   
