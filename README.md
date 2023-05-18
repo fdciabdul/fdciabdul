@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 16**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 6**
 
-“O my dear son,” [continued Luqman,] “verily, if there be but the weight of a mustard-seed, and though it be [hidden] in a rock, or in the skies, or in the earth, God will bring it to light: for, behold, God is unfathomable [in His wisdom], all-aware
+you would indeed, most surely, behold the blazing fire [of hell]!
  <!--END_SECTION:quran-->
 
   
