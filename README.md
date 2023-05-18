@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 117**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 79**
 
-Verily, thy Sustainer knows best as to who strays from His path, and best knows He as to who are the right-guided.
+and is the One who gives me to eat and to drink,
  <!--END_SECTION:quran-->
 
   
