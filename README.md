@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 37**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 6**
 
-[But bear in mind:] never does their flesh reach God, and neither their blood: it is only your God-consciousness that reaches Him. It is to this end that We have made them subservient to your needs, so that you might glorify God for all the guidance with which He has graced you. And give thou this glad tiding unto the doers of good:
+and will admit them to the paradise which He has promised them.
  <!--END_SECTION:quran-->
 
   
