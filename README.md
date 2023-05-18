@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 8**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 20**
 
-And [warn all men that] when the trumpet-call [of resurrection] is sounded,
+What, then, is amiss with them that they will not believe [in a life to come]?
  <!--END_SECTION:quran-->
 
   
