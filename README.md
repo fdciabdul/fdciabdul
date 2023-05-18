@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 12**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 3**
 
-[Easy is it for Him to create likeness and variety:] thus, the two great bodies of water [on earth] are not alike the one sweet, thirst-allaying, pleasant to drink, and the other salty and bitter: and yet, from either of them do you eat fresh meat, and [from either] you take gems which you may wear; and on either thou canst see ships ploughing through the waves, so that you might [be able to] go forth in quest of some of His bounty, and thus have cause to be grateful.
+of one-half thereof - or make it a little less than that,
  <!--END_SECTION:quran-->
 
   
