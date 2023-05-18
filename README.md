@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 38**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 75**
 
-And, indeed, abiding suffering did befall them early on the morrow:
+[Such as] these will be rewarded for all their patient endurance [in life] with a high station [in paradise], and will be met therein with a greeting of welcome and peace,
  <!--END_SECTION:quran-->
 
   
