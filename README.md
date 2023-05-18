@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 6**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 100**
 
-VERILY, towards his Sustainer man is most ungrateful
+[And he prayed:] “O my Sustainer! Bestow upon me the gift of [a son who shall be] one of the righteous!” –
  <!--END_SECTION:quran-->
 
   
