@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 8**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 20**
 
-Is, then, he to whom the evil of his own doings is [so] alluring that [in the end] he regards it as good [anything but a follower of Satan]? For, verily, God lets go astray him that wills [to go astray], just as He guides him that wills [to be guided]. Hence, [O believer,] do not waste thyself in sorrowing over them: verily, God has full knowledge of all that they do!
+And [one day] he looked in vain for [a parti­cular one of] the birds; and so he said: How is it that I do not see the hoopoe? Or could he be among the absent?
  <!--END_SECTION:quran-->
 
   
