@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 155**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 4**
 
-And most certainly shall We try you by means of danger, and hunger, and loss of worldly goods, of lives and of [labour's] fruits. But give glad tidings unto those who are patient in adversity
+And [have We not] raised thee high in dignity?
  <!--END_SECTION:quran-->
 
   
