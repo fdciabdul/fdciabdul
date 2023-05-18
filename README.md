@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 8**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 24**
 
-and the moon is darkened,
+and some faces will on that Day be overcast with despair,
  <!--END_SECTION:quran-->
 
   
