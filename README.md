@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 8**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 8**
 
-There is no deity save Him: He grants life and deals death: He is your Sustainer as well as the Sustainer of your forebears of old.
+[And] they say, "Indeed, when we return to the City [we,] the ones most worthy of honour will surely drive out therefrom those most contemptible ones!" However, all honour belongs to God, and [thus] to His Apostle and those who believe [in God]: but of this the hypocrites are not aware.
  <!--END_SECTION:quran-->
 
   
