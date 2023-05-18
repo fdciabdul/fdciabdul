@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 50**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 17**
 
-But whenever We removed the suffering from them, lo! they would break their word.
+[But] know that God gives life to the earth after it has been lifeless! We have indeed made Our messages clear unto you, so that you might use your reason.
  <!--END_SECTION:quran-->
 
   
