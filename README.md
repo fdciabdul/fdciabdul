@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 24**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 12**
 
-and some faces will on that Day be overcast with despair,
+[Easy is it for Him to create likeness and variety:] thus, the two great bodies of water [on earth] are not alike the one sweet, thirst-allaying, pleasant to drink, and the other salty and bitter: and yet, from either of them do you eat fresh meat, and [from either] you take gems which you may wear; and on either thou canst see ships ploughing through the waves, so that you might [be able to] go forth in quest of some of His bounty, and thus have cause to be grateful.
  <!--END_SECTION:quran-->
 
   
