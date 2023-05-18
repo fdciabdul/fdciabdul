@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 33**
 
-Let them, therefore, worship the Sustainer of this Temple;
+And as for those who are unable to marry, let them live in continence until God grants them sufficiency out of His bounty, And if any of those whom you rightfully possess desire [to obtain] a deed of freedom, write it out for them if you are aware of any good in them: and give them [their share of the wealth of God which He has given you. And do not, in order to gain some of the fleeting pleasures of this worldly life, coerce your [slave] maidens into whoredom if they happen to be desirous of marriage; and if anyone should coerce them, then, verily, after they have been compelled [to submit in their helplessness], God will be much-forgiving, a dispenser of grace!
  <!--END_SECTION:quran-->
 
   
