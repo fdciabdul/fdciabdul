@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 9**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 10**
 
-O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!
+and all that is [hidden] in men's hearts is bared
  <!--END_SECTION:quran-->
 
   
