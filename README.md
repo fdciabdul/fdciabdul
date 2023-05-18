@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 7**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-AND LO! We did accept a solemn pledge from all the prophets from thee, [O Muhammad,] as well as from Noah, and Abraham, and Moses, and Jesus the son of Mary -: for We accepted a most weighty, solemn pledge from [all of] them,
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
