@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 147**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 115**
 
-and all that they said was this: "O our Sustainer! Forgive us our sins and the lack of moderation in our doings! And make firm our steps, and succour us against people who deny the truth!" -
+And God would never-after having invited them to His guidance -condemn people for going astray ere He has made [entirely] clear unto them of what they should beware. Verily, God has full knowledge of everything.
  <!--END_SECTION:quran-->
 
   
