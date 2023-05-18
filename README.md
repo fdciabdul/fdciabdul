@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 3**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-[In the life to come] he shall have to endure a fire fiercely glowing;
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
