@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 10**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 18**
 
-And spend on others out of what We have provided for you as sustenance, ere there come a time when death approaches any of you, and he then says, "O my Sustainer! If only Thou wouldst grant me a delay for a short while, so that I could give in charity and be among the righteous!"
+so that anyone who seeks to learn [the unknowable] by stealth is pursued by a flame clear to see.
  <!--END_SECTION:quran-->
 
   
