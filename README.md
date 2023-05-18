@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 102**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 9**
 
-And such is thy Sustainer's punishing grasp whenever He takes to task any community that is given to evildoing: verily, His punishing grasp is grievous, severe!
+and the sun and the moon are brought together
  <!--END_SECTION:quran-->
 
   
