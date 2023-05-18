@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 80**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 31**
 
-And say [in thy prayer]: "O my Sustainer! Cause me to enter [upon whatever I may do] in a manner. true and sincere, and cause me to leave [it] in a manner true and sincere, and grant me, out of Thy grace, sustaining strength!"
+Art thou not aware how the ships speed through the sea by God’s favour, so that He might show you some of His wonders? Herein, behold, there are messages indeed for all who are wholly patient in adversity and deeply grate­ful [to God].
  <!--END_SECTION:quran-->
 
   
