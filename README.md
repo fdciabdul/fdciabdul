@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 30**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 3**
 
-On that Day We will ask hell, “Art thou filled?”- and it will answer, “[Nay,] is there yet more [for me]?”
+[In the life to come] he shall have to endure a fire fiercely glowing;
  <!--END_SECTION:quran-->
 
   
