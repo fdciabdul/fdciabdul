@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 21**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 13**
 
-Nay, but this [divine writ which they reject] is a discourse sublime,
+Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.
  <!--END_SECTION:quran-->
 
   
