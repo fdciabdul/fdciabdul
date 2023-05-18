@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 11**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 11**
 
-But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.
+and when heaven is laid bare,
  <!--END_SECTION:quran-->
 
   
