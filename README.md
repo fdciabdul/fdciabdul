@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 87**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 58**
 
-This [divine writ], behold, is no less than a reminder to all the worlds —
+for, verily, God Himself is the Provider of all sustenance, the Lord of all might, the Eternal!
  <!--END_SECTION:quran-->
 
   
