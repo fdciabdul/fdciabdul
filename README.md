@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 34**
 
-"and there is nothing that could be compared with Him.
+[And so, tell those who are bent on denying the truth that] they who shall be gathered unto hell upon their faces – it is they who [in the life to come] will be worst in station and still farther astray from the path [of truth]!
  <!--END_SECTION:quran-->
 
   
