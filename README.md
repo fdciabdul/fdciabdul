@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 30**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 31**
 
-And as for him who does this with malicious intent and a will to do wrong - him shall We, in time, cause to endure [suffering through] fire: for this is indeed easy for God.
+And [on that Day] paradise will be brought within the sight of the God-conscious, and will no longer be far away; [and they will be told:]
  <!--END_SECTION:quran-->
 
   
