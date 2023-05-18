@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 7**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 32**
 
-whereas such as seek to go beyond that [limit] are truly transgressors;
+[But] it may be that our Sustainer will grant us something better instead: for, verily, unto our Sustainer do we turn with hope!"
  <!--END_SECTION:quran-->
 
   
