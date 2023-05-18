@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 2**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 128**
 
-guiding towards consciousness of what is right; and so We have come to believe in it. And we shall never ascribe divinity to anyone beside our Sustainer,
+for, verily, God is with those who are conscious of Him and are doers of good withal!
  <!--END_SECTION:quran-->
 
   
