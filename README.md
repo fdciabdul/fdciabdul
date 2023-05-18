@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 11**
 
-Verily, man is bound to lose himself
+But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.
  <!--END_SECTION:quran-->
 
   
