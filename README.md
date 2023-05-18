@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 52**
 
-In the end you will indeed, most surely, behold it with the eye of certainty:
+Yea, everyone of them claims that he [himself] ought to have been given revelations unfolded!
  <!--END_SECTION:quran-->
 
   
