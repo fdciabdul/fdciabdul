@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
 
-"and from the evil of the black darkness whenever it descends,
+Let them, therefore, worship the Sustainer of this Temple;
  <!--END_SECTION:quran-->
 
   
