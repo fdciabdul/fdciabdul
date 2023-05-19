@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 10**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 151**
 
-Furthermore, defer not to the contemptible swearer of oaths,
+Said [Moses]: "O my Sustainer! Grant Thou forgiveness unto me and my brother, and admit us unto Thy grace: for Thou art the most merciful of the merciful!"
  <!--END_SECTION:quran-->
 
   
