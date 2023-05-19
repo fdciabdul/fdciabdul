@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 16**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 3**
 
-or of a needy [stranger] lying in the dust –
+"and from the evil of the black darkness whenever it descends,
  <!--END_SECTION:quran-->
 
   
