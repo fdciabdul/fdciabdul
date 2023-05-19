@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 7**
 
-hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
+[In all these respects,] let him who has ample means spend in accordance with his amplitude; and let him whose means of subsistence are scanty spend in accordance with what God has given him: God does not burden any human being with more than He has given him - [and it may well be that] God will grant, after hardship, ease.
  <!--END_SECTION:quran-->
 
   
