@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 25**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 44**
 
-And thereupon God took him to task, [and made him] a warning example in the life to come as well as in this world.
+on the Day when the earth is riven asunder all around them as they hasten forth [towards God’s judgment]: that gathering will be easy for Us [to encompass].
  <!--END_SECTION:quran-->
 
   
