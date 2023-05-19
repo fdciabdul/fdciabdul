@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 49**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 16**
 
-And among them there was [many a one] who said," Grant me permission [to remain at home], and do not put me to too hard a test!" Oh, verily, [by making such a request] they had [already failed in their test and] succumbed to a temptation to evil: and, behold, hell will indeed encompass all who refuse to acknowledge the truth!
+or of a needy [stranger] lying in the dust –
  <!--END_SECTION:quran-->
 
   
