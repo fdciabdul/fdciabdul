@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 1**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 21**
 
-SAY: "It has been revealed to me that some of the unseen beings gave ear [to this divine writ], and thereupon said [unto their fellow-beings]: "'Verily, we have heard a wondrous discourse,
+ART THOU NOT aware that it is God who sends down water from the skies, and then causes it to travel through the earth in the shape of springs? And then He brings forth thereby herbage of various hues; and then it withers, and thou canst see it turn yellow; and in the end He causes it to crumble to dust. Verily, in [all] this there is indeed a reminder to those who are endowed with insight!
  <!--END_SECTION:quran-->
 
   
