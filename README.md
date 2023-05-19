@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 1**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 17**
 
-O PROPHET! Why dost thou, out of a desire to please [one or another of] thy wives, impose [on thyself] a prohibition of something that God has made lawful to thee? But God is much-forgiving, a dispenser of grace:
+VERILY, the Day of Distinction [between the true and the false] has indeed its appointed time:
  <!--END_SECTION:quran-->
 
   
