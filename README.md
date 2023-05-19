@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 13**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 19**
 
-BUT IF they turn away, say: “I warn you of [the coming of] a thunderbolt of punishment like the thunderbolt [that fell upon the tribes] of Ad and Thamud!”
+and [of] many war-gains which they would achieve: for God is indeed almighty, wise.
  <!--END_SECTION:quran-->
 
   
