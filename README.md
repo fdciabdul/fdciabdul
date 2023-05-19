@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 3**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 3**
 
-The Most Gracious, the Dispenser of Grace,
+We have not created the heavens and the earth and all that is between them otherwise than in accord­ance with [an inner] truth, and for a term set [by Us]: and yet, they who are bent on denying the truth turn aside from the warning which has been conveyed unto them.
  <!--END_SECTION:quran-->
 
   
