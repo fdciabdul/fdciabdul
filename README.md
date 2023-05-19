@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 16**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 17**
 
-but I shall bring all their scheming to nought.
+seeing that for those who shun the powers of evil lest they [be tempted to] worship them, and turn unto God instead, there is the glad tiding [of happiness in the life to come]. Give, then, this glad tiding to [those of] My ser­vants
  <!--END_SECTION:quran-->
 
   
