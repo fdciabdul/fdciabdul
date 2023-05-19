@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 21**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
 
-And yet some people choose to worship certain earthly things or beings as deities that [are supposed to] resurrect [the dead; and they fail to realize that],
+extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
  <!--END_SECTION:quran-->
 
   
