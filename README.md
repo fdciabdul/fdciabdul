@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 19**
+**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 1**
 
-and [of] many war-gains which they would achieve: for God is indeed almighty, wise.
+SAY: "It has been revealed to me that some of the unseen beings gave ear [to this divine writ], and thereupon said [unto their fellow-beings]: "'Verily, we have heard a wondrous discourse,
  <!--END_SECTION:quran-->
 
   
