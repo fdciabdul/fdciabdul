@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 166**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 8**
 
-and all that befell you on the day when the two hosts met in battle happened by God's leave, so that He might mark out the [true] believers,
+Is not God the most just of judges?
  <!--END_SECTION:quran-->
 
   
