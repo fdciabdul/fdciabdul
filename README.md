@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 33**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 5**
 
-[everyone] who stood in awe of the Most Gracious although He is beyond the reach of human perception, and who has come [unto Him] with a heart full of contrition.
+and who are mindful of their chastity,
  <!--END_SECTION:quran-->
 
   
