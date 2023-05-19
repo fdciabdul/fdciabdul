@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 1**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 9**
 
-O THOU [in thy solitude] enfolded!
+God only forbids you to turn in friendship towards such as fight against you because of [your] faith, and drive you forth from your homelands, or aid [others] in driving you forth: and as for those [from among you] who turn towards them in friendship; it is they, they who are truly wrongdoers!
  <!--END_SECTION:quran-->
 
   
