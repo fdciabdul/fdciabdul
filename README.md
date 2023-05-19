@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 4**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 38**
 
-"and from the evil of all human beings bent on occult endeavours,
+and in which you find all that you may wish to find?
  <!--END_SECTION:quran-->
 
   
