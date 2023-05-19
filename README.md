@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 97**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 4**
 
-[His sons] answered: "O our father! Ask God to forgive us our sins, for, verily, we were sinners."
+And once again: Nay, in time you will come to understand!
  <!--END_SECTION:quran-->
 
   
