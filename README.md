@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 5**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 54**
 
-And once again: Nay, but in time they will come to understand!
+Oh, verily, they are in doubt as to whether they will meet their Sustainer [on Judgment Day]! Oh, verily, He encompasses everything!
  <!--END_SECTION:quran-->
 
   
