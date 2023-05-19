@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 29**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 1**
 
-and so they ask, “When is this promise [of resurrection and judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!”
+O THOU [in thy solitude] enfolded!
  <!--END_SECTION:quran-->
 
   
