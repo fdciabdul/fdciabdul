@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 88**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
 
-Said the great ones among his people, who gloried in their arrogance: "Most certainly, O Shu'ayb, we shall expel thee and thy fellow-believers from our land, unless you indeed return to our ways!" Said [Shu'ayb]: "Why, even though we abhor [them]?
+hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
  <!--END_SECTION:quran-->
 
   
