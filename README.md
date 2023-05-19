@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 3**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 3**
 
-It is the star that pierces through [life's] darkness:
+and who determines the nature [of all that exists], and thereupon guides it [towards its fulfilment],
  <!--END_SECTION:quran-->
 
   
