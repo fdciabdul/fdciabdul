@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 1**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 1**
 
-IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:
+CONSIDER the sun and its radiant brightness,
  <!--END_SECTION:quran-->
 
   
