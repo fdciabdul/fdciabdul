@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 8**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 48**
 
-through God’s bounty and favour; and God is all-knowing, truly wise.
+and when they are told, "Bow down [before God]", do not bow down:
  <!--END_SECTION:quran-->
 
   
