@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 3**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 10**
 
-We [now] convey unto thee some of the story of Moses and Pharaoh, setting forth the truth for [the benefit of] people who will believe.
+Furthermore, defer not to the contemptible swearer of oaths,
  <!--END_SECTION:quran-->
 
   
