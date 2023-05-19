@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 45**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 16**
 
-CONVEY [unto others] whatever of this divine writ has been revealed unto thee, and be constant in prayer: for, behold, prayer restrains [man] from loathsome deeds and from all that runs counter to reason; and remembrance of God is indeed the greatest [good]. And God knows all that you do.
+but I shall bring all their scheming to nought.
  <!--END_SECTION:quran-->
 
   
