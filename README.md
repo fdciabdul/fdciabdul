@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 22**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 4**
 
-and neither are equal the living and the dead [of heart]. Behold, [O Muhammad,] God can make hear whomever He wills, whereas thou canst not make hear such as are [dead of heart like the dead] in their graves:
+His is all that is in the heavens and all that is on earth; and most exalted, tremendous is He.
  <!--END_SECTION:quran-->
 
   
