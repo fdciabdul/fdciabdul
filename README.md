@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 84**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 10**
 
-for [then they will come to know that] it is He [alone] who is God in heaven and God on earth, and [that] He alone is truly wise, all-knowing.
+Verily, as for those who persecute believing men and believing women, and thereafter do not repent, hell's suffering awaits them: yea, suffering through fire awaits them!
  <!--END_SECTION:quran-->
 
   
