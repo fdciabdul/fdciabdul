@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 51**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 15**
 
-Thus, indeed, did We destroy people like you [in the past]: who, then, is willing to take it to heart?
+of an orphan near of kin,
  <!--END_SECTION:quran-->
 
   
