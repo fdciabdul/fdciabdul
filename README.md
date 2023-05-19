@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 18**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 18**
 
-[the while] We shall summon the forces of heavenly chastisement!
+[for] thus do We deal with such as are lost in sin.
  <!--END_SECTION:quran-->
 
   
