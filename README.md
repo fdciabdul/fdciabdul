@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 50**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 8**
 
-as though they were terrified asses
+and on that Day you will most surely be called to account for [what you did with] the boon of life!
  <!--END_SECTION:quran-->
 
   
