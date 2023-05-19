@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 169**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 41**
 
-[And then he prayed:] “O my Sustainer! Save me and my household from all that they are doing!”
+Go forth to war, whether it be easy or difficult [for you], and strive hard in God's cause with your possessions and your lives: this is for your own good -if you but knew it!
  <!--END_SECTION:quran-->
 
   
