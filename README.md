@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 15**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
 
-as for those who attained to faith and did righteous deeds, they shall be made happy in a garden of delight;
+On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
  <!--END_SECTION:quran-->
 
   
