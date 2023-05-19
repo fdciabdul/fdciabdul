@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 8**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 7**
 
-and on that Day you will most surely be called to account for [what you did with] the boon of life!
+The way of those upon whom Thou hast bestowed Thy blessings, not of those who have been condemned [by Thee], nor of those who go astray!
  <!--END_SECTION:quran-->
 
   
