@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 174**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 1**
 
-O MANKIND! A manifestation of the truth has now come unto you from your Sustainer, and We have sent down unto you a clear light.
+CONSIDER the fig and the olive,
  <!--END_SECTION:quran-->
 
   
