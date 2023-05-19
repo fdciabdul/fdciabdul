@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 19**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 25**
 
-And [then,] the twilight of death brings with it the [full] truth that [very thing, O man,] from which thou wouldst always look away! –
+No empty talk will they hear there, nor any call to sin,
  <!--END_SECTION:quran-->
 
   
