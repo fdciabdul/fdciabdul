@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 8**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 187**
 
-Is not God the most just of judges?
+THEY WILL ASK thee [O Prophet] about the Last Hour: "When will it come to pass?" Say: "Verily, knowledge thereof rests with my Sustainer alone. None but He will reveal it in its time. Heavily will it weigh on the heavens and the earth; [and] it will not fall upon you otherwise than of a sudden." They will ask thee - as if thou couldst gain insight into this [mystery] by dint of persistent inquiry! Say: "Knowledge thereof rests with my Sustainer alone; but [of this] most people are unaware."
  <!--END_SECTION:quran-->
 
   
