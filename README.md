@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 62**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 29**
 
-And [withal.] We do not burden any human being with more than he is well able to bear: for with Us is a record that speaks the truth [about what men do and can do]; and none shall be wronged.
+Thereupon she pointed to him. They exclaimed: "How can we talk to one who [as yet] is a little boy in the cradle?"
  <!--END_SECTION:quran-->
 
   
