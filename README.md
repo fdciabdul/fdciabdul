@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 62**
 
-On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
+And [withal.] We do not burden any human being with more than he is well able to bear: for with Us is a record that speaks the truth [about what men do and can do]; and none shall be wronged.
  <!--END_SECTION:quran-->
 
   
