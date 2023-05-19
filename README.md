@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 27**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 90**
 
-hence, how [will they fare] when the angels gather them in death, striking their faces and their backs?
+Verily, as for those who are bent on denying the truth after having attained to faith, and then grow [ever more stubborn] in their refusal to acknowledge the truth, their repentance [of other sins] shall not be accepted: for it is they who have truly gone astray.
  <!--END_SECTION:quran-->
 
   
