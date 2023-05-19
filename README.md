@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 2**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 47**
 
-and Mount Sinai,
+and [We have sent thee] lest they say [on Judg­ment Day], when disaster befalls them as an outcome of what their own hands have wrought, “O our Sus­tainer, if only Thou had sent an apostle unto us, we would have followed Thy messages, and would have been among those who believe!”
  <!--END_SECTION:quran-->
 
   
