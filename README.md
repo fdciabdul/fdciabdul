@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 5**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 2**
 
-and who are mindful of their chastity,
+"the Sovereign of men,
  <!--END_SECTION:quran-->
 
   
