@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 1**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 51**
 
-CONSIDER the sun and its radiant brightness,
+Thus, indeed, did We destroy people like you [in the past]: who, then, is willing to take it to heart?
  <!--END_SECTION:quran-->
 
   
