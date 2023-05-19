@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 85**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 13**
 
-Said [his sons]: "By God! Thou wilt never cease to remember, Joseph till thou art broken in body and spirit or art dead!"
+BUT IF they turn away, say: “I warn you of [the coming of] a thunderbolt of punishment like the thunderbolt [that fell upon the tribes] of Ad and Thamud!”
  <!--END_SECTION:quran-->
 
   
