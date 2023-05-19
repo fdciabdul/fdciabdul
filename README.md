@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 5**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 10**
 
-and when all beasts are gathered together,
+and all that is [hidden] in men's hearts is bared
  <!--END_SECTION:quran-->
 
   
