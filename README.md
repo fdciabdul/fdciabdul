@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 2**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 169**
 
-"the Sovereign of men,
+[And then he prayed:] “O my Sustainer! Save me and my household from all that they are doing!”
  <!--END_SECTION:quran-->
 
   
