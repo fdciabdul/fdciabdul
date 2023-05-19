@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 4**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
 
-Verily, We create man in the best conformation;
+"And I will not worship ~hat which you have [ever] worshipped,
  <!--END_SECTION:quran-->
 
   
