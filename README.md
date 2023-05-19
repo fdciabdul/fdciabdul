@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 3**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 5**
 
-How many a generation have We destroyed before their time [for this very sin]! And [how] they called [unto Us] when it was too late to escape!
+Nay, but they [who refuse to believe in resurrection] have been wont to give the lie to this truth whenever it was proffered to them; and so they are in a state of confusion.
  <!--END_SECTION:quran-->
 
   
