@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 21**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 11**
 
-ART THOU NOT aware that it is God who sends down water from the skies, and then causes it to travel through the earth in the shape of springs? And then He brings forth thereby herbage of various hues; and then it withers, and thou canst see it turn yellow; and in the end He causes it to crumble to dust. Verily, in [all] this there is indeed a reminder to those who are endowed with insight!
+But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.
  <!--END_SECTION:quran-->
 
   
