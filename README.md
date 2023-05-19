@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 17**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 12**
 
-seeing that for those who shun the powers of evil lest they [be tempted to] worship them, and turn unto God instead, there is the glad tiding [of happiness in the life to come]. Give, then, this glad tiding to [those of] My ser­vants
+so that We might make all this a [lasting] reminder to you all, and that every wide-awake ear might consciously take it in.
  <!--END_SECTION:quran-->
 
   
