@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 36**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 174**
 
-For he had truly warned them of Our punishing might; but they stubbornly cast doubt on these warn­ings,
+O MANKIND! A manifestation of the truth has now come unto you from your Sustainer, and We have sent down unto you a clear light.
  <!--END_SECTION:quran-->
 
   
