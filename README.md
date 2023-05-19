@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 1**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 3**
 
-OH, the sudden calamity!
+We [now] convey unto thee some of the story of Moses and Pharaoh, setting forth the truth for [the benefit of] people who will believe.
  <!--END_SECTION:quran-->
 
   
