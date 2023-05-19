@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 7**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 13**
 
-Hence, when thou art freed [from distress], remain steadfast,
+And, indeed, We destroyed before your time [whole] generations when they [persistently] did evil although the apostles sent unto them brought them all evidence of the truth; for they refused to believe [them]. Thus do We requite people who are lost in sin.
  <!--END_SECTION:quran-->
 
   
