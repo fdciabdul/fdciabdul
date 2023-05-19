@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 3**
+**Surah 38: سُورَةُ صٓ (Saad) - 3**
 
-and who determines the nature [of all that exists], and thereupon guides it [towards its fulfilment],
+How many a generation have We destroyed before their time [for this very sin]! And [how] they called [unto Us] when it was too late to escape!
  <!--END_SECTION:quran-->
 
   
