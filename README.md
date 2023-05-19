@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 44**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 5**
 
-on the Day when the earth is riven asunder all around them as they hasten forth [towards God’s judgment]: that gathering will be easy for Us [to encompass].
+[and called to account] on an awesome Day –
  <!--END_SECTION:quran-->
 
   
