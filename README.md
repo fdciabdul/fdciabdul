@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 4**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 3**
 
-His is all that is in the heavens and all that is on earth; and most exalted, tremendous is He.
+The Most Gracious, the Dispenser of Grace,
  <!--END_SECTION:quran-->
 
   
