@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 6**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 84**
 
-verily, with every hardship comes ease!
+Hence, be not in haste [to call down God's punishment] upon them: for We but number the number of their days.
  <!--END_SECTION:quran-->
 
   
