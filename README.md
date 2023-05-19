@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 25**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 17**
 
-No empty talk will they hear there, nor any call to sin,
+and be told: "This is the [very thing] to which you were wont to give the lie!"
  <!--END_SECTION:quran-->
 
   
