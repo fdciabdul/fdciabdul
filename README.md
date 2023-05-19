@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 84**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 22**
 
-Hence, be not in haste [to call down God's punishment] upon them: for We but number the number of their days.
+and neither are equal the living and the dead [of heart]. Behold, [O Muhammad,] God can make hear whomever He wills, whereas thou canst not make hear such as are [dead of heart like the dead] in their graves:
  <!--END_SECTION:quran-->
 
   
