@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 5**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 18**
 
-Consider the sky and its wondrous make,
+On the Day when God will raise them all from the dead, they will swear before Him as they [now] swear before you, thinking that they are on firm ground [in their assumptions]. Oh, verily, it is they, they who are the [greatest] liars!
  <!--END_SECTION:quran-->
 
   
