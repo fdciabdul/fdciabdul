@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 14**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 21**
 
-Does he, then, not know that God sees [all]?
+And yet some people choose to worship certain earthly things or beings as deities that [are supposed to] resurrect [the dead; and they fail to realize that],
  <!--END_SECTION:quran-->
 
   
