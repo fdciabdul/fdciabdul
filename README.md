@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 187**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 15**
 
-THEY WILL ASK thee [O Prophet] about the Last Hour: "When will it come to pass?" Say: "Verily, knowledge thereof rests with my Sustainer alone. None but He will reveal it in its time. Heavily will it weigh on the heavens and the earth; [and] it will not fall upon you otherwise than of a sudden." They will ask thee - as if thou couldst gain insight into this [mystery] by dint of persistent inquiry! Say: "Knowledge thereof rests with my Sustainer alone; but [of this] most people are unaware."
+Nay, verily, from [the grace of] their Sustainer shall they on that Day be debarred;
  <!--END_SECTION:quran-->
 
   
