@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 5**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 85**
 
-[and called to account] on an awesome Day –
+Said [his sons]: "By God! Thou wilt never cease to remember, Joseph till thou art broken in body and spirit or art dead!"
  <!--END_SECTION:quran-->
 
   
