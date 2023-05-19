@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 72**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 132**
 
-[and] they will be told, “Enter the gates of hell, therein to abide!” And how vile an abode for those who were given to false pride!
+for he was truly one of Our believing servants!
  <!--END_SECTION:quran-->
 
   
