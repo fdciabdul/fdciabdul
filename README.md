@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 48**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 16**
 
-and when they are told, "Bow down [before God]", do not bow down:
+“O my dear son,” [continued Luqman,] “verily, if there be but the weight of a mustard-seed, and though it be [hidden] in a rock, or in the skies, or in the earth, God will bring it to light: for, behold, God is unfathomable [in His wisdom], all-aware
  <!--END_SECTION:quran-->
 
   
