@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 54**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 5**
 
-Oh, verily, they are in doubt as to whether they will meet their Sustainer [on Judgment Day]! Oh, verily, He encompasses everything!
+and when all beasts are gathered together,
  <!--END_SECTION:quran-->
 
   
