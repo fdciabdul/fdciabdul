@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 17**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 33**
 
-and be told: "This is the [very thing] to which you were wont to give the lie!"
+like giant fiery ropes!
  <!--END_SECTION:quran-->
 
   
