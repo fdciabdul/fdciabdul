@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 38**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 16**
 
-and in which you find all that you may wish to find?
+but as for those who refused to acknowledge the truth and gave the lie to Our messages - and (thus) to the announce­ment of a life to come - they will be given over to suffering.
  <!--END_SECTION:quran-->
 
   
