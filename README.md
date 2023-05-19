@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 90**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 84**
 
-Verily, as for those who are bent on denying the truth after having attained to faith, and then grow [ever more stubborn] in their refusal to acknowledge the truth, their repentance [of other sins] shall not be accepted: for it is they who have truly gone astray.
+for [then they will come to know that] it is He [alone] who is God in heaven and God on earth, and [that] He alone is truly wise, all-knowing.
  <!--END_SECTION:quran-->
 
   
