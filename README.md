@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 4**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 19**
 
-And once again: Nay, in time you will come to understand!
+And [then,] the twilight of death brings with it the [full] truth that [very thing, O man,] from which thou wouldst always look away! –
  <!--END_SECTION:quran-->
 
   
