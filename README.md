@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 6**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 1**
 
-those who want only to be seen and praised,
+OH, the sudden calamity!
  <!--END_SECTION:quran-->
 
   
