@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 18**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 27**
 
-[for] thus do We deal with such as are lost in sin.
+[But unto the righteous God will say,] "O thou human being that hast attained to inner peace!
  <!--END_SECTION:quran-->
 
   
