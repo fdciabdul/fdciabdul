@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 5**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 11**
 
-Nay, but they [who refuse to believe in resurrection] have been wont to give the lie to this truth whenever it was proffered to them; and so they are in a state of confusion.
+And He [it is who] applied His design to the skies, which were [yet but] smoke; and He [it is who] said to them and to the earth, “Come [into being], both of you, willingly or unwillingly!” - to which both responded, “We do come in obedience.”
  <!--END_SECTION:quran-->
 
   
