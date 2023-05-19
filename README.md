@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 151**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 45**
 
-Said [Moses]: "O my Sustainer! Grant Thou forgiveness unto me and my brother, and admit us unto Thy grace: for Thou art the most merciful of the merciful!"
+CONVEY [unto others] whatever of this divine writ has been revealed unto thee, and be constant in prayer: for, behold, prayer restrains [man] from loathsome deeds and from all that runs counter to reason; and remembrance of God is indeed the greatest [good]. And God knows all that you do.
  <!--END_SECTION:quran-->
 
   
