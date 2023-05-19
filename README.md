@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 33**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 25**
 
-And [every time] the great ones among his people, who refused to acknowledge the truth and gave the lie to the announcement of a life to come - [simply] because We had granted them ease and plenty in [their] worldly life, and they had become corrupted by it [every time] they would say: “This [man] is nothing hut a mortal like yourselves, eating of what you eat, and drinking of what you drink:
+And thereupon God took him to task, [and made him] a warning example in the life to come as well as in this world.
  <!--END_SECTION:quran-->
 
   
