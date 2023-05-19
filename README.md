@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 15**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 24**
 
-Nay, verily, from [the grace of] their Sustainer shall they on that Day be debarred;
+on the Day when their own tongues and hands and feet will bear witness against them by [recalling] all that they did!
  <!--END_SECTION:quran-->
 
   
