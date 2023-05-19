@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 33**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 14**
 
-like giant fiery ropes!
+Does he, then, not know that God sees [all]?
  <!--END_SECTION:quran-->
 
   
