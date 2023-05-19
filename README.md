@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 101**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 71**
 
-[But,] behold, as for those for whom [the decree of] ultimate good has already gone forth from Us these will be kept far away from that [hell]:
+[Lot] said: "[Take instead] these daughters of mine, if you must do [whatever you intend to do]!"
  <!--END_SECTION:quran-->
 
   
