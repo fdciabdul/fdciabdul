@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 11**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 101**
 
-But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.
+[But,] behold, as for those for whom [the decree of] ultimate good has already gone forth from Us these will be kept far away from that [hell]:
  <!--END_SECTION:quran-->
 
   
