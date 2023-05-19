@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 16**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 8**
 
-but as for those who refused to acknowledge the truth and gave the lie to Our messages - and (thus) to the announce­ment of a life to come - they will be given over to suffering.
+through God’s bounty and favour; and God is all-knowing, truly wise.
  <!--END_SECTION:quran-->
 
   
