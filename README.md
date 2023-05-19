@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 7**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 27**
 
-[In all these respects,] let him who has ample means spend in accordance with his amplitude; and let him whose means of subsistence are scanty spend in accordance with what God has given him: God does not burden any human being with more than He has given him - [and it may well be that] God will grant, after hardship, ease.
+hence, how [will they fare] when the angels gather them in death, striking their faces and their backs?
  <!--END_SECTION:quran-->
 
   
