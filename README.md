@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 3**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 18**
 
-Thy Sustainer has not forsaken thee, nor does He scorn thee:
+[the while] We shall summon the forces of heavenly chastisement!
  <!--END_SECTION:quran-->
 
   
