@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 20**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 33**
 
-so that you might walk thereon on spacious paths.’"
+[everyone] who stood in awe of the Most Gracious although He is beyond the reach of human perception, and who has come [unto Him] with a heart full of contrition.
  <!--END_SECTION:quran-->
 
   
