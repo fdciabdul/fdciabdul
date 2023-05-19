@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 12**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 72**
 
-so that We might make all this a [lasting] reminder to you all, and that every wide-awake ear might consciously take it in.
+[and] they will be told, “Enter the gates of hell, therein to abide!” And how vile an abode for those who were given to false pride!
  <!--END_SECTION:quran-->
 
   
