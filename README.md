@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 24**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 6**
 
-on the Day when their own tongues and hands and feet will bear witness against them by [recalling] all that they did!
+those who want only to be seen and praised,
  <!--END_SECTION:quran-->
 
   
