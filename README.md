@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
 
-"And I will not worship ~hat which you have [ever] worshipped,
+"and there is nothing that could be compared with Him.
  <!--END_SECTION:quran-->
 
   
