@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 65**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 33**
 
-If the followers of the Bible would but attain to [true] faith and God-consciousness, We should indeed efface their [previous] bad deeds, and indeed bring them into gardens of bliss;
+And [every time] the great ones among his people, who refused to acknowledge the truth and gave the lie to the announcement of a life to come - [simply] because We had granted them ease and plenty in [their] worldly life, and they had become corrupted by it [every time] they would say: “This [man] is nothing hut a mortal like yourselves, eating of what you eat, and drinking of what you drink:
  <!--END_SECTION:quran-->
 
   
