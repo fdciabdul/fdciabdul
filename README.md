@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 88**
 
-unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
+Said the great ones among his people, who gloried in their arrogance: "Most certainly, O Shu'ayb, we shall expel thee and thy fellow-believers from our land, unless you indeed return to our ways!" Said [Shu'ayb]: "Why, even though we abhor [them]?
  <!--END_SECTION:quran-->
 
   
