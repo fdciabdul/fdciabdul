@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 29**
 
-Let them, therefore, worship the Sustainer of this Temple;
+and so they ask, “When is this promise [of resurrection and judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!”
  <!--END_SECTION:quran-->
 
   
