@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 77**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 5**
 
-Which, then, of your Sustainer’s powers can you disavow?
+and caused them to become like a field of grain that has been eaten down to stubble
  <!--END_SECTION:quran-->
 
   
