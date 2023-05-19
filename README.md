@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 71**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 166**
 
-[Lot] said: "[Take instead] these daughters of mine, if you must do [whatever you intend to do]!"
+and all that befell you on the day when the two hosts met in battle happened by God's leave, so that He might mark out the [true] believers,
  <!--END_SECTION:quran-->
 
   
