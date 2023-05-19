@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 41**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 15**
 
-Go forth to war, whether it be easy or difficult [for you], and strive hard in God's cause with your possessions and your lives: this is for your own good -if you but knew it!
+as for those who attained to faith and did righteous deeds, they shall be made happy in a garden of delight;
  <!--END_SECTION:quran-->
 
   
