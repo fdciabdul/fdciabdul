@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 4**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 5**
 
-Now when thou seest them, their outward appearance may please thee; and when they speak, thou art inclined to lend ear to what they say. [But though they may seem as sure of themselves] as if they were timbers [firmly] propped up, they think that every shout is [directed] against them. They are the [real] enemies [of all faith], so beware of them. [They deserve the imprecation,] "May God destroy them!" How perverted are their minds!
+and so they say, [as it were:] “Our hearts are veiled from whatever thou callest us to, [O Muhammad,] and in our ears is deafness, and between us and thee is a barrier. Do, then, [whatever thou wilt, whereas,] behold, we shall do [as we have always done]!”
  <!--END_SECTION:quran-->
 
   
