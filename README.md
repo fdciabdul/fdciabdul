@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 10**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 3**
 
-and all that is [hidden] in men's hearts is bared
+It is the star that pierces through [life's] darkness:
  <!--END_SECTION:quran-->
 
   
