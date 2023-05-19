@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 15**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 93**
 
-of an orphan near of kin,
+And say: “All praise is due to God! In time He will make you see [the truth of] His messages, and then you shall know them [for what they are].” And thy Sustainer is not unmindful of whatever you all may do.
  <!--END_SECTION:quran-->
 
   
