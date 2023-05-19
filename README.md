@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 55**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 97**
 
-drink it as the most insatiably thirsty camels drink!”
+[His sons] answered: "O our father! Ask God to forgive us our sins, for, verily, we were sinners."
  <!--END_SECTION:quran-->
 
   
