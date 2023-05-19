@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 27**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 7**
 
-[But unto the righteous God will say,] "O thou human being that hast attained to inner peace!
+Hence, when thou art freed [from distress], remain steadfast,
  <!--END_SECTION:quran-->
 
   
