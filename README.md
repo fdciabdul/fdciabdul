@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 18**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 36**
 
-On the Day when God will raise them all from the dead, they will swear before Him as they [now] swear before you, thinking that they are on firm ground [in their assumptions]. Oh, verily, it is they, they who are the [greatest] liars!
+For he had truly warned them of Our punishing might; but they stubbornly cast doubt on these warn­ings,
  <!--END_SECTION:quran-->
 
   
