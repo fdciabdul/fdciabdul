@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 93**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 3**
 
-And say: “All praise is due to God! In time He will make you see [the truth of] His messages, and then you shall know them [for what they are].” And thy Sustainer is not unmindful of whatever you all may do.
+Thy Sustainer has not forsaken thee, nor does He scorn thee:
  <!--END_SECTION:quran-->
 
   
