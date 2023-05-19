@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 10**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 5**
 
-Verily, as for those who persecute believing men and believing women, and thereafter do not repent, hell's suffering awaits them: yea, suffering through fire awaits them!
+Consider the sky and its wondrous make,
  <!--END_SECTION:quran-->
 
   
