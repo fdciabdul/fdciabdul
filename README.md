@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 43**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 5**
 
-And [then,] indeed, after We had destroyed those earlier generations [of sinners], We vouchsafed unto Moses [Our] revelation as a means of insight for men, and as a guidance and grace, so that they might bethink themselves [of Us].
+whose hearts from their prayer are remote
  <!--END_SECTION:quran-->
 
   
