@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 9**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
 
-[LONG] BEFORE those [who now deny resurrec­tion] did Noah’s people call it a lie; and they gave the lie to Our servant and said, “Mad is he!” - and he was repulsed.
+What will his wealth avail him, and all that he has gained?
  <!--END_SECTION:quran-->
 
   
