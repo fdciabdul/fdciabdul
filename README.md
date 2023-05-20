@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 14**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 5**
 
-Invoke, then, God, sincere in your faith in Him alone, however hateful this may be to those who deny the truth!
+does it make secure, until the rise of dawn.
  <!--END_SECTION:quran-->
 
   
