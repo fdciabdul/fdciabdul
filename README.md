@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 88**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 52**
 
-[so] turn, not thine eyes [longingly] towards the worldly benefits which We have granted unto some of those [that deny the truth]. And neither grieve over those [who refuse to heed thee], but spread the wings of thy tenderness over the believers,
+Extol, then the limitless glory of thy Sustainer's mighty name!
  <!--END_SECTION:quran-->
 
   
