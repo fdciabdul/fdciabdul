@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 35**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 49**
 
-AND SO, [when you fight in a just cause,] do not lose heart and [never] beg for peace: for, seeing that God is with you, you are bound to rise high [in the end]; and never will He let your [good] deeds go to waste.
+who stand in awe of their Sustainer although He is beyond the reach of human perception, and who tremble at the thought of the Last Hour.
  <!--END_SECTION:quran-->
 
   
