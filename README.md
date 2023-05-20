@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 24**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-those who are niggardly [with God’s bounty] and bid others to be niggardly! And he who turns his back [on this truth ought to know that], verily, God alone is self-sufficient, the One to whom all praise is due!
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
