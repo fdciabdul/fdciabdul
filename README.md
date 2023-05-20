@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 29**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 13**
 
-Thereupon she pointed to him. They exclaimed: "How can we talk to one who [as yet] is a little boy in the cradle?"
+AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.
  <!--END_SECTION:quran-->
 
   
