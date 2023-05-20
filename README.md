@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 14**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 30**
 
-Say: “God alone do I worship, sincere in my faith in Him alone -
+some [of you] He will have graced with His guidance, whereas, for some a straying from the right path will have become unavoidable: for, behold, they will have taken [their own] evil impulses for their masters in preference to God, thinking all the while that they have found the right path!"
  <!--END_SECTION:quran-->
 
   
