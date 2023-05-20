@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 6**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 25**
 
-And how many a prophet did We send to people of olden times!
+And if they give thee the lie - even so gave the lie to the truth [many of] those who lived before their time, [when] there came unto them their apostles with all evidence of the truth, and with books of divine wisdom, and with light-giving revelation;
  <!--END_SECTION:quran-->
 
   
