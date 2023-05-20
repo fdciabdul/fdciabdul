@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 46**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 35**
 
-And [this retribution will befall all evildoers because] they devise that false imagery of theirs - and all their false imagery is within God's knowledge. [And never can the blasphemers prevail against the truth - not] even if their false imagery were so (well devised and so powerful] that mountains could be moved thereby.
+or should We, perchance, treat those who surrender themselves unto Us as [We would treat] those who remain lost in sin?
  <!--END_SECTION:quran-->
 
   
