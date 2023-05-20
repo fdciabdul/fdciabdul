@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 83**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 24**
 
-And on that Day We shall gather from within every community a host of those who gave the lie to Our messages; and they will be grouped [according to the gravity of their sins]
+those who are niggardly [with God’s bounty] and bid others to be niggardly! And he who turns his back [on this truth ought to know that], verily, God alone is self-sufficient, the One to whom all praise is due!
  <!--END_SECTION:quran-->
 
   
