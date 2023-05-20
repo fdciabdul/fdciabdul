@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 32**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 13**
 
-and [has endowed me with] piety towards my mother; and He has not made me haughty or bereft of grace.
+In that [garden] they will on couches recline, and will know therein neither [burning] sun nor cold severe,
  <!--END_SECTION:quran-->
 
   
