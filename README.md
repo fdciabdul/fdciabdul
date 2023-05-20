@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 25**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
 
-for [when they became obli­vious of Us,] We assigned to them [their own evil impulses as their] other selves, and these made appear goodly to them whatever lay open before them and whatever was beyond their ken. And so, the sentence [of doom] will have fallen due upon them together with the [other sinful] com­munities of invisible beings and humans that passed away before their time: verily, they [all] will indeed be lost!
+extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
  <!--END_SECTION:quran-->
 
   
