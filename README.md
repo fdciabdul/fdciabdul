@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 7**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
 
-[But] it may well be that God will bring about [mutual] affection between you [O believers] and some of those whom you [now] face as enemies: for, God is all-powerful - and God is much-forgiving, a dispenser of grace.
+together with his wife, that carrier of evil tales,
  <!--END_SECTION:quran-->
 
   
