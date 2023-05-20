@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 22**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 77**
 
-Not so, however, those who consciously turn towards God in prayer.
+Verily, herein lies a message indeed for all who believe [in God].
  <!--END_SECTION:quran-->
 
   
