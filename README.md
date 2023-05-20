@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 5**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
 
-whose hearts from their prayer are remote
+[who bears] around her neck a rope of twisted strands!
  <!--END_SECTION:quran-->
 
   
