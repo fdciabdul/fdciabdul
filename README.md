@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 3**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 25**
 
-And lo! [It so happened that] the Prophet told something in confidence to one of his wives; and when she thereupon divulged it, and God made this known to him, he acquainted [others] with some of it and passed over some of it. And as soon as he let her know it, she asked, "Who has told thee this?" - [to which] he replied, "The All-Knowing, the All-Aware has told me."
+for [when they became obli­vious of Us,] We assigned to them [their own evil impulses as their] other selves, and these made appear goodly to them whatever lay open before them and whatever was beyond their ken. And so, the sentence [of doom] will have fallen due upon them together with the [other sinful] com­munities of invisible beings and humans that passed away before their time: verily, they [all] will indeed be lost!
  <!--END_SECTION:quran-->
 
   
