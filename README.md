@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 40**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 83**
 
-Is not He, then; able to bring the dead back to life?
+And on that Day We shall gather from within every community a host of those who gave the lie to Our messages; and they will be grouped [according to the gravity of their sins]
  <!--END_SECTION:quran-->
 
   
