@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 11**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 1**
 
-And for those who have attained to faith God has propounded a parable in [the story of] Pharaoh's wife as she prayed "O my Sustainer! Build Thou for me a mansion in the paradise [that is] with Thee, and save me from Pharaoh and his doings, and save me, from all evildoing folk!
+SO THAT the Quraysh might remain secure,
  <!--END_SECTION:quran-->
 
   
