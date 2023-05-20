@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 8**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 9**
 
-Believe then, [O men,] in God and His Apostle, and in the light [of revelation] which We have bestowed [on you] from on high! And God is fully aware of all that you do.
+God's messages have they bartered away for a trifling gain, and have thus turned away from His path: evil, behold, is all that they are wont to do,
  <!--END_SECTION:quran-->
 
   
