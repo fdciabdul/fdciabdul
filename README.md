@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 5**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 9**
 
-does it make secure, until the rise of dawn.
+and with [the tribe of] Thamud, who hollowed out rocks in the valley? –
  <!--END_SECTION:quran-->
 
   
