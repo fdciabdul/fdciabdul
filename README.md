@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 10**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 14**
 
-behold, we stand in awe of our Sustainer's judgment on a distressful, fateful Day!"
+Invoke, then, God, sincere in your faith in Him alone, however hateful this may be to those who deny the truth!
  <!--END_SECTION:quran-->
 
   
