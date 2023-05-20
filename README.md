@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 45**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 27**
 
-so that He might reward, out of His bounty, those who have attained to faith and done righteous deeds. Verily, He does not love those who refuse to acknowledge the truth –
+Said [Solomon]: “We shall see whether thou hast told the truth or art one of the liars!
  <!--END_SECTION:quran-->
 
   
