@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 53**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 1**
 
-and will have to fill your bellies therewith,
+WOE unto every slanderer, fault-finder!
  <!--END_SECTION:quran-->
 
   
