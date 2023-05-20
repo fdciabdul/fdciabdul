@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 52**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 29**
 
-Extol, then the limitless glory of thy Sustainer's mighty name!
+[and so it is that] they who attain to faith and do righteous deeds are destined for happiness [in this world] and the most beauteous of all goals [in the life to come]!"
  <!--END_SECTION:quran-->
 
   
