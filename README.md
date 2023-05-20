@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 20**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 6**
 
-NOW THOSE who have attained to faith say, “Would that a revelation [allowing us to fight] was bestowed from on high!” But now that a revelation clear in and by itself, mentioning war, has been bestowed from on high, thou canst see those in whose hearts is disease look­ing at thee, [O Muhammad,] with the look of one who is about to faint for fear of death! And yet, far better for them would be
+And how many a prophet did We send to people of olden times!
  <!--END_SECTION:quran-->
 
   
