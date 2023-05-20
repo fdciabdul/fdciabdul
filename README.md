@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 1**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 21**
 
-WOE unto every slanderer, fault-finder!
+[For] God has thus ordained: “I shall most certainly prevail, I and My apostles!” Verily, God is powerful, almighty!
  <!--END_SECTION:quran-->
 
   
