@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 11**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 22**
 
-And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:
+Not so, however, those who consciously turn towards God in prayer.
  <!--END_SECTION:quran-->
 
   
