@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 55**
+**Surah 38: سُورَةُ صٓ (Saad) - 12**
 
-out of this [earth] have We created you, and into it shall We return you, and out of it shall We bring you forth once again.
+To the truth gave the lie aforetime Noah’s people, and [the tribe of] Ad, and Pharaoh of the [many] tent-poles,
  <!--END_SECTION:quran-->
 
   
