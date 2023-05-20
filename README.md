@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 10**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 51**
 
-[All other kinds of] secret confabulations are but of Satan’s doing, so that he might cause grief to those who have attained to faith; yet he cannot harm them in the least, unless it be by God’s leave: in God, then, let the believers place their trust!
+those who, beguiled by the life of this world, have made play and passing delights their religion! [And God will say:] "And so We shall be oblivious of them today as they were oblivious of the coming of this their Day [of Judgment], and as Our messages they did deny:
  <!--END_SECTION:quran-->
 
   
