@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 189**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 17**
 
-IT IS HE who has created you [all] out of one living entity, and out of it brought into being its mate, so that man might incline [with love] towards woman. And so, when he has embraced her, she conceives [what at first is] a light burden, and continues to bear it. Then, when she grows heavy [with child], they both call unto God, their Sustainer, "If Thou indeed grant us a sound [child], we shall most certainly be among the grateful!"
+And We shall let them be followed by those of later times:
  <!--END_SECTION:quran-->
 
   
