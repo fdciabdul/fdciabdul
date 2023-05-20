@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 39**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 12**
 
-“O my people! This worldly life is but a brief enjoyment, whereas, behold, the life to come is the home abiding.
+In gardens of bliss [will they dwell] -
  <!--END_SECTION:quran-->
 
   
