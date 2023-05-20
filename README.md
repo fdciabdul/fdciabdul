@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 24**
 
-and thou seest people enter God's religion in hosts,
+He will say, "Oh, would that I had. provided beforehand for my life [to come]!"
  <!--END_SECTION:quran-->
 
   
