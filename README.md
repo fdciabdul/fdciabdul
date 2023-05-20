@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 39**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 8**
 
-“O my people! This worldly life is but a brief enjoyment, whereas, behold, the life to come is the home abiding.
+Believe then, [O men,] in God and His Apostle, and in the light [of revelation] which We have bestowed [on you] from on high! And God is fully aware of all that you do.
  <!--END_SECTION:quran-->
 
   
