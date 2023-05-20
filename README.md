@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 7**
 
-What will his wealth avail him, and all that he has gained?
+[But] it may well be that God will bring about [mutual] affection between you [O believers] and some of those whom you [now] face as enemies: for, God is all-powerful - and God is much-forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
