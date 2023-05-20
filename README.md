@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 20**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 7**
 
-till, when they come close to it, their hearing and their sight and their [very] skins will bear witness against them, speaking of what they were doing [on earth].
+shall find himself in a happy' state of life;
  <!--END_SECTION:quran-->
 
   
