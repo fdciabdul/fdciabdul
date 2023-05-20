@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 65**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 20**
 
-Said [the sorcerers]: "O Moses! Either thou throw (thy staff first], or we shall be the first to throw."
+NOW THOSE who have attained to faith say, “Would that a revelation [allowing us to fight] was bestowed from on high!” But now that a revelation clear in and by itself, mentioning war, has been bestowed from on high, thou canst see those in whose hearts is disease look­ing at thee, [O Muhammad,] with the look of one who is about to faint for fear of death! And yet, far better for them would be
  <!--END_SECTION:quran-->
 
   
