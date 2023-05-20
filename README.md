@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 71**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 77**
 
-They answered: We worship idols, and we remain ever devoted to them.”
+and, verily, it is a guidance and a grace unto all who believe [in it].
  <!--END_SECTION:quran-->
 
   
