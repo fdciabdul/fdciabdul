@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 26**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 4**
 
-Unto God belongs all that is in the heavens and on earth. Verily, God alone is self-sufficient, the One to whom all praise is due!
+And once again: Nay, in time you will come to understand!
  <!--END_SECTION:quran-->
 
   
