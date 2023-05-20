@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 12**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 5**
 
-“Now place thy hand into thy bosom: it will come forth [shining] white, without blemish!” [And thou shalt go] with nine [of My] messages unto Pharaoh and his people for, verily, they are people depraved!”
+Thus, as for him who gives [to others] and is conscious of God,
  <!--END_SECTION:quran-->
 
   
