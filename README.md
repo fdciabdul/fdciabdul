@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 9**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 11**
 
-shall be engulfed by an abyss.
+wherein thou wilt hear no empty talk.
  <!--END_SECTION:quran-->
 
   
