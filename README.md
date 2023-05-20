@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 61**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 29**
 
-But if they incline to peace, incline thou to it as well, and place thy trust in God: verily, He alone is all-hearing, all-knowing!
+- hell - which they [themselves] will ' have to endure? And how vile a state to settle in!
  <!--END_SECTION:quran-->
 
   
