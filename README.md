@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 8**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 71**
 
-But as for him who is niggardly, and thinks that he is self-sufficient,
+But if the truth were in accord with their own likes and dislikes, the heavens and the earth would surely have fallen into ruin, and all that lives in them [would long ago have perished]! Nay, [in this divine writ] We have conveyed unto them all that they ought to bear in mind: and from this their reminder they [heedlessly] turn away!
  <!--END_SECTION:quran-->
 
   
