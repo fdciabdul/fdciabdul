@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 45**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 11**
 
-And [yet,] when they are told, “Beware of [God’s insight into] all that lies open before you and all that is hidden from you, so that you might be graced with His mercy,” [most men choose to remain deaf;]
+And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:
  <!--END_SECTION:quran-->
 
   
