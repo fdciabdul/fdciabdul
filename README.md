@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 29**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 29**
 
-And the followers of earlier revelation should know that they have no power whatever over any of God’s bounty, seeing that all bounty is in God’s hand [alone]: He grants it unto whomever He wills - for God is limitless in His great bounty.
+Thereafter let them bring to an end their state of self-denial, and let them fulfill the vows which they [may] have made, and let them walk [once again] around the Most Ancient Temple.
  <!--END_SECTION:quran-->
 
   
