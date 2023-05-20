@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 25**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 20**
 
-And if they give thee the lie - even so gave the lie to the truth [many of] those who lived before their time, [when] there came unto them their apostles with all evidence of the truth, and with books of divine wisdom, and with light-giving revelation;
+And thereupon he [went to Pharaoh and] made him aware of the great wonder [of God's grace].
  <!--END_SECTION:quran-->
 
   
