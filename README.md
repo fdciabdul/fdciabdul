@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 74**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 35**
 
-And so the two went on, till, when they met a young man, [the sage] slew him -(whereupon Moses] exclaimed: "Hast thou slain an innocent human being without [his having taken] another man's life? Indeed, thou hast done a terrible thing!"
+and from his mother and father,
  <!--END_SECTION:quran-->
 
   
