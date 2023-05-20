@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 9**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 12**
 
-and with [the tribe of] Thamud, who hollowed out rocks in the valley? –
+“Now place thy hand into thy bosom: it will come forth [shining] white, without blemish!” [And thou shalt go] with nine [of My] messages unto Pharaoh and his people for, verily, they are people depraved!”
  <!--END_SECTION:quran-->
 
   
