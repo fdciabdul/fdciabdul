@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 5**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
 
-Nay, if you could but understand [it] with an understanding [born] of certainty,
+BEHOLD, We have bestowed upon thee good in abundance:
  <!--END_SECTION:quran-->
 
   
