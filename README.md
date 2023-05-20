@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 3**
 
-in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
+Most loathsome is it in the sight of God that you say what you do not do!
  <!--END_SECTION:quran-->
 
   
