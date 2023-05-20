@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 2**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 55**
 
-And what could make thee conceive what it is, that Night of Destiny?
+out of this [earth] have We created you, and into it shall We return you, and out of it shall We bring you forth once again.
  <!--END_SECTION:quran-->
 
   
