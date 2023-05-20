@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 4**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 102**
 
-and who brings forth herbage,
+on the Day when the trumpet is blown: for on that Day We will assemble all such as had been lost in sin, their eyes dimmed [by terror],
  <!--END_SECTION:quran-->
 
   
