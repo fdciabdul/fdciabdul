@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 13**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 13**
 
-AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.
+Then, for having broken their solemn pledge, We rejected them and caused their hearts to harden-[so that now] they distort the meaning of the [re-vealed] words, taking them out of their context; and they have forgotten much of what they had been told to bear in mind; and from all but a few of them thou wilt always experience treachery. But pardon them, and forbear: verily, God loves the doers of good.
  <!--END_SECTION:quran-->
 
   
