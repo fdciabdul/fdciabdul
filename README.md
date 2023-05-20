@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 56**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 11**
 
-As it is, they ascribe - out of what We provide for them as sustenance - a share unto things of which they know nothing. By God, you shall most certainly be called to account for all your false imagery!
+And for those who have attained to faith God has propounded a parable in [the story of] Pharaoh's wife as she prayed "O my Sustainer! Build Thou for me a mansion in the paradise [that is] with Thee, and save me from Pharaoh and his doings, and save me, from all evildoing folk!
  <!--END_SECTION:quran-->
 
   
