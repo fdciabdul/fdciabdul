@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 77**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 8**
 
-Verily, herein lies a message indeed for all who believe [in God].
+But as for him who is niggardly, and thinks that he is self-sufficient,
  <!--END_SECTION:quran-->
 
   
