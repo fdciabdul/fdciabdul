@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 29**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 39**
 
-- hell - which they [themselves] will ' have to endure? And how vile a state to settle in!
+“O my people! This worldly life is but a brief enjoyment, whereas, behold, the life to come is the home abiding.
  <!--END_SECTION:quran-->
 
   
