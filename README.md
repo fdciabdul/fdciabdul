@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 3**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 26**
 
-Read - for thy Sustainer is the Most Bountiful One
+Unto God belongs all that is in the heavens and on earth. Verily, God alone is self-sufficient, the One to whom all praise is due!
  <!--END_SECTION:quran-->
 
   
