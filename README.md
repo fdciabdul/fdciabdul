@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 1**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 16**
 
-SO THAT the Quraysh might remain secure,
+but as for those who refused to acknowledge the truth and gave the lie to Our messages - and (thus) to the announce­ment of a life to come - they will be given over to suffering.
  <!--END_SECTION:quran-->
 
   
