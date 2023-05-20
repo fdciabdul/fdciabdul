@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 30**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 8**
 
-some [of you] He will have graced with His guidance, whereas, for some a straying from the right path will have become unavoidable: for, behold, they will have taken [their own] evil impulses for their masters in preference to God, thinking all the while that they have found the right path!"
+[And] they say, "Indeed, when we return to the City [we,] the ones most worthy of honour will surely drive out therefrom those most contemptible ones!" However, all honour belongs to God, and [thus] to His Apostle and those who believe [in God]: but of this the hypocrites are not aware.
  <!--END_SECTION:quran-->
 
   
