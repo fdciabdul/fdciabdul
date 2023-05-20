@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 43**
 
-SAY: "I seek refuge with the Sustainer of men,
+And [then,] indeed, after We had destroyed those earlier generations [of sinners], We vouchsafed unto Moses [Our] revelation as a means of insight for men, and as a guidance and grace, so that they might bethink themselves [of Us].
  <!--END_SECTION:quran-->
 
   
