@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 16**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 40**
 
-but as for those who refused to acknowledge the truth and gave the lie to Our messages - and (thus) to the announce­ment of a life to come - they will be given over to suffering.
+Is not He, then; able to bring the dead back to life?
  <!--END_SECTION:quran-->
 
   
