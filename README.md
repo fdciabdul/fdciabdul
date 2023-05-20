@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 72**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 106**
 
-[and] they will be told, “Enter the gates of hell, therein to abide!” And how vile an abode for those who were given to false pride!
+on the Day [of Judgment] when some faces will shine [with happiness] and some faces will be dark [with grief]. And as for those with faces darkened, [they shall be told:] "Did you deny the truth after having attained to faith? Taste, then, this suffering for having denied the truth!"
  <!--END_SECTION:quran-->
 
   
