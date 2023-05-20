@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 10**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 32**
 
-and with Pharaoh of the [many] tent-poles?
+and [has endowed me with] piety towards my mother; and He has not made me haughty or bereft of grace.
  <!--END_SECTION:quran-->
 
   
