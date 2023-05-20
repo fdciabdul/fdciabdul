@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 9**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 3**
 
-God's messages have they bartered away for a trifling gain, and have thus turned away from His path: evil, behold, is all that they are wont to do,
+that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,
  <!--END_SECTION:quran-->
 
   
