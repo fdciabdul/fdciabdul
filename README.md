@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 5**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 3**
 
-for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.
+Read - for thy Sustainer is the Most Bountiful One
  <!--END_SECTION:quran-->
 
   
