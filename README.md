@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 102**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 8**
 
-on the Day when the trumpet is blown: for on that Day We will assemble all such as had been lost in sin, their eyes dimmed [by terror],
+As for such [of the unbelievers] as do not fight against you on account of [your] faith, and neither drive you forth from your homelands, God does not forbid you to show them kindness and to behave towards them with full equity: for, verily, God loves those who act equitably.
  <!--END_SECTION:quran-->
 
   
