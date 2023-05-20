@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 40**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 16**
 
-VERILY, unto those who give the lie to Our messages and scorn them in their pride, the gates of heaven shall not be opened; and they shall not enter paradise any more than a twisted rope can pass through a needle's eye: for thus do We requite such as are lost in sin.
+but I shall bring all their scheming to nought.
  <!--END_SECTION:quran-->
 
   
