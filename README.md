@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 13**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 20**
 
-Then, for having broken their solemn pledge, We rejected them and caused their hearts to harden-[so that now] they distort the meaning of the [re-vealed] words, taking them out of their context; and they have forgotten much of what they had been told to bear in mind; and from all but a few of them thou wilt always experience treachery. But pardon them, and forbear: verily, God loves the doers of good.
+till, when they come close to it, their hearing and their sight and their [very] skins will bear witness against them, speaking of what they were doing [on earth].
  <!--END_SECTION:quran-->
 
   
