@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 13**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 6**
 
-In that [garden] they will on couches recline, and will know therein neither [burning] sun nor cold severe,
+And, lo Moses spoke [thus] unto his people: "Remember the blessings which God bestowed upon you when He saved you from Pharaoh's people who afflicted you with cruel suffering, and slaughtered your sons, and spared [only] your women -which was an awesome trial from your Sustainer.
  <!--END_SECTION:quran-->
 
   
