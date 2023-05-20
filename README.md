@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 77**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 5**
 
-and, verily, it is a guidance and a grace unto all who believe [in it].
+Nay, if you could but understand [it] with an understanding [born] of certainty,
  <!--END_SECTION:quran-->
 
   
