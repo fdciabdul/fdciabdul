@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 12**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 32**
 
-To the truth gave the lie aforetime Noah’s people, and [the tribe of] Ad, and Pharaoh of the [many] tent-poles,
+for you and for your animals to enjoy.
  <!--END_SECTION:quran-->
 
   
