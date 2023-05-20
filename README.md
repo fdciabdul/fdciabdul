@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 2**
 
-together with his wife, that carrier of evil tales,
+And what could make thee conceive what it is, that Night of Destiny?
  <!--END_SECTION:quran-->
 
   
