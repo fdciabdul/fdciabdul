@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 20**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 56**
 
-Verily, those who contend against God and His Apostle - it is they who [on Judgment Day] shall find themselves among the most abject.
+As it is, they ascribe - out of what We provide for them as sustenance - a share unto things of which they know nothing. By God, you shall most certainly be called to account for all your false imagery!
  <!--END_SECTION:quran-->
 
   
