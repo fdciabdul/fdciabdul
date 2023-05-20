@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 27**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 10**
 
-Said [Solomon]: “We shall see whether thou hast told the truth or art one of the liars!
+[All other kinds of] secret confabulations are but of Satan’s doing, so that he might cause grief to those who have attained to faith; yet he cannot harm them in the least, unless it be by God’s leave: in God, then, let the believers place their trust!
  <!--END_SECTION:quran-->
 
   
