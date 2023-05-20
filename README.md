@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 21**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 7**
 
-[For] God has thus ordained: “I shall most certainly prevail, I and My apostles!” Verily, God is powerful, almighty!
+And the earth - We have spread it wide, and set upon it mountains firm, and caused it to bring forth plants of all beauteous kinds,
  <!--END_SECTION:quran-->
 
   
