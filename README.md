@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 24**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 61**
 
-He will say, "Oh, would that I had. provided beforehand for my life [to come]!"
+But if they incline to peace, incline thou to it as well, and place thy trust in God: verily, He alone is all-hearing, all-knowing!
  <!--END_SECTION:quran-->
 
   
