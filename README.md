@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 2**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 10**
 
-"the Sovereign of men,
+and with Pharaoh of the [many] tent-poles?
  <!--END_SECTION:quran-->
 
   
