@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 16**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 78**
 
-MOVE NOT thy tongue in haste, [repeating the words of the revelation:]
+Verily, [O believer,] thy Sustainer will judge between them in His wisdom - for He alone is almighty, all-knowing.
  <!--END_SECTION:quran-->
 
   
