@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 8**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 189**
 
-[And] they say, "Indeed, when we return to the City [we,] the ones most worthy of honour will surely drive out therefrom those most contemptible ones!" However, all honour belongs to God, and [thus] to His Apostle and those who believe [in God]: but of this the hypocrites are not aware.
+IT IS HE who has created you [all] out of one living entity, and out of it brought into being its mate, so that man might incline [with love] towards woman. And so, when he has embraced her, she conceives [what at first is] a light burden, and continues to bear it. Then, when she grows heavy [with child], they both call unto God, their Sustainer, "If Thou indeed grant us a sound [child], we shall most certainly be among the grateful!"
  <!--END_SECTION:quran-->
 
   
