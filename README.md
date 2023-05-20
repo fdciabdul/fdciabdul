@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 7**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 3**
 
-shall find himself in a happy' state of life;
+and feels no urge to feed the needy.
  <!--END_SECTION:quran-->
 
   
