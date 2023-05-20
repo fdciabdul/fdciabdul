@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
 
-BEHOLD, We have bestowed upon thee good in abundance:
+SAY: "I seek refuge with the Sustainer of the rising dawn,
  <!--END_SECTION:quran-->
 
   
