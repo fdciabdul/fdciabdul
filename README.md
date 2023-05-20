@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 78**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 65**
 
-Verily, [O believer,] thy Sustainer will judge between them in His wisdom - for He alone is almighty, all-knowing.
+Said [the sorcerers]: "O Moses! Either thou throw (thy staff first], or we shall be the first to throw."
  <!--END_SECTION:quran-->
 
   
