@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 75**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 53**
 
-AND AMONG the followers of earlier revelation there is many a one who, if thou entrust him with a treasure, will [faithfully] restore it to thee; and there is among them many a one who, if thou entrust him with a tiny gold coin, will not restore it to thee unless thou keep standing over him - which is an outcome of their assertion, "No blame can attach to us [for anything that we may do] with regard to these unlettered folk": and [so] they tell a lie about God, being well aware [that it is a lie]."
+and will have to fill your bellies therewith,
  <!--END_SECTION:quran-->
 
   
