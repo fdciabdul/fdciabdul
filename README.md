@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 103**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-IT IS NOT of God's ordaining that certain kinds of cattle should be marked out by superstition and set aside from the use of man; yet those who are bent on denying the truth attribute their own lying inventions to God. And most of them never use their reason:
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
