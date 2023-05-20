@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 106**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
 
-on the Day [of Judgment] when some faces will shine [with happiness] and some faces will be dark [with grief]. And as for those with faces darkened, [they shall be told:] "Did you deny the truth after having attained to faith? Taste, then, this suffering for having denied the truth!"
+in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
  <!--END_SECTION:quran-->
 
   
