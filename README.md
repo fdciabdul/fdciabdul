@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 3**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 130**
 
-and feels no urge to feed the needy.
+And if husband and wife do separate, God shall provide for each of them out of His abundance: for God is indeed infinite, wise,
  <!--END_SECTION:quran-->
 
   
