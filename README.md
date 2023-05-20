@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 11**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 29**
 
-He will shower upon you heavenly blessings abundant,
+And the followers of earlier revelation should know that they have no power whatever over any of God’s bounty, seeing that all bounty is in God’s hand [alone]: He grants it unto whomever He wills - for God is limitless in His great bounty.
  <!--END_SECTION:quran-->
 
   
