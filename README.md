@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 17**
 
-Verily, man is bound to lose himself
+And in that [paradise] they will be given to drink of a cup flavoured with ginger,
  <!--END_SECTION:quran-->
 
   
