@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 3**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 35**
 
-Most loathsome is it in the sight of God that you say what you do not do!
+AND SO, [when you fight in a just cause,] do not lose heart and [never] beg for peace: for, seeing that God is with you, you are bound to rise high [in the end]; and never will He let your [good] deeds go to waste.
  <!--END_SECTION:quran-->
 
   
