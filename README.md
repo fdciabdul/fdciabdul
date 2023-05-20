@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 13**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 16**
 
-in [the light of His] revelations blest with dignity,
+MOVE NOT thy tongue in haste, [repeating the words of the revelation:]
  <!--END_SECTION:quran-->
 
   
