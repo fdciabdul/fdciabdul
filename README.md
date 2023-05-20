@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 51**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 4**
 
-those who, beguiled by the life of this world, have made play and passing delights their religion! [And God will say:] "And so We shall be oblivious of them today as they were oblivious of the coming of this their Day [of Judgment], and as Our messages they did deny:
+and who brings forth herbage,
  <!--END_SECTION:quran-->
 
   
