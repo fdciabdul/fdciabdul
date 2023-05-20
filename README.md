@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 32**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 39**
 
-for you and for your animals to enjoy.
+“O my people! This worldly life is but a brief enjoyment, whereas, behold, the life to come is the home abiding.
  <!--END_SECTION:quran-->
 
   
