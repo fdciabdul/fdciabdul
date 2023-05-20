@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 17**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 71**
 
-And in that [paradise] they will be given to drink of a cup flavoured with ginger,
+They answered: We worship idols, and we remain ever devoted to them.”
  <!--END_SECTION:quran-->
 
   
