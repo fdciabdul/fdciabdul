@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 35**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 6**
 
-and from his mother and father,
+A fire kindled by God,
  <!--END_SECTION:quran-->
 
   
