@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 130**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 3**
 
-And if husband and wife do separate, God shall provide for each of them out of His abundance: for God is indeed infinite, wise,
+thinking that his wealth will make him live forever!
  <!--END_SECTION:quran-->
 
   
