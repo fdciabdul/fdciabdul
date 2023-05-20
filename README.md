@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 45**
 
-SAY: "I seek refuge with the Sustainer of men,
+And [yet,] when they are told, “Beware of [God’s insight into] all that lies open before you and all that is hidden from you, so that you might be graced with His mercy,” [most men choose to remain deaf;]
  <!--END_SECTION:quran-->
 
   
