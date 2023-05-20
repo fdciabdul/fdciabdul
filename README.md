@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 29**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
 
-Thereafter let them bring to an end their state of self-denial, and let them fulfill the vows which they [may] have made, and let them walk [once again] around the Most Ancient Temple.
+SAY: "I seek refuge with the Sustainer of men,
  <!--END_SECTION:quran-->
 
   
