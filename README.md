@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 60**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 1**
 
-Yet when they [who are bent on denying the truth! are told, “Prostrate yourselves before the Most Gracious.” they are wont to ask, “And [who and] what is the Most Gracious? Are we to prostrate ourselves before whatever thou biddest us [to worship]?” - and so [thy call] but increases their aversion,
+O PROPHET! When you [intend to divorce women, divorce them with a view to the waiting period appointed for them, and reckon the period [carefully], and be conscious of God, your Sustainer. Do not expel them from their homes; and neither shall they [be made to] leave unless they become openly guilty of immoral conduct. These, then, are the bounds set by God - and he who transgresses the bounds set by God does indeed sin against himself: [for, O man, although] thou knowest it not, after that [first breach] God may well cause something new to come about.
  <!--END_SECTION:quran-->
 
   
