@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 12**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 103**
 
-In gardens of bliss [will they dwell] -
+IT IS NOT of God's ordaining that certain kinds of cattle should be marked out by superstition and set aside from the use of man; yet those who are bent on denying the truth attribute their own lying inventions to God. And most of them never use their reason:
  <!--END_SECTION:quran-->
 
   
