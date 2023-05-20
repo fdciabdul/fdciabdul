@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 6**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 26**
 
-And, lo Moses spoke [thus] unto his people: "Remember the blessings which God bestowed upon you when He saved you from Pharaoh's people who afflicted you with cruel suffering, and slaughtered your sons, and spared [only] your women -which was an awesome trial from your Sustainer.
+And remember the time when you were few [and] helpless on earth, fearful lest people do away with you - whereupon He sheltered you, and strengthened you with His succour, and provided for you sustenance out of the good things of life, so that you might have cause to be grateful.
  <!--END_SECTION:quran-->
 
   
