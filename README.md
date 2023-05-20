@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 17**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 9**
 
-And We shall let them be followed by those of later times:
+[LONG] BEFORE those [who now deny resurrec­tion] did Noah’s people call it a lie; and they gave the lie to Our servant and said, “Mad is he!” - and he was repulsed.
  <!--END_SECTION:quran-->
 
   
