@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 1**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 20**
 
-O PROPHET! When you [intend to divorce women, divorce them with a view to the waiting period appointed for them, and reckon the period [carefully], and be conscious of God, your Sustainer. Do not expel them from their homes; and neither shall they [be made to] leave unless they become openly guilty of immoral conduct. These, then, are the bounds set by God - and he who transgresses the bounds set by God does indeed sin against himself: [for, O man, although] thou knowest it not, after that [first breach] God may well cause something new to come about.
+Verily, those who contend against God and His Apostle - it is they who [on Judgment Day] shall find themselves among the most abject.
  <!--END_SECTION:quran-->
 
   
