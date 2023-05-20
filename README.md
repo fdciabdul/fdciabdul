@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 11**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 5**
 
-wherein thou wilt hear no empty talk.
+for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.
  <!--END_SECTION:quran-->
 
   
