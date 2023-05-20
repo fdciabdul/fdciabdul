@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 4**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 60**
 
-And once again: Nay, in time you will come to understand!
+Yet when they [who are bent on denying the truth! are told, “Prostrate yourselves before the Most Gracious.” they are wont to ask, “And [who and] what is the Most Gracious? Are we to prostrate ourselves before whatever thou biddest us [to worship]?” - and so [thy call] but increases their aversion,
  <!--END_SECTION:quran-->
 
   
