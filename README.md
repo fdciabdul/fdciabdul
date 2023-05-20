@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 5**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 88**
 
-[who bears] around her neck a rope of twisted strands!
+[so] turn, not thine eyes [longingly] towards the worldly benefits which We have granted unto some of those [that deny the truth]. And neither grieve over those [who refuse to heed thee], but spread the wings of thy tenderness over the believers,
  <!--END_SECTION:quran-->
 
   
