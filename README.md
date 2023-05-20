@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 3**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 11**
 
-thinking that his wealth will make him live forever!
+He will shower upon you heavenly blessings abundant,
  <!--END_SECTION:quran-->
 
   
