@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 26**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
 
-And remember the time when you were few [and] helpless on earth, fearful lest people do away with you - whereupon He sheltered you, and strengthened you with His succour, and provided for you sustenance out of the good things of life, so that you might have cause to be grateful.
+SAY: "I seek refuge with the Sustainer of men,
  <!--END_SECTION:quran-->
 
   
