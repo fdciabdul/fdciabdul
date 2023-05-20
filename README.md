@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 16**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 72**
 
-but I shall bring all their scheming to nought.
+[and] they will be told, “Enter the gates of hell, therein to abide!” And how vile an abode for those who were given to false pride!
  <!--END_SECTION:quran-->
 
   
