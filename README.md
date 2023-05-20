@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 20**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 10**
 
-And thereupon he [went to Pharaoh and] made him aware of the great wonder [of God's grace].
+behold, we stand in awe of our Sustainer's judgment on a distressful, fateful Day!"
  <!--END_SECTION:quran-->
 
   
