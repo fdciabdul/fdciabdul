@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 13**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 75**
 
-But they who denied the truth spoke [thus] unto their apostles: "We shall most certainly expel you from our land, unless you return forthwith to our ways. Whereupon their Sustainer revealed this to His apostles: "Most certainly shall We destroy these evildoers,
+AND AMONG the followers of earlier revelation there is many a one who, if thou entrust him with a treasure, will [faithfully] restore it to thee; and there is among them many a one who, if thou entrust him with a tiny gold coin, will not restore it to thee unless thou keep standing over him - which is an outcome of their assertion, "No blame can attach to us [for anything that we may do] with regard to these unlettered folk": and [so] they tell a lie about God, being well aware [that it is a lie]."
  <!--END_SECTION:quran-->
 
   
