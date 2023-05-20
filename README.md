@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 3**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-of one-half thereof - or make it a little less than that,
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
