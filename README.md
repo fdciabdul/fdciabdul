@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 7**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 2**
 
-And the earth - We have spread it wide, and set upon it mountains firm, and caused it to bring forth plants of all beauteous kinds,
+"the Sovereign of men,
  <!--END_SECTION:quran-->
 
   
