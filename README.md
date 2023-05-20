@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 3**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 3**
 
-that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,
+of one-half thereof - or make it a little less than that,
  <!--END_SECTION:quran-->
 
   
