@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 12**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 2**
 
-And when the last Hour dawns, those who were lost in sin will be broken in spirit
+[And Noah] said: "O my people! I am but a plain warner to you, [sent to tell you]
  <!--END_SECTION:quran-->
 
   
