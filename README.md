@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 7**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 95**
 
-What, then, [O man,] could henceforth cause thee to give the lie to this moral law?
+VERILY, God is the One who cleaves the grain and the fruit-kernel asunder, bringing forth the living out of that which is dead, and He is the One who brings forth the dead out of that which is alive. This, then, is God: and yet, how perverted are your minds!
  <!--END_SECTION:quran-->
 
   
