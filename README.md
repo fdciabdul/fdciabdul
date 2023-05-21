@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 96**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 5**
 
-VERILY, those who attain to faith and do righteous deeds will the Most Gracious endow with love:
+does it make secure, until the rise of dawn.
  <!--END_SECTION:quran-->
 
   
