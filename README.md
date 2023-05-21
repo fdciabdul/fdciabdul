@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 34**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 10**
 
-and did not feel any urge to feed the needy:
+but if anyone does succeed in snatching a glimpse [of such knowledge], he is [henceforth] pursued by a piercing flame.
  <!--END_SECTION:quran-->
 
   
