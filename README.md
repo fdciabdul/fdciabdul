@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 95**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 5**
 
-VERILY, God is the One who cleaves the grain and the fruit-kernel asunder, bringing forth the living out of that which is dead, and He is the One who brings forth the dead out of that which is alive. This, then, is God: and yet, how perverted are your minds!
+His is the dominion over the heavens and the earth; and all things go back unto God [as their source].
  <!--END_SECTION:quran-->
 
   
