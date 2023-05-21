@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 15**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 32**
 
-Was it, then, a delusion or is it that you failed to see [its truth]?
+Verily, they who are bent on denying the truth and on barring [others] from the path of God, and [who thus] cut themselves off from the Apostle after guidance has been vouchsafed to them, can in no wise harm God; but He will cause all their deeds to come to nought.
  <!--END_SECTION:quran-->
 
   
