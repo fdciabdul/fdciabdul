@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 3**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 32**
 
-And lo! [It so happened that] the Prophet told something in confidence to one of his wives; and when she thereupon divulged it, and God made this known to him, he acquainted [others] with some of it and passed over some of it. And as soon as he let her know it, she asked, "Who has told thee this?" - [to which] he replied, "The All-Knowing, the All-Aware has told me."
+and whenever they see those [who believe,] they say, "Behold, these [people] have indeed gone astray!"
  <!--END_SECTION:quran-->
 
   
