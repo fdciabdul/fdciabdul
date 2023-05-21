@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 79**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 38**
 
-It is not conceivable that a human being unto whom God had granted revelation, and sound judgment, and prophethood, should thereafter have said unto people, "Worship me beside God"; but rather [did he exhort them], "Become men of God by spreading the knowledge of the divine writ, and by your own deep study [thereof]."
+"O our Sustainer! Thou truly knowest all that we may hide [in our hearts] as well as all that we bring into the open:' for nothing whatever, be it on earth or in heaven, remains hidden from God.
  <!--END_SECTION:quran-->
 
   
