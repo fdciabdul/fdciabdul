@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 13**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 34**
 
-and the thunder extols His limitless glory and praises Him, and [so do] the angels, in awe of Him; and He [it is who] lets loose the thunderbolts and strikes with them whom He wills. And yet, they stubbornly argue about God, notwithstanding [all evidence] that He alone has the power to contrive whatever His unfathomable wisdom wills!
+and did not feel any urge to feed the needy:
  <!--END_SECTION:quran-->
 
   
