@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 14**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 90**
 
-And [as for the followers of earlier revelation,] they broke up their unity, out of mutual jealousy, only after they had come to know [the truth]. And had it not been for a decree that had already gone forth from thy Sustainer, [postponing all decision] until a term set [by Him], all would indeed have been decided between them [from the outset]. As it is, behold, they who have inherited their divine writ from those who preceded them are [now] in grave doubt, amounting to suspicion, about what it por­tends.
+Vile is that [false pride] for which they have sold their own selves by denying the truth of what God has bestowed from on high, out of envy that God should bestow aught of His favour upon whomsoever He wills of His servants: and thus have they earned the burden of God's condemnation, over and over. And for those who deny the truth there is shameful suffering in store.
  <!--END_SECTION:quran-->
 
   
