@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 99**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 17**
 
-[AS FOR THOSE who will not believe in the life to come, they go on lying to themselves] until, when death approaches any of them, he prays: “O my Sustainer! Let me return, let me return [to life],
+If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,
  <!--END_SECTION:quran-->
 
   
