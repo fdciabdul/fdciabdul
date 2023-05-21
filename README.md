@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 6**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 1**
 
-those who want only to be seen and praised,
+WHEN THE HYPOCRITES come unto thee, they say, "We bear witness that thou art indeed God's Apostle!" But God knows that thou art truly His Apostle; and He bears witness that the hypocrites are indeed false [in their declaration of faith].
  <!--END_SECTION:quran-->
 
   
