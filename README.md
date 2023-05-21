@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 35**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 4**
 
-VERILY, for all men and women who have sur­rendered themselves unto God, and all believing men and believing women, and all truly devout men and truly devout women, and all men and women who are true to their word, and all men and women who are patient in adversity, and all men and women who humble themselves [before God], and all men and women who give in charity, and all self-denying men and self-denying women, and all men and women who are mindful of their chastity, and all men and women who remember God unceasingly: for [all of] them has God readied forgiveness of sins and a mighty reward.
+Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.
  <!--END_SECTION:quran-->
 
   
