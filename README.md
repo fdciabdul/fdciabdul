@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 49**
 
-SAY: "I seek refuge with the Sustainer of the rising dawn,
+WHAT, THEN, is amiss with them that they turn away from all admonition
  <!--END_SECTION:quran-->
 
   
