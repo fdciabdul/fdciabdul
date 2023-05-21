@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 15**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 42**
 
-He it is who has made the earth easy to live upon: go about, then, in all its regions, and partake the sustenance which He provides: but [always bear in mind that] unto Him you shall be resurrected.
+those who, having attained to patience in adversity, in their Sustainer place their trust!
  <!--END_SECTION:quran-->
 
   
