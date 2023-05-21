@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 17**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 17**
 
-But nay, nay, [O men, consider all that you do and fail to do:] you are not generous towards the orphan,
+How, then, if you refuse to acknowledge the truth, will you protect yourselves on that Day which shall turn the hair of children grey,
  <!--END_SECTION:quran-->
 
   
