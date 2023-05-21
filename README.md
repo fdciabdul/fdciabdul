@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 39**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 7**
 
-laughing, rejoicing at glad tidings.
+the Sustainer of the heavens and the earth and all that is between them - if you could but grasp it with inner certainty!
  <!--END_SECTION:quran-->
 
   
