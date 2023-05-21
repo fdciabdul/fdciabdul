@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 17**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 8**
 
-If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,
+And found thee in want, and given thee sufficiency?
  <!--END_SECTION:quran-->
 
   
