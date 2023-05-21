@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 8**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 28**
 
-AND HOW MANY a community has turned with disdain from the commandment of its Sustainer and His apostles! -whereupon We callled them all to account with an accounting severe, and caused them to suffer with a suffering unnameable:
+Woe on that Day unto those who give the lie to the truth!
  <!--END_SECTION:quran-->
 
   
