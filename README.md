@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 30**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 79**
 
-[not giving way to their desires] with any but their spouses - that is, those whom they rightfully possess [through wedlock] -: for then, behold, they are free of all blame,
+It is not conceivable that a human being unto whom God had granted revelation, and sound judgment, and prophethood, should thereafter have said unto people, "Worship me beside God"; but rather [did he exhort them], "Become men of God by spreading the knowledge of the divine writ, and by your own deep study [thereof]."
  <!--END_SECTION:quran-->
 
   
