@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 5**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
 
-His is the dominion over the heavens and the earth; and all things go back unto God [as their source].
+ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
  <!--END_SECTION:quran-->
 
   
