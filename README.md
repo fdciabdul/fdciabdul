@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 10**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 6**
 
-but if anyone does succeed in snatching a glimpse [of such knowledge], he is [henceforth] pursued by a piercing flame.
+Unto you, your moral law, and unto me, mine!"
  <!--END_SECTION:quran-->
 
   
