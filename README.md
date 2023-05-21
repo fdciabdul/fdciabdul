@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 32**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 6**
 
-Verily, they who are bent on denying the truth and on barring [others] from the path of God, and [who thus] cut themselves off from the Apostle after guidance has been vouchsafed to them, can in no wise harm God; but He will cause all their deeds to come to nought.
+for, suffering in hell awaits all who are [thus] bent on blaspheming against their Sustainer: and how vile a journey's end!
  <!--END_SECTION:quran-->
 
   
