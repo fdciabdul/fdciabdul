@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 36**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 12**
 
-DOES MAN, then, think that he is to be left to himself to go about at will?
+[And] they add, "That, then, would be a return with loss!"
  <!--END_SECTION:quran-->
 
   
