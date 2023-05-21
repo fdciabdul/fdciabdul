@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 7**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 71**
 
-the Sustainer of the heavens and the earth and all that is between them - if you could but grasp it with inner certainty!
+Thus, indeed, most of the people of old went astray before them,
  <!--END_SECTION:quran-->
 
   
