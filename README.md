@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 172**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 50**
 
-Never did the Christ feel too proud to be God's servant, nor do the angels who are near unto Him. And those who feel too proud to serve Him and glory in their arrogance [should know that on Judgment Day] He will gather them all unto Himself:
+but [as it was,] his Sustainer had elected him and placed him among the righteous.
  <!--END_SECTION:quran-->
 
   
