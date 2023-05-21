@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 51**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 22**
 
-Thus, indeed, did We destroy people like you [in the past]: who, then, is willing to take it to heart?
+And who could be more wicked than he to whom his Sustainer’s messages are conveyed and who thereupon turns away from them? Verily, We shall inflict Our retribution on those who are [thus] lost in sin!
  <!--END_SECTION:quran-->
 
   
