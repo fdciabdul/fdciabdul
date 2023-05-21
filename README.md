@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 9**
 
-and lifted from thee the burden
+and calls the ultimate good a lie –
  <!--END_SECTION:quran-->
 
   
