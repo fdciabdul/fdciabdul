@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 24**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 2**
 
-Will they not, then, ponder over this Qur’an? - or are there locks upon their hearts?
+and lifted from thee the burden
  <!--END_SECTION:quran-->
 
   
