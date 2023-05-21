@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 51**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 56**
 
-And Pharaoh issued a call to his people, say­ing: “O my people! Does not the dominion over Egypt belong to me, since all these running waters flow at my feet? Can you not, then, see [that I am your lord supreme]?
+Such will be their welcome on Judgment Day!
  <!--END_SECTION:quran-->
 
   
