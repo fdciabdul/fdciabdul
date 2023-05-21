@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 12**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 172**
 
-Why do not the believing men and women, whenever such [a rumour] is heard, think the best of one another and say, “This is an obvious falsehood”?
+Never did the Christ feel too proud to be God's servant, nor do the angels who are near unto Him. And those who feel too proud to serve Him and glory in their arrogance [should know that on Judgment Day] He will gather them all unto Himself:
  <!--END_SECTION:quran-->
 
   
