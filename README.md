@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 36**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 70**
 
-Say: “Behold, my Sustainer grants abundant sustenance, or gives it in scant measure, unto whomever He wills: but most men do not understand [God’s ways].”
+for, indeed, We know best as to which of them is most deserving of the fires of hell.
  <!--END_SECTION:quran-->
 
   
