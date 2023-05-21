@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 9**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 14**
 
-and calls the ultimate good a lie –
+and it floated under Our eyes: a recom­pense for him who had been rejected with ingratitude.
  <!--END_SECTION:quran-->
 
   
