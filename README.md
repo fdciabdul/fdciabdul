@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 73**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
 
-And, verily, thou callest them onto a straight way –
+Let them, therefore, worship the Sustainer of this Temple;
  <!--END_SECTION:quran-->
 
   
