@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 159**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 17**
 
-limitless is God in His glory, above anything that men may devise by way of definition!
+and the angels [will appear] at its ends, and, above them, eight will bear aloft on that Day the throne of thy Sustainer’s almightiness…
  <!--END_SECTION:quran-->
 
   
