@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 46**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 9**
 
-And [this retribution will befall all evildoers because] they devise that false imagery of theirs - and all their false imagery is within God's knowledge. [And never can the blasphemers prevail against the truth - not] even if their false imagery were so (well devised and so powerful] that mountains could be moved thereby.
+to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.
  <!--END_SECTION:quran-->
 
   
