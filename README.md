@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 112**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
 
-[And,] lo, the white-garbed ones said: "O Jesus, son of Mary! Could thy Sustainer send down unto us a repast from heaven?" [Jesus] answered: "Be conscious of God, if you are [truly] believers!"
+unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
  <!--END_SECTION:quran-->
 
   
