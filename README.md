@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 44**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 58**
 
-And so, when you met in battle, He made them appear as few in your eyes -just as He made you appear as of little account in their eyes - so that God might accomplish a thing [which He willed] to be done: for all things go back to God [as their source].
+As for the good land, its vegetation comes forth [in abundance] by its Sustainer's leave, whereas from the bad it comes forth but poorly. Thus do We give many facets to Our messages for [the benefit of] people who are grateful!
  <!--END_SECTION:quran-->
 
   
