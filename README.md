@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 29**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 1**
 
-and is enwrapped in the pangs of death
+ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!
  <!--END_SECTION:quran-->
 
   
