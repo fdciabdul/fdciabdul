@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 92**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 5**
 
-But, by thy Sustainer! [On the Day of Judgment] We shall indeed call them to account, one and all,
+Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store
  <!--END_SECTION:quran-->
 
   
