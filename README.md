@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 6**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 8**
 
-"from all [temptation to evil by] invisible forces as well as men,"
+But [as for the wife, all] chastisement shall be averted from her by her calling God four times to witness that he is indeed telling a lie,
  <!--END_SECTION:quran-->
 
   
