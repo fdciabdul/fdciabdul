@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 4**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 159**
 
-Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.
+limitless is God in His glory, above anything that men may devise by way of definition!
  <!--END_SECTION:quran-->
 
   
