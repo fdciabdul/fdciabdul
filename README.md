@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 4**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 17**
 
-Verily, [O Prophet,] as for those who call thee from without thy private apartments - most of them do not use their reason:
+But nay, nay, [O men, consider all that you do and fail to do:] you are not generous towards the orphan,
  <!--END_SECTION:quran-->
 
   
