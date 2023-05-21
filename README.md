@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 7**
 
-"And I will not worship ~hat which you have [ever] worshipped,
+What, then, [O man,] could henceforth cause thee to give the lie to this moral law?
  <!--END_SECTION:quran-->
 
   
