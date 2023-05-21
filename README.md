@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 13**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 73**
 
-although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"
+And, verily, thou callest them onto a straight way –
  <!--END_SECTION:quran-->
 
   
