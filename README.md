@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 17**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 2**
 
-How, then, if you refuse to acknowledge the truth, will you protect yourselves on that Day which shall turn the hair of children grey,
+Behold, it is this [kind of man] that thrusts the orphan away,
  <!--END_SECTION:quran-->
 
   
