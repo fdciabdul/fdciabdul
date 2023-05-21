@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 101**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 12**
 
-Then, when the trumpet [of resurrection] is blown, no ties of kinship will on that Day prevail among them, and neither will they ask about one another.
+And when the last Hour dawns, those who were lost in sin will be broken in spirit
  <!--END_SECTION:quran-->
 
   
