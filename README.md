@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 5**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 51**
 
-does it make secure, until the rise of dawn.
+Thus, indeed, did We destroy people like you [in the past]: who, then, is willing to take it to heart?
  <!--END_SECTION:quran-->
 
   
