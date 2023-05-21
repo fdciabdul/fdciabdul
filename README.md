@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 29**
 
-And, behold, with every hardship comes ease:
+and is enwrapped in the pangs of death
  <!--END_SECTION:quran-->
 
   
