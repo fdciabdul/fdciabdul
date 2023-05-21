@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 75**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 16**
 
-in which case We would indeed have made thee taste double [chastisement] in life and double [chastisement] after death, and thou wouldst have found none to succour thee against Us!
+and thereupon We let loose upon them a storm wind raging through days of misfortune, so as to give them, in the life of this world, a foretaste of suffering through humiliation: but [their] suffering in the life to come will be far more humiliating, and they will have none to succour them.
  <!--END_SECTION:quran-->
 
   
