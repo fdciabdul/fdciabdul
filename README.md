@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 1**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 6**
 
-ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?
+those who want only to be seen and praised,
  <!--END_SECTION:quran-->
 
   
