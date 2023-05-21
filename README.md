@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 50**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 13**
 
-but [as it was,] his Sustainer had elected him and placed him among the righteous.
+in order that you might gain mastery over them, and that, whenever you have mastered them, you might remember your Sustainer’s blessings and say: “Limitless in His glory is He who has made [all] this subservient to our use - since [but for Him,] we would not have been able to attain to it.
  <!--END_SECTION:quran-->
 
   
