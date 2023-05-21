@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 168**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 96**
 
-they who, having themselves held back [from fighting, later] said of their [slain] brethren, "Had they but paid heed to us, they would not have been slain." Say: "Avert, then, death from yourselves, if what you say is true!"
+VERILY, those who attain to faith and do righteous deeds will the Most Gracious endow with love:
  <!--END_SECTION:quran-->
 
   
