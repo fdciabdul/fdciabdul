@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 9**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 39**
 
-to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.
+and if you [think that you] have a subterfuge left, try to outwit Me!"
  <!--END_SECTION:quran-->
 
   
