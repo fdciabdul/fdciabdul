@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 1**
 
-"from the evil of aught that He has created,
+HAS THERE COME unto thee the tiding of the Overshadowing Event?'
  <!--END_SECTION:quran-->
 
   
