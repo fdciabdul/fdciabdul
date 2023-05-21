@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 3**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 4**
 
-and feels no urge to feed the needy.
+who has given them food against hunger, and made them safe from danger.
  <!--END_SECTION:quran-->
 
   
