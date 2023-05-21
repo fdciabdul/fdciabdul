@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 90**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 7**
 
-Vile is that [false pride] for which they have sold their own selves by denying the truth of what God has bestowed from on high, out of envy that God should bestow aught of His favour upon whomsoever He wills of His servants: and thus have they earned the burden of God's condemnation, over and over. And for those who deny the truth there is shameful suffering in store.
+issuing from between the loins [of man] and the pelvic arch [of woman].
  <!--END_SECTION:quran-->
 
   
