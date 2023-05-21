@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 1**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 110**
 
-HAS THERE COME unto thee the tiding of the Overshadowing Event?'
+“Verily, He knows all that is said openly, just as He [alone] knows all that you would conceal.
  <!--END_SECTION:quran-->
 
   
