@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 40**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 14**
 
-[dwelling] In gardens [of paradise], they will inquire
+on the Day when the earth and the mountains will be convulsed and the mountains will [crumble and] become like a sand-dune on the move!
  <!--END_SECTION:quran-->
 
   
