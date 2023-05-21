@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 32**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 6**
 
-and [that] all of them, all together, will [in the end] before Us be arraigned?
+Such is He who knows all that is beyond the reach of a created being’s perception, as well as all that can be witnessed by a creature’s senses or mind: the Almighty, the Dispenser of Grace,
  <!--END_SECTION:quran-->
 
   
