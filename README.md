@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 18**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 38**
 
-Behold, [when Our messages are conveyed to one who is bent on denying the truth,] he reflects and meditates [as to how to disprove them] –
+Behold, [O believers,] it is you who are called upon to spend freely in God’s cause: but [even] among you are such as turn out to be niggardly! And yet, he who acts niggardly [in God’s cause] is but niggardly towards his own self: for God is indeed self-sufficient, whereas you stand in need [of Him]; and if you turn away [from Him], He will cause other people to take your place, and they will not be the likes of you!
  <!--END_SECTION:quran-->
 
   
