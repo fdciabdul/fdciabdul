@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 12**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 112**
 
-[And] they add, "That, then, would be a return with loss!"
+[And,] lo, the white-garbed ones said: "O Jesus, son of Mary! Could thy Sustainer send down unto us a repast from heaven?" [Jesus] answered: "Be conscious of God, if you are [truly] believers!"
  <!--END_SECTION:quran-->
 
   
