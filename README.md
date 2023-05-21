@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 38**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 12**
 
-"O our Sustainer! Thou truly knowest all that we may hide [in our hearts] as well as all that we bring into the open:' for nothing whatever, be it on earth or in heaven, remains hidden from God.
+Why do not the believing men and women, whenever such [a rumour] is heard, think the best of one another and say, “This is an obvious falsehood”?
  <!--END_SECTION:quran-->
 
   
