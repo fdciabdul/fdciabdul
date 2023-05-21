@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 1**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 15**
 
-CONSIDER the sky full of great constellations,
+Was it, then, a delusion or is it that you failed to see [its truth]?
  <!--END_SECTION:quran-->
 
   
