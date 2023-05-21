@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 14**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 16**
 
-And thereupon We made you their successors on earth, so that We might behold how you act.
+but I shall bring all their scheming to nought.
  <!--END_SECTION:quran-->
 
   
