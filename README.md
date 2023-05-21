@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 6**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 4**
 
-All this [happens] because God alone is the Ultimate Truth, and because He alone brings the dead to life, and because He has the power to will anything.
+"from the evil of the whispering, elusive tempter
  <!--END_SECTION:quran-->
 
   
