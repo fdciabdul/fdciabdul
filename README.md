@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 28**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 168**
 
-And Lot, [too, was inspired by Us] when he said unto his people: “Verily, you commit abominations such as none in all the world has ever committed before you!
+they who, having themselves held back [from fighting, later] said of their [slain] brethren, "Had they but paid heed to us, they would not have been slain." Say: "Avert, then, death from yourselves, if what you say is true!"
  <!--END_SECTION:quran-->
 
   
