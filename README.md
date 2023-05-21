@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 3**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 75**
 
-and [of] Him who witnesses [all], and [of] that unto which witness is borne [by Him]!
+in which case We would indeed have made thee taste double [chastisement] in life and double [chastisement] after death, and thou wouldst have found none to succour thee against Us!
  <!--END_SECTION:quran-->
 
   
