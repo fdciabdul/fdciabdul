@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 6**
 
-Verily, he that hates thee has indeed been cut off [from all that is good]!
+"from all [temptation to evil by] invisible forces as well as men,"
  <!--END_SECTION:quran-->
 
   
