@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 39**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 3**
 
-and if you [think that you] have a subterfuge left, try to outwit Me!"
+and [of] Him who witnesses [all], and [of] that unto which witness is borne [by Him]!
  <!--END_SECTION:quran-->
 
   
