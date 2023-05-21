@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 8**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 50**
 
-And found thee in want, and given thee sufficiency?
+Should good fortune alight on thee, [O Prophet,] it will grieve them; and should misfortune befall thee, they will say [to themselves], "We have already taken our precautions beforehand!" - and will turn away, and will rejoice.
  <!--END_SECTION:quran-->
 
   
