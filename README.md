@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 6**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 92**
 
-verily, with every hardship comes ease!
+But, by thy Sustainer! [On the Day of Judgment] We shall indeed call them to account, one and all,
  <!--END_SECTION:quran-->
 
   
