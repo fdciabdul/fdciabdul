@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 8**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 46**
 
-But [as for the wife, all] chastisement shall be averted from her by her calling God four times to witness that he is indeed telling a lie,
+And [this retribution will befall all evildoers because] they devise that false imagery of theirs - and all their false imagery is within God's knowledge. [And never can the blasphemers prevail against the truth - not] even if their false imagery were so (well devised and so powerful] that mountains could be moved thereby.
  <!--END_SECTION:quran-->
 
   
