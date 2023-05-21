@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 6**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 36**
 
-Unto you, your moral law, and unto me, mine!"
+Say: “Behold, my Sustainer grants abundant sustenance, or gives it in scant measure, unto whomever He wills: but most men do not understand [God’s ways].”
  <!--END_SECTION:quran-->
 
   
