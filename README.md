@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 71**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 6**
 
-Thus, indeed, most of the people of old went astray before them,
+And [this happened, too,] when Jesus, the son of Mary, said: "O children of Israel! Behold, I am an apostle of God unto you, [sent] to confirm the truth of whatever there still remains of the Torah, and to give [you] the glad tiding of an apostle who shall come after me, whose name shall be Ahmad." But when he [whose coming Jesus had foretold] came unto them with all evidence of the truth, they said: "This [alleged message of his] is [nothing but] spellbinding eloquence!"
  <!--END_SECTION:quran-->
 
   
