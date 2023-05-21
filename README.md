@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 21**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 13**
 
-It is they who have squandered their own selves-for [on the Day of Resurrection] all their false imagery will have forsaken them:
+although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"
  <!--END_SECTION:quran-->
 
   
