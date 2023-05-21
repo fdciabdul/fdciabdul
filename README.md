@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 49**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 36**
 
-WHAT, THEN, is amiss with them that they turn away from all admonition
+DOES MAN, then, think that he is to be left to himself to go about at will?
  <!--END_SECTION:quran-->
 
   
