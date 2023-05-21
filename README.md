@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 6**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 40**
 
-Such is He who knows all that is beyond the reach of a created being’s perception, as well as all that can be witnessed by a creature’s senses or mind: the Almighty, the Dispenser of Grace,
+[dwelling] In gardens [of paradise], they will inquire
  <!--END_SECTION:quran-->
 
   
