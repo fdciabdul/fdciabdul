@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 58**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 18**
 
-As for the good land, its vegetation comes forth [in abundance] by its Sustainer's leave, whereas from the bad it comes forth but poorly. Thus do We give many facets to Our messages for [the benefit of] people who are grateful!
+Behold, [when Our messages are conveyed to one who is bent on denying the truth,] he reflects and meditates [as to how to disprove them] –
  <!--END_SECTION:quran-->
 
   
