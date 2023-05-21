@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 2**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 2**
 
-[And Noah] said: "O my people! I am but a plain warner to you, [sent to tell you]
+and the night when it grows still and dark.
  <!--END_SECTION:quran-->
 
   
