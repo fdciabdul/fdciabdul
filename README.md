@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 14**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 4**
 
-on the Day when the earth and the mountains will be convulsed and the mountains will [crumble and] become like a sand-dune on the move!
+Verily, [O Prophet,] as for those who call thee from without thy private apartments - most of them do not use their reason:
  <!--END_SECTION:quran-->
 
   
