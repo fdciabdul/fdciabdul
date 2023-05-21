@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 7**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 3**
 
-issuing from between the loins [of man] and the pelvic arch [of woman].
+and feels no urge to feed the needy.
  <!--END_SECTION:quran-->
 
   
