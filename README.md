@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 13**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 101**
 
-they made for him whatever he wished of sanctuaries, and statues, and basins as [large as] great watering - troughs, and cauldrons firmly anchored. [And We said:] “Labour, O David’s people, in gratitude [towards Me] and [remember that] few are the truly grateful [even] among My servants!”
+Then, when the trumpet [of resurrection] is blown, no ties of kinship will on that Day prevail among them, and neither will they ask about one another.
  <!--END_SECTION:quran-->
 
   
