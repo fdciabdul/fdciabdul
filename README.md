@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 42**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 99**
 
-those who, having attained to patience in adversity, in their Sustainer place their trust!
+[AS FOR THOSE who will not believe in the life to come, they go on lying to themselves] until, when death approaches any of them, he prays: “O my Sustainer! Let me return, let me return [to life],
  <!--END_SECTION:quran-->
 
   
