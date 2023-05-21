@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 14**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 19**
 
-and it floated under Our eyes: a recom­pense for him who had been rejected with ingratitude.
+and thus he destroys himself, the way he meditates:
  <!--END_SECTION:quran-->
 
   
