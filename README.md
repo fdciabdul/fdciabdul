@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 63**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 17**
 
-[whereupon] they against whom the word [of truth] shall thus stand revealed will exclaim: O our Sustainer! Those whom we caused to err so grievously, we but caused to err as we our­selves had been erring. We [now] disavow them before Thee: it was not us that they worshipped!”
+and being, withal, of those who have attained to faith, and who enjoin upon one another patience in adversity, and enjoin upon one another compassion.
  <!--END_SECTION:quran-->
 
   
