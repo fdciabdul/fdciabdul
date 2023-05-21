@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 80**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 21**
 
-a revelation from the Sustainer of all the worlds!
+It is they who have squandered their own selves-for [on the Day of Resurrection] all their false imagery will have forsaken them:
  <!--END_SECTION:quran-->
 
   
