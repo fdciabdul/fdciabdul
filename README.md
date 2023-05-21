@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 38**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 13**
 
-Behold, [O believers,] it is you who are called upon to spend freely in God’s cause: but [even] among you are such as turn out to be niggardly! And yet, he who acts niggardly [in God’s cause] is but niggardly towards his own self: for God is indeed self-sufficient, whereas you stand in need [of Him]; and if you turn away [from Him], He will cause other people to take your place, and they will not be the likes of you!
+they made for him whatever he wished of sanctuaries, and statues, and basins as [large as] great watering - troughs, and cauldrons firmly anchored. [And We said:] “Labour, O David’s people, in gratitude [towards Me] and [remember that] few are the truly grateful [even] among My servants!”
  <!--END_SECTION:quran-->
 
   
