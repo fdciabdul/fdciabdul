@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 70**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 11**
 
-for, indeed, We know best as to which of them is most deserving of the fires of hell.
+and made the day [a symbol of] life.
  <!--END_SECTION:quran-->
 
   
