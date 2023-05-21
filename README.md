@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 50**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
 
-Should good fortune alight on thee, [O Prophet,] it will grieve them; and should misfortune befall thee, they will say [to themselves], "We have already taken our precautions beforehand!" - and will turn away, and will rejoice.
+Verily, he that hates thee has indeed been cut off [from all that is good]!
  <!--END_SECTION:quran-->
 
   
