@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 20**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 1**
 
-and with fruit of any kind that they may choose,
+CONSIDER these [messages,] sent forth in waves
  <!--END_SECTION:quran-->
 
   
