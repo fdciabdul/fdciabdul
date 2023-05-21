@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 110**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 8**
 
-“Verily, He knows all that is said openly, just as He [alone] knows all that you would conceal.
+AND HOW MANY a community has turned with disdain from the commandment of its Sustainer and His apostles! -whereupon We callled them all to account with an accounting severe, and caused them to suffer with a suffering unnameable:
  <!--END_SECTION:quran-->
 
   
