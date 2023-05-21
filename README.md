@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 4**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 27**
 
-"from the evil of the whispering, elusive tempter
+Yet in the end, when they shall see that [fulfilment] close at hand, the faces of those who were bent on denying the truth will be stricken with grief; and they will be told, "This it is that you were [so derisively] calling for!"
  <!--END_SECTION:quran-->
 
   
