@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 1**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 28**
 
-CONSIDER these [messages,] sent forth in waves
+And Lot, [too, was inspired by Us] when he said unto his people: “Verily, you commit abominations such as none in all the world has ever committed before you!
  <!--END_SECTION:quran-->
 
   
