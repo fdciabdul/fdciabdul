@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 1**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 39**
 
-ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!
+laughing, rejoicing at glad tidings.
  <!--END_SECTION:quran-->
 
   
