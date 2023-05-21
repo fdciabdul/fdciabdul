@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 17**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 30**
 
-If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,
+[not giving way to their desires] with any but their spouses - that is, those whom they rightfully possess [through wedlock] -: for then, behold, they are free of all blame,
  <!--END_SECTION:quran-->
 
   
