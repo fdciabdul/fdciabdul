@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 19**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 44**
 
-and thus he destroys himself, the way he meditates:
+And so, when you met in battle, He made them appear as few in your eyes -just as He made you appear as of little account in their eyes - so that God might accomplish a thing [which He willed] to be done: for all things go back to God [as their source].
  <!--END_SECTION:quran-->
 
   
