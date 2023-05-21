@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 11**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 6**
 
-and made the day [a symbol of] life.
+such as, when all mankind is gathered [for judgment], will be enemies unto those [who worshipped them], and will utterly reject their worship?
  <!--END_SECTION:quran-->
 
   
