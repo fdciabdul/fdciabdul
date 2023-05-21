@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 32**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 63**
 
-and whenever they see those [who believe,] they say, "Behold, these [people] have indeed gone astray!"
+[whereupon] they against whom the word [of truth] shall thus stand revealed will exclaim: O our Sustainer! Those whom we caused to err so grievously, we but caused to err as we our­selves had been erring. We [now] disavow them before Thee: it was not us that they worshipped!”
  <!--END_SECTION:quran-->
 
   
