@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 12**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 3**
 
-for, behold, heavy fetters [await them] with Us, and a blazing fire,
+And what could make thee conceive what that sudden calamity will be?
  <!--END_SECTION:quran-->
 
   
