@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 3**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 10**
 
-And what could make thee conceive what that sudden calamity will be?
+and the mountains will move with [an awesome] movement.
  <!--END_SECTION:quran-->
 
   
