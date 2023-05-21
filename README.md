@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 17**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 17**
 
-and being, withal, of those who have attained to faith, and who enjoin upon one another patience in adversity, and enjoin upon one another compassion.
+If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,
  <!--END_SECTION:quran-->
 
   
