@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 5**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 9**
 
-Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store
+But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,
  <!--END_SECTION:quran-->
 
   
