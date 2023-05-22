@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 9**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 9**
 
-and in awe [of God]
+To a happy state shall indeed attain he who causes this [self] to grow in purity,
  <!--END_SECTION:quran-->
 
   
