@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 25**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 21**
 
-[how it is] that We pour down water, pouring it down abundantly;
+Is it that they [who care for no more than this world] believe in forces supposed to have a share in God’s divinity, which enjoin upon them as a moral law something that God has never allowed? Now were it not for [God’s] decree on the final judgment, all would indeed have been decided be­tween them [in this world]: but, verily, grievous suffering awaits the evildoers [in the life to come].
  <!--END_SECTION:quran-->
 
   
