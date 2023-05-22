@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 95**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 1**
 
-He answered: "That wherein my Sustainer has so securely established me is better [than anything that you could give me]; hence, do but help me with [your labour's] strength, [and] I shall erect a rampart between you and them!
+GOD has indeed heard the words of her who pleads with thee concerning her husband, and complains Unto God. And God does hear what you both have to say: verily, God is all-hearing, all-seeing.
  <!--END_SECTION:quran-->
 
   
