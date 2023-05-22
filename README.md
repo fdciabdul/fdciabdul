@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 18**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 77**
 
-INDEED, well-pleased was God with the believers when they pledged their allegiance unto thee [O Muhammad] under that tree, for He knew what was in their hearts; and so He bestowed inner peace upon them from on high, and rewarded them with [the glad tiding of] a victory soon to come
+and [how] We succoured him against the people who had given the lie to Our messages: verily, they were people lost in evil - and [so] We caused them all to drown.
  <!--END_SECTION:quran-->
 
   
