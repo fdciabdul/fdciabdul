@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 3**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-Nay, in time you will come to understand!
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
