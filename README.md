@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 16**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 9**
 
-AND, INDEED, [already] unto the children of Israel did We vouchsafe revelation, and wisdom, and prophethood; and We provided for them sustenance out of the good things of life, and favoured them above all other people [of their time].
+[saying, in their hearts,] "We feed you for the sake of God alone: we desire no recompense from you, nor thanks:
  <!--END_SECTION:quran-->
 
   
