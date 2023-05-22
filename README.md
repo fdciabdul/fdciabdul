@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 27**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
 
-Thereupon We inspired him thus: “Build, un­der Our eyes and according to Our inspiration, the ark [that shall save thee and those who follow thee]. And when Our judgment comes to pass, and waters gush forth in torrents over the face of the earth, place on board of this [ark] one pair of each [kind of animal] of either sex, as well as thy family - excepting those on whom sentence has already been passed; and do not appeal to Me [any more] in behalf of those who are bent on evildoing - for, behold, they are destined to be drowned!
+"from the evil of aught that He has created,
  <!--END_SECTION:quran-->
 
   
