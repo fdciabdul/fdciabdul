@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 4**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 7**
 
-who has taught [man] the use of the pen –
+[But] it may well be that God will bring about [mutual] affection between you [O believers] and some of those whom you [now] face as enemies: for, God is all-powerful - and God is much-forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
