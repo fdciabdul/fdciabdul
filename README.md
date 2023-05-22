@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 7**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 4**
 
-and to this, behold, he [himself] bears witness indeed:
+Verily, We create man in the best conformation;
  <!--END_SECTION:quran-->
 
   
