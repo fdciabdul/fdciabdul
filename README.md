@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 48**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
 
-And to how many a community that was im­mersed in evildoing have I given rein for a while! But then I took it to task: for with Me is all journeys’ end!
+CONSIDER the flight of time!
  <!--END_SECTION:quran-->
 
   
