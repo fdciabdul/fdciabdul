@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
 
-And what could make thee conceive what that crushing torment will be?
+HAVE WE NOT opened up thy heart,
  <!--END_SECTION:quran-->
 
   
