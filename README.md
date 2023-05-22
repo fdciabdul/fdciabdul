@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 31**
 
-"from the evil of aught that He has created,
+“O our people! Respond to God’s call, and have faith in Him: He will forgive you [whatever is past] of your sins, and deliver you from grievous suffering [in the life to come].
  <!--END_SECTION:quran-->
 
   
