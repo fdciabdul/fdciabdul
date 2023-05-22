@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 32**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 7**
 
-and has made the mountains firm:
+And so, he who shall have done an atom's weight of good, shall behold it;
  <!--END_SECTION:quran-->
 
   
