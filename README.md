@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 47**
 
-Verily, man is bound to lose himself
+Say: “No reward have I ever asked of you [out of anything] that is yours: my reward rests with none but God, and He is witness unto everything!”
  <!--END_SECTION:quran-->
 
   
