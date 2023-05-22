@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 53**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 15**
 
-just as He thrust into perdition those cities that were overthrown
+[a fire] which they shall enter on Judgment Day,
  <!--END_SECTION:quran-->
 
   
