@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 70**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 6**
 
-INDEED, We accepted a solemn pledge from the children of Israel, and We sent apostles unto them; [but] every time an apostle came unto them with anything that was not to their liking, [they rebelled:] to some of them they gave the lie, while others they would slay,
+turn thou away from them. On the Day when the Summoning Voice will sum­mon [man] unto something that the mind cannot conceive,
  <!--END_SECTION:quran-->
 
   
