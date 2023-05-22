@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 4**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 79**
 
-and who brings forth herbage,
+and so We inflicted Our retribution on them. And, behold, both these [sinful communities] lived by a highway, [to this day] plain to see
  <!--END_SECTION:quran-->
 
   
