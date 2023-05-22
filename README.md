@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 3**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 32**
 
-It is the star that pierces through [life's] darkness:
+and has made the mountains firm:
  <!--END_SECTION:quran-->
 
   
