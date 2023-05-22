@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 6**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 25**
 
-Unto you, your moral law, and unto me, mine!"
+[how it is] that We pour down water, pouring it down abundantly;
  <!--END_SECTION:quran-->
 
   
