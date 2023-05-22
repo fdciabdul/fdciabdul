@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 2**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 70**
 
-And what could make thee conceive what it is, that Night of Destiny?
+INDEED, We accepted a solemn pledge from the children of Israel, and We sent apostles unto them; [but] every time an apostle came unto them with anything that was not to their liking, [they rebelled:] to some of them they gave the lie, while others they would slay,
  <!--END_SECTION:quran-->
 
   
