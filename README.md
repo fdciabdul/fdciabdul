@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 31**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 5**
 
-And [know that] all of the divine writ with which We have inspired thee is the very truth, confirming the truth of whatever there still remains of earlier revelations for, behold, of [the needs of] His servants God is fully aware, all-seeing.
+Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store
  <!--END_SECTION:quran-->
 
   
