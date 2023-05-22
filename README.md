@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 5**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 17**
 
-And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.
+IS, THEN, HE who creates comparable to any [being] that cannot create? Will you not, then, bethink yourselves?
  <!--END_SECTION:quran-->
 
   
