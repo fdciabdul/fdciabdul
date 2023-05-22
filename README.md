@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 10**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 50**
 
-He who desires might and glory [ought to know that] all might and glory belong to God [alone]. Unto Him ascend all good words, and the righteous deed does He exalt. But as for those who cunningly devise evil deeds - suffering severe awaits them; and all their devising is bound to come to nought.
+"And [I have come] to confirm the truth of whatever there still remains of the Torah, and to make lawful unto you some of the things which [aforetime] were forbidden to you. And I have come unto you with a message from your Sustainer; remain, then, conscious of God, and pay heed unto me.
  <!--END_SECTION:quran-->
 
   
