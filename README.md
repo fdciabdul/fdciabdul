@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 7**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 11**
 
-And so, he who shall have done an atom's weight of good, shall behold it;
+And if any of your wives should go over to the deniers of the truth, and you are thus afflicted in turn, then give unto those whose wives have gone away the equivalent of what they had spent [on their wives by way of dower], and remain conscious of God, in whom you believe!
  <!--END_SECTION:quran-->
 
   
