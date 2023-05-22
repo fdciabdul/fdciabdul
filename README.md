@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 10**
 
-Verily, he that hates thee has indeed been cut off [from all that is good]!
+Behold, all who pledge their allegiance to thee pledge their allegiance to God: the hand of God is over their hands. Hence, he who breaks his oath, breaks it only to his own hurt; whereas he who remains true to what he has pledged unto God, on him will He bestow a reward supreme.
  <!--END_SECTION:quran-->
 
   
