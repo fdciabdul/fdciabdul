@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 28**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 54**
 
-[For Him,] the creation of you all and the resurrection of you all is but like [the creation and resurrection of] a single soul: for, verily, God is all-hearing, all-seeing.
+And so, a barrier will be set between them and all that they had [ever] desired, as will be done to such of their kind as lived before their time: for, behold, they [too] were lost in doubt amounting to suspicion.
  <!--END_SECTION:quran-->
 
   
