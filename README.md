@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 23**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 6**
 
-And among His wonders is your sleep, at night or in daytime, as well as your [ability to go about in] quest of some of His bounties: in this, behold, there are messages indeed for people who [are willing to] listen!
+Consider the surf-swollen sea!
  <!--END_SECTION:quran-->
 
   
