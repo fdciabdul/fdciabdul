@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 9**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 36**
 
-[saying, in their hearts,] "We feed you for the sake of God alone: we desire no recompense from you, nor thanks:
+having resurrected them as virgins,
  <!--END_SECTION:quran-->
 
   
