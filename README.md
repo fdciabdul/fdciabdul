@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 7**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 5**
 
-[But] it may well be that God will bring about [mutual] affection between you [O believers] and some of those whom you [now] face as enemies: for, God is all-powerful - and God is much-forgiving, a dispenser of grace.
+as thy Sustainer will have inspired her to do!
  <!--END_SECTION:quran-->
 
   
