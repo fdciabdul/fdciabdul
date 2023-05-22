@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 13**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
 
-wherein he will neither die nor remain alive.
+which smote them with stone-hard blows of chastisement pre-ordained,
  <!--END_SECTION:quran-->
 
   
