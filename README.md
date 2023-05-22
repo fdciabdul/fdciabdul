@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 4**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 66**
 
-Woe, then, unto those praying ones
+YOUR SUSTAINER is He who causes ships to move onward for you through the sea, so that you might go about in quest of some of His bounty: verily, a dispenser of grace is He unto you.
  <!--END_SECTION:quran-->
 
   
