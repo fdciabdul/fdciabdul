@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 9**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 16**
 
-and then He forms him in accordance with what he is meant to be, and breathes into him of His spirit: and [thus, O men,] He endows you with hearing, and sight, and feelings as well as minds: [yet] how seldom are you grateful!
+Now among those [hapless sinners] are such as [pretend to] listen to thee, [O Muhammad,] and then, as soon as they leave thy presence, speak [with scorn] unto those who have understood [thy mes­sage]: “What is it that he has said just now?” It is such as these whose hearts God has sealed because they [always] followed but their own lusts
  <!--END_SECTION:quran-->
 
   
