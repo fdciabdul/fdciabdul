@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 50**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 7**
 
-"And [I have come] to confirm the truth of whatever there still remains of the Torah, and to make lawful unto you some of the things which [aforetime] were forbidden to you. And I have come unto you with a message from your Sustainer; remain, then, conscious of God, and pay heed unto me.
+But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.
  <!--END_SECTION:quran-->
 
   
