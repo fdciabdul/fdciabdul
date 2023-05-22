@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 6**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 13**
 
-Do they not look at the sky above them - how We have built it and made it beautiful and free of all faults?
+But they who denied the truth spoke [thus] unto their apostles: "We shall most certainly expel you from our land, unless you return forthwith to our ways. Whereupon their Sustainer revealed this to His apostles: "Most certainly shall We destroy these evildoers,
  <!--END_SECTION:quran-->
 
   
