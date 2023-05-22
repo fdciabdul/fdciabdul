@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 1**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 35**
 
-GOD has indeed heard the words of her who pleads with thee concerning her husband, and complains Unto God. And God does hear what you both have to say: verily, God is all-hearing, all-seeing.
+God is the Light of the heavens and the earth. The parable of His light is, as it were, that of a niche containing a lamp; the lamp is [enclosed] in glass, the glass [shining] like a radiant star: [a lamp] lit from a blessed tree - an olive-tree that is neither of the east nor of the west the oil whereof [is so bright that it] would well-nigh give light [of itself] even though fire had not touched it: light upon light! God guides unto His light him that wills [to be guided]; and [to this end] God propounds parables unto men, since God [alone] has full knowledge of all things.
  <!--END_SECTION:quran-->
 
   
