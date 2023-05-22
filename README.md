@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 17**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 50**
 
-And, indeed, We have created above you seven [celestial] orbits: and never are We unmindful of [any aspect of Our] creation.
+or He gives both male and female [to whomever He wills], and causes to be barren whomever He wills: for, verily, He is all-knowing, infinite in His power.
  <!--END_SECTION:quran-->
 
   
