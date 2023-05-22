@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 6**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 5**
 
-turn thou away from them. On the Day when the Summoning Voice will sum­mon [man] unto something that the mind cannot conceive,
+And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.
  <!--END_SECTION:quran-->
 
   
