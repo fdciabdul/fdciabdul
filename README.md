@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 5**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
 
-and thereafter We reduce him to the lowest of low
+hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
  <!--END_SECTION:quran-->
 
   
