@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 5**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 3**
 
-taught man what he did not know!
+Nay, in time you will come to understand!
  <!--END_SECTION:quran-->
 
   
