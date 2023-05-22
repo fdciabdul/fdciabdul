@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 3**
 
-HAVE WE NOT opened up thy heart,
+It is the star that pierces through [life's] darkness:
  <!--END_SECTION:quran-->
 
   
