@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 77**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 50**
 
-and [how] We succoured him against the people who had given the lie to Our messages: verily, they were people lost in evil - and [so] We caused them all to drown.
+And yet they say, “Why have no miraculous signs ever been bestowed upon him from on high by his Sustainer?” Say: “Miracles are in the power of God alone; and as for me - I am but a plain warner.”
  <!--END_SECTION:quran-->
 
   
