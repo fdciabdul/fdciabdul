@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 32**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 4**
 
-but, on the contrary, he gave the lie to the truth and turned away [from it],
+who has taught [man] the use of the pen –
  <!--END_SECTION:quran-->
 
   
