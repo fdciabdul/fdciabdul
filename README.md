@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 17**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 31**
 
-But [there is many a one] who says to his parents [whenever they try to imbue him with faith in God]: “Fie upon both of you! Do you promise me that I shall be brought forth [from the dead], although [so many] generations have passed away before me?” And [while] they both pray for God’s help [and say], “Alas for thee! For, behold, God’s promise always comes true!” - he but answers, “All this is nothing but fables of ancient times!”
+And [then He said]: “Throw down thy staff!” But as soon as [Moses] saw it move rapidly, as if it were a snake, he drew back [in terror], and did not [dare to] return. [And God spoke to him again:] “O Moses! Draw near, and have no fear - for, behold, thou art of those who are secure [in this world and in the next]!
  <!--END_SECTION:quran-->
 
   
