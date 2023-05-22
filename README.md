@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 36**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 7**
 
-nor be allowed to proffer excuses!
+and to this, behold, he [himself] bears witness indeed:
  <!--END_SECTION:quran-->
 
   
