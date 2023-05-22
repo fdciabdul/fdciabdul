@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 4**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 5**
 
-Verily, We have created man into [a life of] pain, toil and trial.
+taught man what he did not know!
  <!--END_SECTION:quran-->
 
   
