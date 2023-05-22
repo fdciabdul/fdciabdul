@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 8**
+**Surah 38: سُورَةُ صٓ (Saad) - 86**
 
-[And] they say, "Indeed, when we return to the City [we,] the ones most worthy of honour will surely drive out therefrom those most contemptible ones!" However, all honour belongs to God, and [thus] to His Apostle and those who believe [in God]: but of this the hypocrites are not aware.
+SAY [O Prophet]: “No reward whatever do I ask of you for this [message]; and I am not one of those who claim to be what they are not.
  <!--END_SECTION:quran-->
 
   
