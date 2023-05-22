@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 2**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 16**
 
-O you who have attained to faith! Do not raise your voices above the voice of the Prophet, and neither speak loudly to him, as you would speak loudly to one another, lest all your [good] deeds come to nought without your perceiving it.
+AND, INDEED, [already] unto the children of Israel did We vouchsafe revelation, and wisdom, and prophethood; and We provided for them sustenance out of the good things of life, and favoured them above all other people [of their time].
  <!--END_SECTION:quran-->
 
   
