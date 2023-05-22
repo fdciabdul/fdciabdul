@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 31**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 38**
 
-And [then He said]: “Throw down thy staff!” But as soon as [Moses] saw it move rapidly, as if it were a snake, he drew back [in terror], and did not [dare to] return. [And God spoke to him again:] “O Moses! Draw near, and have no fear - for, behold, thou art of those who are secure [in this world and in the next]!
+BUT NAY! I call to witness an that you can see,
  <!--END_SECTION:quran-->
 
   
