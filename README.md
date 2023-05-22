@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 48**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 28**
 
-and that it is He alone who frees from want and causes to possess;
+[For Him,] the creation of you all and the resurrection of you all is but like [the creation and resurrection of] a single soul: for, verily, God is all-hearing, all-seeing.
  <!--END_SECTION:quran-->
 
   
