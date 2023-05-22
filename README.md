@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 9**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 11**
 
-But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,
+and made the day [a symbol of] life.
  <!--END_SECTION:quran-->
 
   
