@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 20**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 17**
 
-[O you who believe!] God has promised you many war-gains which you shall yet achieve; and He has vouchsafed you these [worldly gains] well in advance, and has stayed from you the hands of [hostile] people, so that this [your inner strength] may become a symbol to the believers [who will come after you], and that He may guide you all on a straight way.
+But [there is many a one] who says to his parents [whenever they try to imbue him with faith in God]: “Fie upon both of you! Do you promise me that I shall be brought forth [from the dead], although [so many] generations have passed away before me?” And [while] they both pray for God’s help [and say], “Alas for thee! For, behold, God’s promise always comes true!” - he but answers, “All this is nothing but fables of ancient times!”
  <!--END_SECTION:quran-->
 
   
