@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 84**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
 
-But one Day We shall raise up a witness out of every community, whereupon they who were bent on denying the truth will not be allowed to plead [ignorance], and neither will they be allowed to make amends.
+What will his wealth avail him, and all that he has gained?
  <!--END_SECTION:quran-->
 
   
