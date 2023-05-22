@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 29**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 17**
 
-The judgment passed by Me shall not be altered; but never do I do the least wrong unto My creatures!”
+And, indeed, We have created above you seven [celestial] orbits: and never are We unmindful of [any aspect of Our] creation.
  <!--END_SECTION:quran-->
 
   
