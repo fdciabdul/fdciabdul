@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 6**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 2**
 
-A fire kindled by God,
+How awesome that laying-bare of the truth!
  <!--END_SECTION:quran-->
 
   
