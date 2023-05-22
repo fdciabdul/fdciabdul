@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 6**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 2**
 
-Consider the surf-swollen sea!
+O you who have attained to faith! Do not raise your voices above the voice of the Prophet, and neither speak loudly to him, as you would speak loudly to one another, lest all your [good] deeds come to nought without your perceiving it.
  <!--END_SECTION:quran-->
 
   
