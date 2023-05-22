@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 82**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 7**
 
-whereas those who attain to faith and do righteous deeds -they are destined for paradise, therein to abide.
+appearing in the horizon’s loftiest part,
  <!--END_SECTION:quran-->
 
   
