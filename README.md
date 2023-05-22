@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 86**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 36**
 
-SAY [O Prophet]: “No reward whatever do I ask of you for this [message]; and I am not one of those who claim to be what they are not.
+and the blazing fire [of hell] will be lad open before all who [are destined to] see it.
  <!--END_SECTION:quran-->
 
   
