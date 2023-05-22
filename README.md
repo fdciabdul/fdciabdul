@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 10**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 84**
 
-Behold, all who pledge their allegiance to thee pledge their allegiance to God: the hand of God is over their hands. Hence, he who breaks his oath, breaks it only to his own hurt; whereas he who remains true to what he has pledged unto God, on him will He bestow a reward supreme.
+But one Day We shall raise up a witness out of every community, whereupon they who were bent on denying the truth will not be allowed to plead [ignorance], and neither will they be allowed to make amends.
  <!--END_SECTION:quran-->
 
   
