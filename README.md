@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 40**
 
-"and there is nothing that could be compared with Him.
+[And so it went on] till, when Our judgment came to pass, and waters gushed forth in torrents over the face of the earth, We said [unto Noah]: "Place on board of this [ark] one pair of each [kind of animal] of either sex, as well as thy family -except those on whom [Our] sentence has already been passed -and all [others] who have attained to faith!"-for, only a few [of Noah's people] shared his faith.
  <!--END_SECTION:quran-->
 
   
