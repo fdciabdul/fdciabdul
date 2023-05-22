@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 4**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 10**
 
-Verily, We create man in the best conformation;
+He who desires might and glory [ought to know that] all might and glory belong to God [alone]. Unto Him ascend all good words, and the righteous deed does He exalt. But as for those who cunningly devise evil deeds - suffering severe awaits them; and all their devising is bound to come to nought.
  <!--END_SECTION:quran-->
 
   
