@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 72**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 1**
 
-But if you turn away [from the message which I bear, remember that] I have asked no reward whatever of you: my reward rests with none but God, for I have been bidden to be among those who have surrendered themselves unto Him."
+CONSIDER the daybreak
  <!--END_SECTION:quran-->
 
   
