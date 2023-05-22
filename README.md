@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 82**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 82**
 
-But nay! [On Judgment Day] these [very objects of adoration] will disavow the worship that was paid to them, and will turn against those [who had worshipped them]!
+whereas those who attain to faith and do righteous deeds -they are destined for paradise, therein to abide.
  <!--END_SECTION:quran-->
 
   
