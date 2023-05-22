@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 2**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 6**
 
-and restraining [from evil] by a call to restraint,
+Do they not look at the sky above them - how We have built it and made it beautiful and free of all faults?
  <!--END_SECTION:quran-->
 
   
