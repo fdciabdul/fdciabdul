@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 11**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 5**
 
-and made the day [a symbol of] life.
+Now when Moses spoke to his people, [it was this same truth that he had in mind:] "O my people! Why do you cause me grief, the while you know that I am an apostle of God sent unto you?" And so, when they swerved from the right way, God let their hearts swerve from the truth: for God does not bestow His guidance upon iniquitous folk.
  <!--END_SECTION:quran-->
 
   
