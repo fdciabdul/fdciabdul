@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 5**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
 
-Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store
+unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
  <!--END_SECTION:quran-->
 
   
