@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 36**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 6**
 
-having resurrected them as virgins,
+A fire kindled by God,
  <!--END_SECTION:quran-->
 
   
