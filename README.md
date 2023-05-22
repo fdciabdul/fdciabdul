@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 2**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 83**
 
-hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].
+for when their apostles came to them with all evidence of the truth, they arrogantly exulted in whatever knowledge they [already] possessed: and [so, in the end,] they were overwhelmed by the very thing which they were wont to deride.
  <!--END_SECTION:quran-->
 
   
