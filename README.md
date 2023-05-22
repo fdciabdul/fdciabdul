@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 19**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 8**
 
-"'And God has made the earth a wide expanse for you,
+[And] they say, "Indeed, when we return to the City [we,] the ones most worthy of honour will surely drive out therefrom those most contemptible ones!" However, all honour belongs to God, and [thus] to His Apostle and those who believe [in God]: but of this the hypocrites are not aware.
  <!--END_SECTION:quran-->
 
   
