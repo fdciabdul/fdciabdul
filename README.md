@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 35**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 1**
 
-He who, out of His bounty, has made us alight in this abode of life enduring, wherein no struggle can assail us, and wherein no weariness can touch us!”
+AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;
  <!--END_SECTION:quran-->
 
   
