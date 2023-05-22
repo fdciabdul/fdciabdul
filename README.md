@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 5**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 4**
 
-and the mountains will be like fluffy tufts of wool....
+Verily, We have created man into [a life of] pain, toil and trial.
  <!--END_SECTION:quran-->
 
   
