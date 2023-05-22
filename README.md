@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 17**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 18**
 
-IS, THEN, HE who creates comparable to any [being] that cannot create? Will you not, then, bethink yourselves?
+Such are they that have attained to righteousness;
  <!--END_SECTION:quran-->
 
   
