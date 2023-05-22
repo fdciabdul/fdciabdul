@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 31**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 5**
 
-“O our people! Respond to God’s call, and have faith in Him: He will forgive you [whatever is past] of your sins, and deliver you from grievous suffering [in the life to come].
+and the mountains will be like fluffy tufts of wool....
  <!--END_SECTION:quran-->
 
   
