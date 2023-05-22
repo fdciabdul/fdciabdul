@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 1**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 8**
 
-AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;
+They aim to extinguish God's light with their utterances: but God has willed to spread His light in all its fullness, however hateful this may be to all who deny the truth
  <!--END_SECTION:quran-->
 
   
