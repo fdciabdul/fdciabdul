@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 2**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 80**
 
-How awesome that laying-bare of the truth!
+[And] whether thou dost pray [unto God] that they be forgiven or dost not pray for them - [it will all be the same: for even] if thou wert to pray seventy times that they be forgiven, God will not forgive them, seeing that they are bent on denying God and His Apostle. And God does not bestow His guidance upon such iniquitous folk.
  <!--END_SECTION:quran-->
 
   
