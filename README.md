@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 29**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 37**
 
-And the followers of earlier revelation should know that they have no power whatever over any of God’s bounty, seeing that all bounty is in God’s hand [alone]: He grants it unto whomever He wills - for God is limitless in His great bounty.
+[But bear in mind:] never does their flesh reach God, and neither their blood: it is only your God-consciousness that reaches Him. It is to this end that We have made them subservient to your needs, so that you might glorify God for all the guidance with which He has graced you. And give thou this glad tiding unto the doers of good:
  <!--END_SECTION:quran-->
 
   
