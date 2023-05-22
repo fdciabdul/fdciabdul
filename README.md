@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 7**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 12**
 
-But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.
+And [We have propounded yet another parable of God-consciousness in the story of] Mary, the daughter of Imran, who guarded her chastity, whereupon We breathed of Our spirit into that [which was in her womb], and who accepted the truth of her Sustainer’s words - and [thus,] of His revelations - and was one of the truly devout.
  <!--END_SECTION:quran-->
 
   
