@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 8**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
 
-And why should you not believe in God, seeing that the Apostle calls you to believe in [Him who is] your Sustainer, and [seeing that] He has taken a pledge from you? [Why should you not believe in Him] if you are able to believe [in anything]?
+And what could make thee conceive what that crushing torment will be?
  <!--END_SECTION:quran-->
 
   
