@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 38**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 31**
 
-BUT NAY! I call to witness an that you can see,
+And [know that] all of the divine writ with which We have inspired thee is the very truth, confirming the truth of whatever there still remains of earlier revelations for, behold, of [the needs of] His servants God is fully aware, all-seeing.
  <!--END_SECTION:quran-->
 
   
