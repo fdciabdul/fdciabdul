@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 20**
 
-which smote them with stone-hard blows of chastisement pre-ordained,
+as well as [in] Manat, the third and last [of this triad]?
  <!--END_SECTION:quran-->
 
   
