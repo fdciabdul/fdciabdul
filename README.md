@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 50**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 2**
 
-And yet they say, “Why have no miraculous signs ever been bestowed upon him from on high by his Sustainer?” Say: “Miracles are in the power of God alone; and as for me - I am but a plain warner.”
+And what could make thee conceive what it is, that Night of Destiny?
  <!--END_SECTION:quran-->
 
   
