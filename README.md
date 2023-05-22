@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 30**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 9**
 
-Thus have We raised thee [O Muhammad] as Our Apostle amidst a community [of unbelievers] before whose time [similar] communities have come and gone, so that thou might propound to them what We have revealed unto thee: for [in their ignorance] they deny the Most Gracious! Say: "He is my Sustainer. There is no deity save Him. In Him have I placed my trust, and unto Him is my recourse!"
+and then He forms him in accordance with what he is meant to be, and breathes into him of His spirit: and [thus, O men,] He endows you with hearing, and sight, and feelings as well as minds: [yet] how seldom are you grateful!
  <!--END_SECTION:quran-->
 
   
