@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 2**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 4**
 
-What will his wealth avail him, and all that he has gained?
+and who brings forth herbage,
  <!--END_SECTION:quran-->
 
   
