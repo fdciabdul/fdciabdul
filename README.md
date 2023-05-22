@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 47**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 30**
 
-Say: “No reward have I ever asked of you [out of anything] that is yours: my reward rests with none but God, and He is witness unto everything!”
+Thus have We raised thee [O Muhammad] as Our Apostle amidst a community [of unbelievers] before whose time [similar] communities have come and gone, so that thou might propound to them what We have revealed unto thee: for [in their ignorance] they deny the Most Gracious! Say: "He is my Sustainer. There is no deity save Him. In Him have I placed my trust, and unto Him is my recourse!"
  <!--END_SECTION:quran-->
 
   
