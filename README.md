@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 15**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 32**
 
-[a fire] which they shall enter on Judgment Day,
+but, on the contrary, he gave the lie to the truth and turned away [from it],
  <!--END_SECTION:quran-->
 
   
