@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 18**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 82**
 
-Such are they that have attained to righteousness;
+But nay! [On Judgment Day] these [very objects of adoration] will disavow the worship that was paid to them, and will turn against those [who had worshipped them]!
  <!--END_SECTION:quran-->
 
   
