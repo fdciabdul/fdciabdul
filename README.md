@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 9**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 6**
 
-To a happy state shall indeed attain he who causes this [self] to grow in purity,
+Unto you, your moral law, and unto me, mine!"
  <!--END_SECTION:quran-->
 
   
