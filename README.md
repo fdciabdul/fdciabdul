@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 79**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 35**
 
-and so We inflicted Our retribution on them. And, behold, both these [sinful communities] lived by a highway, [to this day] plain to see
+He who, out of His bounty, has made us alight in this abode of life enduring, wherein no struggle can assail us, and wherein no weariness can touch us!”
  <!--END_SECTION:quran-->
 
   
