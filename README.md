@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 5**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
 
-as thy Sustainer will have inspired her to do!
+"and there is nothing that could be compared with Him.
  <!--END_SECTION:quran-->
 
   
