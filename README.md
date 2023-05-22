@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 83**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 9**
 
-for when their apostles came to them with all evidence of the truth, they arrogantly exulted in whatever knowledge they [already] possessed: and [so, in the end,] they were overwhelmed by the very thing which they were wont to deride.
+and in awe [of God]
  <!--END_SECTION:quran-->
 
   
