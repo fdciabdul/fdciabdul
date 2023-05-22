@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 1**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 2**
 
-CONSIDER the daybreak
+and restraining [from evil] by a call to restraint,
  <!--END_SECTION:quran-->
 
   
