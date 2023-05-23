@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 7**
+**Surah 38: سُورَةُ صٓ (Saad) - 73**
 
-Hence, when thou art freed [from distress], remain steadfast,
+Thereupon the angels prostrated themselves, all of them together,
  <!--END_SECTION:quran-->
 
   
