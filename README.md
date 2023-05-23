@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 21**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
 
-obedience [to God’s call] and a word that could win [His] approval: for, since the matter has been resolved [by His revelation], it would be but for their own good to remain true to God.
+together with his wife, that carrier of evil tales,
  <!--END_SECTION:quran-->
 
   
