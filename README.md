@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 151**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 48**
 
-it is they, they who are truly denying the truth: and for those who deny the truth We have readied shameful suffering.
+and defer not to [the likes and dislikes of] the deniers of the truth and the hypocrites, and disregard their hurtful talk, and place thy trust in God: for none is as worthy of trust as God.
  <!--END_SECTION:quran-->
 
   
