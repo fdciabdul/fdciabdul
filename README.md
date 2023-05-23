@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 27**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 48**
 
-AND CONVEY unto them, setting forth the truth, the story of the two sons of Adam -how each offered a sacrifice, and it was accepted from one of them whereas it was not accepted from the other. [And Cain] said: "I will surely slay thee!" [Abel] replied: "Behold, God accepts only from those who are conscious of Him.
+[two gardens] of many wondrous hues.
  <!--END_SECTION:quran-->
 
   
