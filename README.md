@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 8**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 10**
 
-[As against this,] verily, those who attain to faith and do righteous deeds shall have gardens of bliss,
+and all that is [hidden] in men's hearts is bared
  <!--END_SECTION:quran-->
 
   
