@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 17**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 11**
 
-And who could be more wicked than they who attribute their own lying inventions to God or give the lie to His messages? Verily, those who are lost in sin will never attain to a happy state -
+But he would not try to ascend the steep uphill road...
  <!--END_SECTION:quran-->
 
   
