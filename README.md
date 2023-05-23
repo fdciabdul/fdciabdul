@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 58**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 7**
 
-THUS, THEN, [O Prophet,] have We made this [divine writ] easy to understand, in thine own [human] tongue, so that men might take it to heart.
+Indeed, in [the story of] Joseph and his brothers there are messages for all who search [after truth].
  <!--END_SECTION:quran-->
 
   
