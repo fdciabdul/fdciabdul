@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 20**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 7**
 
-as well as [in] Manat, the third and last [of this triad]?
+Hence, when thou art freed [from distress], remain steadfast,
  <!--END_SECTION:quran-->
 
   
