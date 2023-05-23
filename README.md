@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 9**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 14**
 
-to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.
+He has created man out of sounding clay, like pottery,
  <!--END_SECTION:quran-->
 
   
