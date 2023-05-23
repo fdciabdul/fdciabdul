@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 5**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 30**
 
-Nay, if you could but understand [it] with an understanding [born] of certainty,
+Now as for those who have attained to faith and done righteous deeds, their Sustainer will admit them to His grace: that will be [their] manifest triumph!
  <!--END_SECTION:quran-->
 
   
