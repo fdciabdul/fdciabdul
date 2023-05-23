@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 8**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 9**
 
-having put thee together in whatever form He willed [thee to have]?
+The Sustainer of the east and the west [is He]: there is no deity save Him: hence, ascribe to Him alone the power to determine thy fate,
  <!--END_SECTION:quran-->
 
   
