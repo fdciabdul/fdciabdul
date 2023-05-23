@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 48**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 21**
 
-and defer not to [the likes and dislikes of] the deniers of the truth and the hypocrites, and disregard their hurtful talk, and place thy trust in God: for none is as worthy of trust as God.
+However, ere [We condemn them to] that supreme suffering, We shall most certainly let them taste of a suffering closer at hand, so that they might [repent and] mend their ways.
  <!--END_SECTION:quran-->
 
   
