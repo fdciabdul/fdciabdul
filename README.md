@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
 
-BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
+"and from the evil of the envious when he envies."
  <!--END_SECTION:quran-->
 
   
