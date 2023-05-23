@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 14**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 9**
 
-and goblets placed ready,
+and calls the ultimate good a lie –
  <!--END_SECTION:quran-->
 
   
