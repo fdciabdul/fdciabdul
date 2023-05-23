@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 67**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 6**
 
-On that Day, [erstwhile] friends will be foes unto one another - [all] save the God-conscious.
+Lo! [With glee do] they contemplate that [fire],
  <!--END_SECTION:quran-->
 
   
