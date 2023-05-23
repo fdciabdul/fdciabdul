@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 30**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 17**
 
-AND [on that Day] the Apostle will say: “O my Sustainer! Behold, [some of] my people have come to regard this Qur’an as something [that ought to be] discarded!”
+AND, INDEED, [long] before their time did We try Pharaoh’s people [in the same way]: for there came unto them a noble apostle, [who said:]
  <!--END_SECTION:quran-->
 
   
