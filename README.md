@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 20**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 27**
 
-and when thou seest [anything that is] there thou wilt see [only] bliss and a realm transcendent
+[After some time, the father] said: “Behold, I am willing to let thee wed one of these two daughters of mine on the understanding that thou wilt remain eight years in my service; and if thou shouldst com­plete ten [years], that would be [an act of grace] from thee, for I do not want to impose any hardship on thee: [on the contrary,] thou wilt find me, if God so wills, righteous in all my dealings.”
  <!--END_SECTION:quran-->
 
   
