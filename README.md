@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 7**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 15**
 
-[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.
+[The others] answered: “You are nothing but mortal men like ourselves; moreover, the Most Gracious has never bestowed aught [of revelation] from on high. You do nothing but lie!”
  <!--END_SECTION:quran-->
 
   
