@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 5**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 7**
 
-"and from the evil of the envious when he envies."
+For, God’s are all the forces of the heavens and the earth; and God is indeed almighty, truly wise!
  <!--END_SECTION:quran-->
 
   
