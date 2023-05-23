@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 5**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 38**
 
-given to drink from a boiling spring.
+Some faces will on that Day be bright with happiness,
  <!--END_SECTION:quran-->
 
   
