@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 74**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 6**
 
-No true understanding of God have they [who err in this way]: for, verily, God is most powerful, almighty!
+[and,] verily, the hours of night the mind most strongly and speak with the clearest voice,
  <!--END_SECTION:quran-->
 
   
