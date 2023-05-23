@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 17**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
 
-Let, then, the deniers of the truth have their will: let them have their will for a little while.
+which smote them with stone-hard blows of chastisement pre-ordained,
  <!--END_SECTION:quran-->
 
   
