@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 48**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 2**
 
-and that it is He alone who frees from want and causes to possess;
+He knows all that enters the earth, and all that comes out of it, as well as all that descends from the skies, and all that ascends to them. And He alone is a dispenser of grace, truly-forgiving.
  <!--END_SECTION:quran-->
 
   
