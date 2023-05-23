@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 22**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 18**
 
-that, lo and behold, is an unfair division!
+TO THE TRUTH gave the lie [the tribe of] Ad: and how severe was the suffering which I inflicted when My warnings were disregarded!
  <!--END_SECTION:quran-->
 
   
