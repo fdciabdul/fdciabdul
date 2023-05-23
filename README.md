@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 146**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 58**
 
-They unto whom We have vouchsafed revelation aforetime know it as they know their own children: but, behold, some of them knowingly suppress the truth -
+AND, INDEED, We have propounded unto men all kinds of parables in this Qur’an. But thus it is: if thou approach them with any [such] message, those who are bent on denying the truth are sure to say, “You are but making false claims!”
  <!--END_SECTION:quran-->
 
   
