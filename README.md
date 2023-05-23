@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 15**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 22**
 
-And, indeed, We have caused such [floating vessels] to remain forever a sign [of Our grace unto man]: who, then, is willing to take it to heart?
+NO CALAMITY can ever befall the earth, and nei­ther your own selves, unless it be [laid down] in Our decree before We bring it into being: verily, all this is easy for God.
  <!--END_SECTION:quran-->
 
   
