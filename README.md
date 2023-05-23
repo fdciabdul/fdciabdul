@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 58**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 19**
 
-AND, INDEED, We have propounded unto men all kinds of parables in this Qur’an. But thus it is: if thou approach them with any [such] message, those who are bent on denying the truth are sure to say, “You are but making false claims!”
+And at the mountains, how firmly they are reared?
  <!--END_SECTION:quran-->
 
   
