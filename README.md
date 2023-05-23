@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 89**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 68**
 
-Replied he: "Do you remember what you did to Joseph and his brother when you were still unaware [of right and wrong]?"
+[And yet] they assert, "God has taken unto Himself a son!" Limitless is He in His glory! Self-sufficient is He: unto Him belongs all that is in the heavens and all that is on earth! No evidence whatever have you for this [assertion]! Would you ascribe unto God something which you cannot know?
  <!--END_SECTION:quran-->
 
   
