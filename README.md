@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 31**
 
-Let them, therefore, worship the Sustainer of this Temple;
+and made me blessed wherever I may be; and He has enjoined upon me prayer and charity as long as I live,
  <!--END_SECTION:quran-->
 
   
