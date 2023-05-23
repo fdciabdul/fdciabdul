@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 86**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 13**
 
-verily, thy Sustainer is the all-knowing Creator of all things!
+O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.
  <!--END_SECTION:quran-->
 
   
