@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 68**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 8**
 
-[And yet] they assert, "God has taken unto Himself a son!" Limitless is He in His glory! Self-sufficient is He: unto Him belongs all that is in the heavens and all that is on earth! No evidence whatever have you for this [assertion]! Would you ascribe unto God something which you cannot know?
+Verily, [O men,] you are deeply at variance as to what to believe:
  <!--END_SECTION:quran-->
 
   
