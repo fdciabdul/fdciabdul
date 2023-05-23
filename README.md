@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 1**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 15**
 
-A Surah [is this] which We have bestowed from on high, and which We have laid down in plain terms; and in it have We bestowed from on high messages which are clear [in themselves], so that you might keep [them] in mind.
+And, indeed, We have caused such [floating vessels] to remain forever a sign [of Our grace unto man]: who, then, is willing to take it to heart?
  <!--END_SECTION:quran-->
 
   
