@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 23**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 9**
 
-for, by the Sustainer of heaven and earth, this [life after death] is the very truth - as true as that you are endowed with speech!
+to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.
  <!--END_SECTION:quran-->
 
   
