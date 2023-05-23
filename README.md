@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 46**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 14**
 
-THUS, INDEED, have We sent Moses with Our messages unto Pharaoh and his great ones; and he said: “Behold, I am an apostle of the Sustainer of all the worlds!”
+and goblets placed ready,
  <!--END_SECTION:quran-->
 
   
