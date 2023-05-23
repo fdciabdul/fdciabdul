@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 18**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 115**
 
-TO THE TRUTH gave the lie [the tribe of] Ad: and how severe was the suffering which I inflicted when My warnings were disregarded!
+And whatever good they do, they shall never be denied the reward thereof: for, God has full knowledge of those who are conscious of Him.
  <!--END_SECTION:quran-->
 
   
