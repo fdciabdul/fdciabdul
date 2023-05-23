@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 10**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 3**
 
-And what could make thee conceive what that [abyss] will be?
+Let them, therefore, worship the Sustainer of this Temple;
  <!--END_SECTION:quran-->
 
   
