@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 108**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 5**
 
-therein will they abide, [and] never will they desire any change therefrom.
+And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.
  <!--END_SECTION:quran-->
 
   
