@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 27**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 48**
 
-Yet in the end, when they shall see that [fulfilment] close at hand, the faces of those who were bent on denying the truth will be stricken with grief; and they will be told, "This it is that you were [so derisively] calling for!"
+and that it is He alone who frees from want and causes to possess;
  <!--END_SECTION:quran-->
 
   
