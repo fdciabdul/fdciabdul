@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 31**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 4**
 
-[And] tell [those of] My servants who have attained to faith that they should be constant in prayer and spend [in Our way], secretly and openly, out of what We provide for them as sustenance, ere there come a Day when there will be no bargaining, and no mutual befriending.
+NOW WHEN you meet [in war] those who are bent on denying the truth, smite their necks until you overcome them fully, and then tighten their bonds; but thereafter [set them free,] either by an act of grace or against ransom, so that the burden of war may be lifted: thus [shall it be]. And [know that] had God so willed, He could indeed punish them [Himself]; but [He wills you to struggle] so as to test you [all] by means of one another. And as for those who are slain in God’s cause, never will He let their deeds go to waste:
  <!--END_SECTION:quran-->
 
   
