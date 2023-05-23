@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 8**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 5**
 
-[And] some faces will on that Day shine with bliss,
+Nay, if you could but understand [it] with an understanding [born] of certainty,
  <!--END_SECTION:quran-->
 
   
