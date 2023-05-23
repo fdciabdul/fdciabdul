@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 222**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 17**
 
-They descend upon all sinful self-deceivers
+And who could be more wicked than they who attribute their own lying inventions to God or give the lie to His messages? Verily, those who are lost in sin will never attain to a happy state -
  <!--END_SECTION:quran-->
 
   
