@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 2**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
 
-He knows all that enters the earth, and all that comes out of it, as well as all that descends from the skies, and all that ascends to them. And He alone is a dispenser of grace, truly-forgiving.
+BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
  <!--END_SECTION:quran-->
 
   
