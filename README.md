@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 7**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 8**
 
-Hence, when thou art freed [from distress], remain steadfast,
+In this, behold, there is a message [unto men], even though most of them will not believe [in it].
  <!--END_SECTION:quran-->
 
   
