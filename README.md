@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 38**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 43**
 
-Some faces will on that Day be bright with happiness,
+Hast thou ever considered [the kind of man] who makes his own desires his deity? Couldst thou, then, [O Prophet,] be held responsible for him?
  <!--END_SECTION:quran-->
 
   
