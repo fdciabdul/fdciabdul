@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 2**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 1**
 
-and the night when it grows still and dark.
+A Surah [is this] which We have bestowed from on high, and which We have laid down in plain terms; and in it have We bestowed from on high messages which are clear [in themselves], so that you might keep [them] in mind.
  <!--END_SECTION:quran-->
 
   
