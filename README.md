@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 31**
+**Surah 12: سُورَةُ يُوسُفَ (Yusuf) - 89**
 
-the like of what happened to Noah’s people, and to [the tribes of] Ad and Thamud and those who came after them! And, withal, God does not will any wrong for His crea­tures.
+Replied he: "Do you remember what you did to Joseph and his brother when you were still unaware [of right and wrong]?"
  <!--END_SECTION:quran-->
 
   
