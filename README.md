@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 27**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 56**
 
-And [as for Abraham,] We bestowed upon him Isaac and [Isaac’s son] Jacob, and caused pro­phethood and revelation to continue among his offspring. And We vouchsafed him his reward in this world; and, verily, in the life to come [too] he shall find himself among the righteous.
+Behold, I have placed my trust in God, [who is] my Sustainer as well as your Sustainer: for there is no living creature which He does not hold by its forelock. Verily, straight is my Sustainer's way!
  <!--END_SECTION:quran-->
 
   
