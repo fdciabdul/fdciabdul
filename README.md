@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 1**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 17**
 
-WOE unto every slanderer, fault-finder!
+Let, then, the deniers of the truth have their will: let them have their will for a little while.
  <!--END_SECTION:quran-->
 
   
