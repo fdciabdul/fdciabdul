@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 75**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 25**
 
-they are unable to succour their devotees, even though to them they may [appear to] be hosts drawn up [for succour].
+AND THUS it is [with most people]: if thou ask them, “Who is it that has created the heavens and the earth?” - they will surely answer, “God.” Say: “[Then you ought to know that] all praise is due to God!”- for most of them do not know [what this implies].
  <!--END_SECTION:quran-->
 
   
