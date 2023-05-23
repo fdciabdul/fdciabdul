@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 11**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 75**
 
-But he would not try to ascend the steep uphill road...
+they are unable to succour their devotees, even though to them they may [appear to] be hosts drawn up [for succour].
  <!--END_SECTION:quran-->
 
   
