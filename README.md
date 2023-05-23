@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 8**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 21**
 
-verily, it will close in upon them
+obedience [to God’s call] and a word that could win [His] approval: for, since the matter has been resolved [by His revelation], it would be but for their own good to remain true to God.
  <!--END_SECTION:quran-->
 
   
