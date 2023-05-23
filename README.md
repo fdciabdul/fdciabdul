@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 3**
+**Surah 24: سُورَةُ النُّورِ (An-Noor) - 44**
 
-Verily, he that hates thee has indeed been cut off [from all that is good]!
+It is God who causes night and day to alter­nate: in this [too], behold, there is surely a lesson for all who have eyes to see!
  <!--END_SECTION:quran-->
 
   
