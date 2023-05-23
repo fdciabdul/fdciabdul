@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 17**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 31**
 
-and then let him summon [to his aid] the counsels of his own [spurious] wisdom,
+[And] tell [those of] My servants who have attained to faith that they should be constant in prayer and spend [in Our way], secretly and openly, out of what We provide for them as sustenance, ere there come a Day when there will be no bargaining, and no mutual befriending.
  <!--END_SECTION:quran-->
 
   
