@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 15**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 4**
 
-so that We might bring forth thereby grain, and herbs,
+Verily, [O men,] you aim at most divergent ends!
  <!--END_SECTION:quran-->
 
   
