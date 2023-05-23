@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 51**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 23**
 
-and Thamud, leaving no trace [of them],
+for, by the Sustainer of heaven and earth, this [life after death] is the very truth - as true as that you are endowed with speech!
  <!--END_SECTION:quran-->
 
   
