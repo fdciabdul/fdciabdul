@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 22**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 5**
 
-NO CALAMITY can ever befall the earth, and nei­ther your own selves, unless it be [laid down] in Our decree before We bring it into being: verily, all this is easy for God.
+given to drink from a boiling spring.
  <!--END_SECTION:quran-->
 
   
