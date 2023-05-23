@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 1**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 67**
 
-WHEN GOD'S SUCCOUR comes, and victory,
+On that Day, [erstwhile] friends will be foes unto one another - [all] save the God-conscious.
  <!--END_SECTION:quran-->
 
   
