@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 30**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 18**
 
-Now as for those who have attained to faith and done righteous deeds, their Sustainer will admit them to His grace: that will be [their] manifest triumph!
+Is, then, he who [in his earthly life] was a believer to be compared with one who was in­iquitous? [Nay,] these two are not equal!
  <!--END_SECTION:quran-->
 
   
