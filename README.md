@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 13**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 68**
 
-O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.
+And who could be more wicked than he who attributes his own lying inventions to God, or gives the lie to the truth when it comes unto him [through revelation]? Is not hell the [proper] abode for all who [thus] deny the truth?
  <!--END_SECTION:quran-->
 
   
