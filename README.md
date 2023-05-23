@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 18**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 3**
 
-Is, then, he who [in his earthly life] was a believer to be compared with one who was in­iquitous? [Nay,] these two are not equal!
+Most loathsome is it in the sight of God that you say what you do not do!
  <!--END_SECTION:quran-->
 
   
