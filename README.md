@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 8**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 6**
 
-In this, behold, there is a message [unto men], even though most of them will not believe [in it].
+on the Day when God will raise them all from the dead and will make them truly understand all that they did [in life]: God will have taken [all of] it into account, even though they [themselves] may have forgotten it - for God is wit­ness unto everything.
  <!--END_SECTION:quran-->
 
   
