@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 8**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 20**
 
-Verily, [O men,] you are deeply at variance as to what to believe:
+and when thou seest [anything that is] there thou wilt see [only] bliss and a realm transcendent
  <!--END_SECTION:quran-->
 
   
