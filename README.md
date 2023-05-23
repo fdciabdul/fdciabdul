@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 81**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 6**
 
-till the Day the time whereof is known [only to Me].”
+Has He not found thee an orphan, and given thee shelter?
  <!--END_SECTION:quran-->
 
   
