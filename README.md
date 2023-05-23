@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 12**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 7**
 
-and the earth, bursting forth with plants!
+[But] it may well be that God will bring about [mutual] affection between you [O believers] and some of those whom you [now] face as enemies: for, God is all-powerful - and God is much-forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
