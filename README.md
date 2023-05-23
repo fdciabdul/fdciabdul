@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 48**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 9**
 
-[two gardens] of many wondrous hues.
+to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.
  <!--END_SECTION:quran-->
 
   
