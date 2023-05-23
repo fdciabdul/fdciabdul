@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 32**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 74**
 
-[And remember that] it is God who has created the heavens and the earth, and who sends down water from the sky and thereby brings forth [all manner] of fruits for your sustenance; and who has made ships subservient to. you, so that they may sail through the sea at His behest; and has made the rivers subservient [to His laws, so that they be of use] to you;
+No true understanding of God have they [who err in this way]: for, verily, God is most powerful, almighty!
  <!--END_SECTION:quran-->
 
   
