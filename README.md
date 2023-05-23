@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 58**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 23**
 
-the while We rained a rain [of destruction] upon the others: and dire is such rain upon all who let themselves be warned [to no avail]
+Thus have We determined [the nature of man's creation]: and excellent indeed is Our power to determine [what is to be]!
  <!--END_SECTION:quran-->
 
   
