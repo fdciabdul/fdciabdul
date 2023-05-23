@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 9**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 37**
 
-and calls the ultimate good a lie –
+[for,] if He were to demand of you all of them, and urge you, you would niggardly cling [to them], and so He would [but] bring out your moral failings.
  <!--END_SECTION:quran-->
 
   
