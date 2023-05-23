@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 9**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 58**
 
-to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.
+the while We rained a rain [of destruction] upon the others: and dire is such rain upon all who let themselves be warned [to no avail]
  <!--END_SECTION:quran-->
 
   
