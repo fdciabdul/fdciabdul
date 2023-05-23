@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 18**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 17**
 
-and would pray for forgiveness from their innermost hearts;
+[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,
  <!--END_SECTION:quran-->
 
   
