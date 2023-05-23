@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 115**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 13**
 
-And whatever good they do, they shall never be denied the reward thereof: for, God has full knowledge of those who are conscious of Him.
+who do not believe in it, although the way which those [evildoers] of olden times had to go has long been within their ken.
  <!--END_SECTION:quran-->
 
   
