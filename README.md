@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 33**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
 
-He it is who has sent forth His Apostle with the [task of spreading] guidance and the religion of truth, to the end that He may cause it to prevail over all [false] religion -however hateful this may be to those who ascribe divinity to aught beside God.
+"and there is nothing that could be compared with Him.
  <!--END_SECTION:quran-->
 
   
