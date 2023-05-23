@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 23**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 8**
 
-Thus have We determined [the nature of man's creation]: and excellent indeed is Our power to determine [what is to be]!
+verily, it will close in upon them
  <!--END_SECTION:quran-->
 
   
