@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 35**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 27**
 
-And let them know, those who call Our mes­sages in question, that for them there is no escape.
+AND CONVEY unto them, setting forth the truth, the story of the two sons of Adam -how each offered a sacrifice, and it was accepted from one of them whereas it was not accepted from the other. [And Cain] said: "I will surely slay thee!" [Abel] replied: "Behold, God accepts only from those who are conscious of Him.
  <!--END_SECTION:quran-->
 
   
