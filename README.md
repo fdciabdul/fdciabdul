@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 146**
 
-which smote them with stone-hard blows of chastisement pre-ordained,
+They unto whom We have vouchsafed revelation aforetime know it as they know their own children: but, behold, some of them knowingly suppress the truth -
  <!--END_SECTION:quran-->
 
   
