@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 14**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 43**
 
-He has created man out of sounding clay, like pottery,
+And [then,] indeed, after We had destroyed those earlier generations [of sinners], We vouchsafed unto Moses [Our] revelation as a means of insight for men, and as a guidance and grace, so that they might bethink themselves [of Us].
  <!--END_SECTION:quran-->
 
   
