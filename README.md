@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 4**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 10**
 
-Verily, [O men,] you aim at most divergent ends!
+And what could make thee conceive what that [abyss] will be?
  <!--END_SECTION:quran-->
 
   
