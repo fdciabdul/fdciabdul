@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 56**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 51**
 
-Behold, I have placed my trust in God, [who is] my Sustainer as well as your Sustainer: for there is no living creature which He does not hold by its forelock. Verily, straight is my Sustainer's way!
+and Thamud, leaving no trace [of them],
  <!--END_SECTION:quran-->
 
   
