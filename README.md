@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 15**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 17**
 
-[The others] answered: “You are nothing but mortal men like ourselves; moreover, the Most Gracious has never bestowed aught [of revelation] from on high. You do nothing but lie!”
+and then let him summon [to his aid] the counsels of his own [spurious] wisdom,
  <!--END_SECTION:quran-->
 
   
