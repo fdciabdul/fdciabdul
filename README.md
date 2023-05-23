@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 9**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 17**
 
-The Sustainer of the east and the west [is He]: there is no deity save Him: hence, ascribe to Him alone the power to determine thy fate,
+"Go unto Pharaoh - for, verily, he has transgressed all bounds of what is right -
  <!--END_SECTION:quran-->
 
   
