@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 13**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 8**
 
-who do not believe in it, although the way which those [evildoers] of olden times had to go has long been within their ken.
+[And] some faces will on that Day shine with bliss,
  <!--END_SECTION:quran-->
 
   
