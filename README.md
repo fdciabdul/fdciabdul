@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 4**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 22**
 
-"and there is nothing that could be compared with Him.
+that, lo and behold, is an unfair division!
  <!--END_SECTION:quran-->
 
   
