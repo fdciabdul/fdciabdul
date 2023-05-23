@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 6**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 33**
 
-Lo! [With glee do] they contemplate that [fire],
+He it is who has sent forth His Apostle with the [task of spreading] guidance and the religion of truth, to the end that He may cause it to prevail over all [false] religion -however hateful this may be to those who ascribe divinity to aught beside God.
  <!--END_SECTION:quran-->
 
   
