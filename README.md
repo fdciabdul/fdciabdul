@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 6**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 12**
 
-[and,] verily, the hours of night the mind most strongly and speak with the clearest voice,
+and the earth, bursting forth with plants!
  <!--END_SECTION:quran-->
 
   
