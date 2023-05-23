@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 24: سُورَةُ النُّورِ (An-Noor) - 44**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 7**
 
-It is God who causes night and day to alter­nate: in this [too], behold, there is surely a lesson for all who have eyes to see!
+Hence, when thou art freed [from distress], remain steadfast,
  <!--END_SECTION:quran-->
 
   
