@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 31**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 22**
 
-and made me blessed wherever I may be; and He has enjoined upon me prayer and charity as long as I live,
+for, God has created the heavens and the earth in accordance with [an inner] truth, and [has therefore willed] that every human being shall be recompensed for what he has earned and none shall be wronged.
  <!--END_SECTION:quran-->
 
   
