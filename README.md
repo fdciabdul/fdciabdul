@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 17**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 108**
 
-AND, INDEED, [long] before their time did We try Pharaoh’s people [in the same way]: for there came unto them a noble apostle, [who said:]
+therein will they abide, [and] never will they desire any change therefrom.
  <!--END_SECTION:quran-->
 
   
