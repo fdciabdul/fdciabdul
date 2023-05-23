@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 21**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 1**
 
-However, ere [We condemn them to] that supreme suffering, We shall most certainly let them taste of a suffering closer at hand, so that they might [repent and] mend their ways.
+ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!
  <!--END_SECTION:quran-->
 
   
