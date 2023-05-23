@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 68**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 31**
 
-And who could be more wicked than he who attributes his own lying inventions to God, or gives the lie to the truth when it comes unto him [through revelation]? Is not hell the [proper] abode for all who [thus] deny the truth?
+the like of what happened to Noah’s people, and to [the tribes of] Ad and Thamud and those who came after them! And, withal, God does not will any wrong for His crea­tures.
  <!--END_SECTION:quran-->
 
   
