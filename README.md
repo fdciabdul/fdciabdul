@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 27**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 9**
 
-Behold, they were not expecting to be called to account,
+Say: “I am not the first of [God’s] apostles; and [like all of them,] I do not know what will be done with me or with you: for I am nothing but a plain warner.”
  <!--END_SECTION:quran-->
 
   
