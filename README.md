@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 15**
 
-together with his wife, that carrier of evil tales,
+so that We might bring forth thereby grain, and herbs,
  <!--END_SECTION:quran-->
 
   
