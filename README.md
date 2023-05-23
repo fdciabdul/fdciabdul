@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 6**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 27**
 
-Has He not found thee an orphan, and given thee shelter?
+Behold, they were not expecting to be called to account,
  <!--END_SECTION:quran-->
 
   
