@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 6**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 18**
 
-on the Day when God will raise them all from the dead and will make them truly understand all that they did [in life]: God will have taken [all of] it into account, even though they [themselves] may have forgotten it - for God is wit­ness unto everything.
+and would pray for forgiveness from their innermost hearts;
  <!--END_SECTION:quran-->
 
   
