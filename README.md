@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 37**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 16**
 
-[for,] if He were to demand of you all of them, and urge you, you would niggardly cling [to them], and so He would [but] bring out your moral failings.
+Say: “Do you, perchance, [want to] inform God of [the nature of] your faith although God knows all that is in the heavens and all that is on earth? Indeed, God has full knowledge of every­thing!”
  <!--END_SECTION:quran-->
 
   
