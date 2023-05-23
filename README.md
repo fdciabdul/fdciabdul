@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 17**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 8**
 
-[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,
+[As against this,] verily, those who attain to faith and do righteous deeds shall have gardens of bliss,
  <!--END_SECTION:quran-->
 
   
