@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 6**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 35**
 
-As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.
+And let them know, those who call Our mes­sages in question, that for them there is no escape.
  <!--END_SECTION:quran-->
 
   
