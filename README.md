@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 4**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 151**
 
-NOW WHEN you meet [in war] those who are bent on denying the truth, smite their necks until you overcome them fully, and then tighten their bonds; but thereafter [set them free,] either by an act of grace or against ransom, so that the burden of war may be lifted: thus [shall it be]. And [know that] had God so willed, He could indeed punish them [Himself]; but [He wills you to struggle] so as to test you [all] by means of one another. And as for those who are slain in God’s cause, never will He let their deeds go to waste:
+it is they, they who are truly denying the truth: and for those who deny the truth We have readied shameful suffering.
  <!--END_SECTION:quran-->
 
   
