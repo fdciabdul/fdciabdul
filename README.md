@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 17**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 46**
 
-"Go unto Pharaoh - for, verily, he has transgressed all bounds of what is right -
+THUS, INDEED, have We sent Moses with Our messages unto Pharaoh and his great ones; and he said: “Behold, I am an apostle of the Sustainer of all the worlds!”
  <!--END_SECTION:quran-->
 
   
