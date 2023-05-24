@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 211**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 23**
 
-Ask the children of Israel how many a clear message We have given them! And if one alters God's blessed message after it has reached him - verily, God is severe in retribution!
+Which, then, of your Sustainer’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
