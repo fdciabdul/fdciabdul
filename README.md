@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 47**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
 
-[and] exclaimed: “We have come to believe in the Sustainer of all the worlds,
+"He begets not, and neither is He begotten;
  <!--END_SECTION:quran-->
 
   
