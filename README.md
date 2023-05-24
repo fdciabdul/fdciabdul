@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 9**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 1**
 
-Yet thus it is [with most people]: if thou ask them, “Who is it that has created the heavens and the earth?” - they will surely answer, “The Almighty, the All-Knowing has created them.”
+OH, the sudden calamity!
  <!--END_SECTION:quran-->
 
   
