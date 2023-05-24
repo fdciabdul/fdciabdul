@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 48**
+**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
 
-Indeed, even before this time have they tried to stir up discord and devised all manner of plots against thee, [O Prophet,] until the truth was revealed and God's will became manifest, however hateful this may have been to them.
+BEHOLD, We have bestowed upon thee good in abundance:
  <!--END_SECTION:quran-->
 
   
