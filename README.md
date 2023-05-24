@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 7**
 
-extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
+which will rise over the [guilty] hearts:
  <!--END_SECTION:quran-->
 
   
