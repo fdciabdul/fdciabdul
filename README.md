@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 29**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 84**
 
-O you who have attained to faith! If you remain conscious of God. He will endow you with a standard by which to discern the true from the false, and will efface your bad deeds, and will forgive you your sins: for God is limitless in His great bounty.
+And how could we fail to believe in God and in whatever truth has come unto us, when we so fervently desire that our Sustainer count us among the righteous?"
  <!--END_SECTION:quran-->
 
   
