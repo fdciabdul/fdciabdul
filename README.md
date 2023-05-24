@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 7**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 15**
 
-which will rise over the [guilty] hearts:
+of an orphan near of kin,
  <!--END_SECTION:quran-->
 
   
