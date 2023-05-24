@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 11**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 58**
 
-noble, recording,
+peace and fulfillment through the word of a Sustainer who dispenses all grace.
  <!--END_SECTION:quran-->
 
   
