@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 3**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 9**
 
-and this land secure!
+and We have made your sleep [a symbol of] death
  <!--END_SECTION:quran-->
 
   
