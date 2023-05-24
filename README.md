@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 6**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 2**
 
-In them, indeed, you have a good example for everyone who looks forward [with hope and awe] to God and the Last Day. And if any turns away, [let him know that] God is truly self-sufficient, the One to whom all praise is due."
+O YOU who have attained to faith! Why do you say one thing and do another?
  <!--END_SECTION:quran-->
 
   
