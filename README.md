@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 64**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 30**
 
-O Prophet! God is enough for thee and those of the believers who follow thee!
+AND SO, set thy face steadfastly towards the [one ever-true] faith, turning away from all that is false, in accordance with the natural disposition which God has instilled into man: [for,] not to allow any change to corrupt what God has thus created this is the [purpose of the one] ever-true faith; but most people know it not.
  <!--END_SECTION:quran-->
 
   
