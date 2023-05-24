@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 94**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 15**
 
-AND NEVER YET have We sent a prophet unto any community without trying its people with misfortune and hardship, so that they might humble themselves;
+[To both kinds of your enemies, O believers, is bound to happen] the like of [what happened to] those who, a short while before them, had to taste the evil that came from their own doings, with [yet more] grievous suffering awaiting them [in the life to come]:
  <!--END_SECTION:quran-->
 
   
