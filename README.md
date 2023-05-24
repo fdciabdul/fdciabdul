@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 13**
 
-which smote them with stone-hard blows of chastisement pre-ordained,
+Behold, [in the life to come] the truly virtuous: will indeed be in bliss,
  <!--END_SECTION:quran-->
 
   
