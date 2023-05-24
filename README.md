@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 9**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 35**
 
-HAST THOU ever considered him who tries to prevent
+that Day on which they will not [be able to] utter a word,
  <!--END_SECTION:quran-->
 
   
