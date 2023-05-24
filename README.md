@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 3**
 
-and thou seest people enter God's religion in hosts,
+and [to cause this message to spread] from them unto other people as soon as they come into contact with them: for He alone is almighty, truly wise!
  <!--END_SECTION:quran-->
 
   
