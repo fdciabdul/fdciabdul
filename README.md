@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 47**
 
-in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
+[and] exclaimed: “We have come to believe in the Sustainer of all the worlds,
  <!--END_SECTION:quran-->
 
   
