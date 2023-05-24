@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 1**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 62**
 
-EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,
+And He it is who causes the night and the day to succeed one another, [revealing Himself in His works] unto him who has the will to take thought - that is has the will to be grateful.
  <!--END_SECTION:quran-->
 
   
