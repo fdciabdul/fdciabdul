@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 58**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 33**
 
-peace and fulfillment through the word of a Sustainer who dispenses all grace.
+Or do they say, “He himself has composed this [message]”? Nay, but they are not willing to believe!
  <!--END_SECTION:quran-->
 
   
