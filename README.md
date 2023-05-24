@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 62**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 6**
 
-No empty talk will they hear there-nothing but [tidings of] inner soundness and peace; and there will they have their sustenance by day and by night:
+verily, with every hardship comes ease!
  <!--END_SECTION:quran-->
 
   
