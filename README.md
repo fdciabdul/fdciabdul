@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 9**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 16**
 
-in endless columns!
+a sovereign doer of whatever He wills.
  <!--END_SECTION:quran-->
 
   
