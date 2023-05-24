@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 3**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 12**
 
-Consider the creation of the male and the female!
+[And] they add, "That, then, would be a return with loss!"
  <!--END_SECTION:quran-->
 
   
