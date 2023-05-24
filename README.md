@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 2**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 31**
 
-O YOU who have attained to faith! Why do you say one thing and do another?
+We are close unto you in the life of this world and [will be so] in the life to come; and in that [life to come] you shall have all that your souls may desire, and in it you shall have all that you ever prayed for,
  <!--END_SECTION:quran-->
 
   
