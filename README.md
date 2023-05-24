@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 1**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 15**
 
-YOU ARE OBSESSED by greed for more and more
+as for those who attained to faith and did righteous deeds, they shall be made happy in a garden of delight;
  <!--END_SECTION:quran-->
 
   
