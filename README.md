@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 48**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 18**
 
-for, behold, it has been revealed to us that [in the life to come] suffering shall befall all who give the lie to the truth and turn away [from it]!"'
+[the Day] on which the skies shall be rent asunder, [and] His promise [of resurrection] fulfilled?
  <!--END_SECTION:quran-->
 
   
