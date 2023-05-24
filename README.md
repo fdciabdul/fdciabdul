@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 3**
 
-"He begets not, and neither is He begotten;
+and this land secure!
  <!--END_SECTION:quran-->
 
   
