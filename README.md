@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 12**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 39**
 
-[And] they add, "That, then, would be a return with loss!"
+And fight against them until there is no more oppression and all worship is devoted to God alone. And if they desist-behold, God sees all that they do;
  <!--END_SECTION:quran-->
 
   
