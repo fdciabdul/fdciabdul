@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 15**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 5**
 
-[To both kinds of your enemies, O believers, is bound to happen] the like of [what happened to] those who, a short while before them, had to taste the evil that came from their own doings, with [yet more] grievous suffering awaiting them [in the life to come]:
+Thus, as for him who gives [to others] and is conscious of God,
  <!--END_SECTION:quran-->
 
   
