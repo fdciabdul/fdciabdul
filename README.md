@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 6**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 139**
 
-verily, with every hardship comes ease!
+And they say, "All that is in the wombs of such-and-such cattle is reserved for our males and forbidden to our women; but if it be stillborn, then both may have their share thereof." [God] will requite them for all that they [falsely] attribute [to Him]: behold, He is wise, all-knowing.
  <!--END_SECTION:quran-->
 
   
