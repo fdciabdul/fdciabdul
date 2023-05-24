@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 68**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 64**
 
-O our Sustainer! Give them double suffering, and banish them utterly from Thy grace!”
+O Prophet! God is enough for thee and those of the believers who follow thee!
  <!--END_SECTION:quran-->
 
   
