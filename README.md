@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 11**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 14**
 
-And for those who have attained to faith God has propounded a parable in [the story of] Pharaoh's wife as she prayed "O my Sustainer! Build Thou for me a mansion in the paradise [that is] with Thee, and save me from Pharaoh and his doings, and save me, from all evildoing folk!
+whereas, behold, the wicked will indeed be in a blazing fire –
  <!--END_SECTION:quran-->
 
   
