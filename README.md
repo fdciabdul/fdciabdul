@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 2**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 36**
 
-How awesome the sudden calamity!
+for, verily, O my Sustainer, these [false objects of worship] have led many people astray! "Hence, [only] he who follows me [in this my faith] ~ is truly of me; and as for him who disobeys me - Thou art, verily, much-forgiving, a dispenser of grace!
  <!--END_SECTION:quran-->
 
   
