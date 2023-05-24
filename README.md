@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 25**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 10**
 
-Said [Pharaoh] unto those around him: “Did you hear [what he said]?”
+[the while] God has readied for them [yet more] suffering severe [in the life to come] Hence, remain conscious of God, O you who are endowed with insight - [you] who have attained to faith! God has indeed bestowed on you a reminder from on high:
  <!--END_SECTION:quran-->
 
   
