@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 30**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 94**
 
-Thereupon the command will go forth:] "Lay hold of him, and shackle him,
+AND NEVER YET have We sent a prophet unto any community without trying its people with misfortune and hardship, so that they might humble themselves;
  <!--END_SECTION:quran-->
 
   
