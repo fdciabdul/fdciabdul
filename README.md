@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 13**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 9**
 
-O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.
+HAST THOU ever considered him who tries to prevent
  <!--END_SECTION:quran-->
 
   
