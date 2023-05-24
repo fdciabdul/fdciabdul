@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 1**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 1**
 
-ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!
+ALL PRAISE is due to God, Originator of the heavens and the earth, who causes the angels to be (His) message-bearers, endowed with wings, two, or three, or four. [Unceasingly] He adds to His creation whatever He wills: for, verily, God has the power to will anything.
  <!--END_SECTION:quran-->
 
   
