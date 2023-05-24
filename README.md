@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 16**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 18**
 
-a sovereign doer of whatever He wills.
+of Pharaoh, and of [the tribe of] Thamud?
  <!--END_SECTION:quran-->
 
   
