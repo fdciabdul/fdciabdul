@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 10**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
 
-[the while] God has readied for them [yet more] suffering severe [in the life to come] Hence, remain conscious of God, O you who are endowed with insight - [you] who have attained to faith! God has indeed bestowed on you a reminder from on high:
+extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
  <!--END_SECTION:quran-->
 
   
