@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 40**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-Answered he who was illumined by revela­tion: “[Nay,] as for me - I shall bring it to thee ere the twinkling of thy eye ceases!” And when he saw it truly before him, he exclaimed: “This is [an outcome] of my Sustainer’s bounty, to test me as to whether I am grateful or ungrateful! However, he who is grateful [to God] is but grateful for his own good; and he who is ungrate­ful [should know that], verily, my Sustainer is self-sufficient, most generous in giving!”
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
