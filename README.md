@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 27**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 1**
 
-ART THOU NOT aware that God sends down water from the skies, whereby We bring forth fruits of many hues - just as in the mountains there are streaks of white and red of various shades, as well as (others) raven-black,
+YOU ARE OBSESSED by greed for more and more
  <!--END_SECTION:quran-->
 
   
