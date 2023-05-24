@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 42**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 27**
 
-[and bethink thyself, too, of] the Day on which all [human beings] will in truth hear the final blast - that Day of [their] coming-forth [from death].
+ART THOU NOT aware that God sends down water from the skies, whereby We bring forth fruits of many hues - just as in the mountains there are streaks of white and red of various shades, as well as (others) raven-black,
  <!--END_SECTION:quran-->
 
   
