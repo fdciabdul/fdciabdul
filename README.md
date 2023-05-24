@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 27**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 1**
 
-[But unto the righteous God will say,] "O thou human being that hast attained to inner peace!
+CONSIDER the fig and the olive,
  <!--END_SECTION:quran-->
 
   
