@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 14**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 1**
 
-whereas, behold, the wicked will indeed be in a blazing fire –
+ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!
  <!--END_SECTION:quran-->
 
   
