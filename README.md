@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 15**
 
-In the end you will indeed, most surely, behold it with the eye of certainty:
+Could We, then, be [thought of as being] worn out by the first creation? Nay - but some people are [still] lost in doubt about [the possibility of] a new creation!
  <!--END_SECTION:quran-->
 
   
