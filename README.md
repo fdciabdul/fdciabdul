@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 6**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 40**
 
-Guide us the straight way.
+"[And thou wert under Mine eye] when thy sister went forth and said [to Pharaoh's people], 'Shall I guide you unto [a woman] who might take charge of him?'' And so We returned thee unto thy mother, so that her eye be gladdened, and that she might not sorrow [any longer]. "And [when thou camest of age, thou didst slay a man: but We did save thee from all grief, although We tried thee with various trials. "And then thou didst sojourn for years among the people of Madyan; and now thou hast come [here] as ordained [by Me], O Moses:
  <!--END_SECTION:quran-->
 
   
