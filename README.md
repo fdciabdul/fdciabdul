@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 3**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 9**
 
-[In the life to come] he shall have to endure a fire fiercely glowing;
+O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!
  <!--END_SECTION:quran-->
 
   
