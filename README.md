@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 18**
+**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 48**
 
-of Pharaoh, and of [the tribe of] Thamud?
+Indeed, even before this time have they tried to stir up discord and devised all manner of plots against thee, [O Prophet,] until the truth was revealed and God's will became manifest, however hateful this may have been to them.
  <!--END_SECTION:quran-->
 
   
