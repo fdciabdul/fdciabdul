@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 3**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 6**
 
-wherein there are ordinances of ever-true soundness and clarity.
+In them, indeed, you have a good example for everyone who looks forward [with hope and awe] to God and the Last Day. And if any turns away, [let him know that] God is truly self-sufficient, the One to whom all praise is due."
  <!--END_SECTION:quran-->
 
   
