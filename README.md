@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 13**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 27**
 
-Behold, [in the life to come] the truly virtuous: will indeed be in bliss,
+[But unto the righteous God will say,] "O thou human being that hast attained to inner peace!
  <!--END_SECTION:quran-->
 
   
