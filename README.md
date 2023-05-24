@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 1**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 6**
 
-ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!
+And, lo Moses spoke [thus] unto his people: "Remember the blessings which God bestowed upon you when He saved you from Pharaoh's people who afflicted you with cruel suffering, and slaughtered your sons, and spared [only] your women -which was an awesome trial from your Sustainer.
  <!--END_SECTION:quran-->
 
   
