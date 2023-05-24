@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 33**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 4**
 
-Or do they say, “He himself has composed this [message]”? Nay, but they are not willing to believe!
+And [have We not] raised thee high in dignity?
  <!--END_SECTION:quran-->
 
   
