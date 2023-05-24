@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 29**
 
-And, behold, with every hardship comes ease:
+O you who have attained to faith! If you remain conscious of God. He will endow you with a standard by which to discern the true from the false, and will efface your bad deeds, and will forgive you your sins: for God is limitless in His great bounty.
  <!--END_SECTION:quran-->
 
   
