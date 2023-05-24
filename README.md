@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 1**
 
-BEHOLD, We have bestowed upon thee good in abundance:
+ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!
  <!--END_SECTION:quran-->
 
   
