@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 31**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 42**
 
-“O our people! Respond to God’s call, and have faith in Him: He will forgive you [whatever is past] of your sins, and deliver you from grievous suffering [in the life to come].
+[and bethink thyself, too, of] the Day on which all [human beings] will in truth hear the final blast - that Day of [their] coming-forth [from death].
  <!--END_SECTION:quran-->
 
   
