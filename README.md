@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 16**
+**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 2**
 
-they have made their oaths a cover [for their falseness], and thus they turn others away from the path of God: hence, shameful suffering awaits them.
+How awesome the sudden calamity!
  <!--END_SECTION:quran-->
 
   
