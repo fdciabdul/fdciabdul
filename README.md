@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 6**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 31**
 
-And, lo Moses spoke [thus] unto his people: "Remember the blessings which God bestowed upon you when He saved you from Pharaoh's people who afflicted you with cruel suffering, and slaughtered your sons, and spared [only] your women -which was an awesome trial from your Sustainer.
+“O our people! Respond to God’s call, and have faith in Him: He will forgive you [whatever is past] of your sins, and deliver you from grievous suffering [in the life to come].
  <!--END_SECTION:quran-->
 
   
