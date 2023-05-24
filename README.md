@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 21**
 
-BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
+HAD WE bestowed this Qur’an from on high upon a mountain, thou wouldst indeed see it humbling itself, breaking asunder for awe of God. And [all] such parables We propound unto men, so that they might [learn to] think.
  <!--END_SECTION:quran-->
 
   
