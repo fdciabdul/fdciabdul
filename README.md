@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 1**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 7**
 
-CONSIDER those [stars] that rise only to set,
+They who are bent on denying the truth claim that they will never be raised from the dead! Say: "Yea, by my Sustainer! Most surely will you be raised from the dead, and then, most surely, will you be made to understand what you did [in life]! For, easy is this for God!"
  <!--END_SECTION:quran-->
 
   
