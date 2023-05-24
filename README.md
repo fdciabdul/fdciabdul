@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 139**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 7**
 
-And they say, "All that is in the wombs of such-and-such cattle is reserved for our males and forbidden to our women; but if it be stillborn, then both may have their share thereof." [God] will requite them for all that they [falsely] attribute [to Him]: behold, He is wise, all-knowing.
+In the end you will indeed, most surely, behold it with the eye of certainty:
  <!--END_SECTION:quran-->
 
   
