@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 75**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 38**
 
-it will not be lightened for them; and therein they will be lost in hopeless despair.
+[On the Day of Judgment,] every human being will be held in pledge for whatever [evil] he has wrought –
  <!--END_SECTION:quran-->
 
   
