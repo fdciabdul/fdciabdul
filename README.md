@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 11**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
 
-But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.
+BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
  <!--END_SECTION:quran-->
 
   
