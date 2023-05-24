@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 15**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 19**
 
-Could We, then, be [thought of as being] worn out by the first creation? Nay - but some people are [still] lost in doubt about [the possibility of] a new creation!
+ART THOU NOT aware that God has created the heavens and the earth in accordance with [an inner] truth? He can, if He so wills, do away with you and bring forth a new mankind [in your stead]:
  <!--END_SECTION:quran-->
 
   
