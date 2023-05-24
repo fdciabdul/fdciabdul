@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 101: سُورَةُ القَارِعَةِ (Al-Qaari'a) - 1**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 3**
 
-OH, the sudden calamity!
+Consider the creation of the male and the female!
  <!--END_SECTION:quran-->
 
   
