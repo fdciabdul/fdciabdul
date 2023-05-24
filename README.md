@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 38**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 48**
 
-[On the Day of Judgment,] every human being will be held in pledge for whatever [evil] he has wrought –
+for, behold, it has been revealed to us that [in the life to come] suffering shall befall all who give the lie to the truth and turn away [from it]!"'
  <!--END_SECTION:quran-->
 
   
