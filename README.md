@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 30**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 2**
 
-AND SO, set thy face steadfastly towards the [one ever-true] faith, turning away from all that is false, in accordance with the natural disposition which God has instilled into man: [for,] not to allow any change to corrupt what God has thus created this is the [purpose of the one] ever-true faith; but most people know it not.
+Do people deem it strange that We should have inspired a man from their own midst [with this Our message]: "Warn all mankind, and give unto those who have attained to faith the glad tiding that in their Sustainer's sight they surpass all others in that they are completely sincere-? [Only] they who deny the truth say, "Behold. he is clearly but a spellbinder!"
  <!--END_SECTION:quran-->
 
   
