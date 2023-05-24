@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 2**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 8**
 
-Do people deem it strange that We should have inspired a man from their own midst [with this Our message]: "Warn all mankind, and give unto those who have attained to faith the glad tiding that in their Sustainer's sight they surpass all others in that they are completely sincere-? [Only] they who deny the truth say, "Behold. he is clearly but a spellbinder!"
+Their reward [awaits them] with God: gardens of perpetual bliss, through which running waters flow, therein to abide beyond the count of time; well-pleased is God with them, and well-pleased are they with Him: all this awaits him who of his Sustainer stands in awe!.
  <!--END_SECTION:quran-->
 
   
