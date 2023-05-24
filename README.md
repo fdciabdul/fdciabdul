@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 1**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
 
-CONSIDER the fig and the olive,
+And, behold, with every hardship comes ease:
  <!--END_SECTION:quran-->
 
   
