@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 15**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 3**
 
-of an orphan near of kin,
+[In the life to come] he shall have to endure a fire fiercely glowing;
  <!--END_SECTION:quran-->
 
   
