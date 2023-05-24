@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 60**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 68**
 
-Say: "Shall I tell you who, in the sight of God, deserves a yet worse retribution than these? They whom God has rejected and whom He has condemned, and whom He has turned into apes and swine because they worshipped the powers of evil: these are yet worse in station, and farther astray from the right path [than the mockers]."
+O our Sustainer! Give them double suffering, and banish them utterly from Thy grace!”
  <!--END_SECTION:quran-->
 
   
