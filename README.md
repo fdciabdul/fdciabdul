@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 211**
 
-secure in their winter and summer journeys,
+Ask the children of Israel how many a clear message We have given them! And if one alters God's blessed message after it has reached him - verily, God is severe in retribution!
  <!--END_SECTION:quran-->
 
   
