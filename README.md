@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 36**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 30**
 
-Say: “Behold, my Sustainer grants abundant sustenance, or gives it in scant measure, unto whomever He wills: but most men do not understand [God’s ways].”
+Thereupon the command will go forth:] "Lay hold of him, and shackle him,
  <!--END_SECTION:quran-->
 
   
