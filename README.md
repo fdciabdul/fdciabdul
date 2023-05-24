@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 4**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 36**
 
-And [have We not] raised thee high in dignity?
+Say: “Behold, my Sustainer grants abundant sustenance, or gives it in scant measure, unto whomever He wills: but most men do not understand [God’s ways].”
  <!--END_SECTION:quran-->
 
   
