@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 1**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
 
-ALL PRAISE is due to God, Originator of the heavens and the earth, who causes the angels to be (His) message-bearers, endowed with wings, two, or three, or four. [Unceasingly] He adds to His creation whatever He wills: for, verily, God has the power to will anything.
+which smote them with stone-hard blows of chastisement pre-ordained,
  <!--END_SECTION:quran-->
 
   
