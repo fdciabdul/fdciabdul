@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 84**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 75**
 
-And how could we fail to believe in God and in whatever truth has come unto us, when we so fervently desire that our Sustainer count us among the righteous?"
+it will not be lightened for them; and therein they will be lost in hopeless despair.
  <!--END_SECTION:quran-->
 
   
