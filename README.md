@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 72: سُورَةُ الجِنِّ (Al-Jinn) - 1**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 62**
 
-SAY: "It has been revealed to me that some of the unseen beings gave ear [to this divine writ], and thereupon said [unto their fellow-beings]: "'Verily, we have heard a wondrous discourse,
+No empty talk will they hear there-nothing but [tidings of] inner soundness and peace; and there will they have their sustenance by day and by night:
  <!--END_SECTION:quran-->
 
   
