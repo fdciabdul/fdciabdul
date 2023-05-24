@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 18**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
 
-[the Day] on which the skies shall be rent asunder, [and] His promise [of resurrection] fulfilled?
+secure in their winter and summer journeys,
  <!--END_SECTION:quran-->
 
   
