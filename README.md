@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 124**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 3**
 
-And [remember this:] when his Sustainer tried Abraham by [His] commandments and the latter fulfilled them, He said: "Behold, I shall make thee a leader of men. "Abraham asked: "And [wilt Thou make leaders] of my offspring as well? "[God] answered: "My covenant does not embrace the evildoers."
+wherein there are ordinances of ever-true soundness and clarity.
  <!--END_SECTION:quran-->
 
   
