@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 62**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 1**
 
-And He it is who causes the night and the day to succeed one another, [revealing Himself in His works] unto him who has the will to take thought - that is has the will to be grateful.
+CONSIDER those [stars] that rise only to set,
  <!--END_SECTION:quran-->
 
   
