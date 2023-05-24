@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 35**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 18**
 
-that Day on which they will not [be able to] utter a word,
+Behold, [when Our messages are conveyed to one who is bent on denying the truth,] he reflects and meditates [as to how to disprove them] –
  <!--END_SECTION:quran-->
 
   
