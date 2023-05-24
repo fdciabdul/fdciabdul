@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 18**
+**Surah 98: سُورَةُ البَيِّنَةِ (Al-Bayyina) - 3**
 
-Behold, [when Our messages are conveyed to one who is bent on denying the truth,] he reflects and meditates [as to how to disprove them] –
+wherein there are ordinances of ever-true soundness and clarity.
  <!--END_SECTION:quran-->
 
   
