@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 1**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 9**
 
-READ in the name of thy Sustainer, who has-
+in endless columns!
  <!--END_SECTION:quran-->
 
   
