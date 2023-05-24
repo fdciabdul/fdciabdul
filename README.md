@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 5**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 124**
 
-Thus, as for him who gives [to others] and is conscious of God,
+And [remember this:] when his Sustainer tried Abraham by [His] commandments and the latter fulfilled them, He said: "Behold, I shall make thee a leader of men. "Abraham asked: "And [wilt Thou make leaders] of my offspring as well? "[God] answered: "My covenant does not embrace the evildoers."
  <!--END_SECTION:quran-->
 
   
