@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 1**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 6**
 
-CONSIDER the heavens and that which comes in the night!
+Guide us the straight way.
  <!--END_SECTION:quran-->
 
   
