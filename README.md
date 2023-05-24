@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 39**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 11**
 
-And fight against them until there is no more oppression and all worship is devoted to God alone. And if they desist-behold, God sees all that they do;
+But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.
  <!--END_SECTION:quran-->
 
   
