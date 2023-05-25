@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 33**
+**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 25**
 
-AND SO, when the piercing call [of resurrection] is heard
+unless it be such [of them] as [repent, and] attain to faith, and do good works: for theirs shall be a reward unending!.
  <!--END_SECTION:quran-->
 
   
