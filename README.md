@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 9**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
 
-[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!
+And, behold, with every hardship comes ease:
  <!--END_SECTION:quran-->
 
   
