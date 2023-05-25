@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 8**
+**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 10**
 
-And when [other] near of kin and orphans and needy persons are present at the distribution [of inheritance], give them something thereof for their sustenance, and speak unto them in a kindly way.
+[the while] God has readied for them [yet more] suffering severe [in the life to come] Hence, remain conscious of God, O you who are endowed with insight - [you] who have attained to faith! God has indeed bestowed on you a reminder from on high:
  <!--END_SECTION:quran-->
 
   
