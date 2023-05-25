@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 25**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 3**
 
-and shake the trunk of the palm-tree towards thee: it will drop fresh, ripe dates upon thee.
+But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.
  <!--END_SECTION:quran-->
 
   
