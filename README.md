@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 65**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 1**
 
-and who pray: “O our Sustainer, avert from us the suffering of hell - for, verily, the suffering caused by it is bound to be a torment dire:
+O THOU human being!
  <!--END_SECTION:quran-->
 
   
