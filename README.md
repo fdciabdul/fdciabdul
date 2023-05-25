@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 89**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 57**
 
-But excepted shall be they that afterwards repent and put themselves to rights: for, behold, God is much-forgiving, a dispenser of grace.
+an act of thy Sustainer’s favour: and that, that will be the triumph supreme!
  <!--END_SECTION:quran-->
 
   
