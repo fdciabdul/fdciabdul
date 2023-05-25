@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 6**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 120**
 
-this, because time and again there came unto them their apostles with all evidence of the truth, but they [always] replied, "Shall mere mortal men be our guides?" And so they. denied the truth and turned away. But God was not in need [of them]: for God is self-sufficient, ever to be praised.
+AND [remember:] out of all the accounts relating to the [earlier] apostles We convey unto thee [only] that wherewith We [aim to] make firm thy heart: for through these [accounts] comes the truth unto thee, as well as an admonition and a reminder unto all believers.
  <!--END_SECTION:quran-->
 
   
