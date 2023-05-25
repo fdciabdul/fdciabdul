@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 7**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 141**
 
-Woe unto every sinful self-deceiver
+And then they cast lots, and he was the one who lost;
  <!--END_SECTION:quran-->
 
   
