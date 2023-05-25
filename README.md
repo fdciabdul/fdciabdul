@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 9**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 9**
 
-Therefore, the orphan shalt thou never wrong,
+and in awe [of God]
  <!--END_SECTION:quran-->
 
   
