@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 17**
+**Surah 80: سُورَةُ عَبَسَ (Abasa) - 33**
 
-Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.
+AND SO, when the piercing call [of resurrection] is heard
  <!--END_SECTION:quran-->
 
   
