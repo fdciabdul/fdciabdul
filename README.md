@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 76**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 70**
 
-therein to abide: [and] how goodly an abode and [how high] a station!
+for every human being will be repaid in full for whatever [good or evil] he has done: and He is fully aware of all that they do.
  <!--END_SECTION:quran-->
 
   
