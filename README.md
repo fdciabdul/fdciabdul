@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 8**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 42**
 
-so that [at the end of time] He might ask those men of truth as to [what response] their truthfulness [had received on earth]. And grievous suffering has He readied for all who deny the truth!
+and neither is it - however little you may [be prepared to] take it to heart - the word of a soothsayer:
  <!--END_SECTION:quran-->
 
   
