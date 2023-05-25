@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 6**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 3**
 
-you would indeed, most surely, behold the blazing fire [of hell]!
+Most loathsome is it in the sight of God that you say what you do not do!
  <!--END_SECTION:quran-->
 
   
