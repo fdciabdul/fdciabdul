@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 5**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 9**
 
-And, behold, with every hardship comes ease:
+they would like thee to be soft [with them], so that they might be soft [with thee].
  <!--END_SECTION:quran-->
 
   
