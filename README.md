@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 2**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 17**
 
-How awesome that laying-bare of the truth!
+For, distant from it shall remain he who is truly conscious of God:
  <!--END_SECTION:quran-->
 
   
