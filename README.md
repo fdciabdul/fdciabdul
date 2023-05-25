@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 9**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 50**
 
-O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!
+and that it is He who destroyed the ancient [tribes of] Ad
  <!--END_SECTION:quran-->
 
   
