@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 21**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 9**
 
-HAD WE bestowed this Qur’an from on high upon a mountain, thou wouldst indeed see it humbling itself, breaking asunder for awe of God. And [all] such parables We propound unto men, so that they might [learn to] think.
+[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!
  <!--END_SECTION:quran-->
 
   
