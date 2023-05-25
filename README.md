@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 43**
 
-On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
+And [then,] indeed, after We had destroyed those earlier generations [of sinners], We vouchsafed unto Moses [Our] revelation as a means of insight for men, and as a guidance and grace, so that they might bethink themselves [of Us].
  <!--END_SECTION:quran-->
 
   
