@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 30**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 86**
 
-They answered: “Thus has thy Sustainer decreed; and, verily, He alone is truly wise, all- knowing!”
+Now [as for thyself, O believer,] thou couldst never foresee that this divine writ would [one day] be offered to thee: but [it did come to thee] by thy Sustainer’s grace. Hence, never uphold those who deny the truth [of divine guidance],
  <!--END_SECTION:quran-->
 
   
