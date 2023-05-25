@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 118**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 82**
 
-and guided them the straight way,
+HAVE THEY, then, never journeyed about the earth and beheld what happened in the end to those [deniers of the truth] who lived before their time? More numerous were they, and greater in power than they are, and in the impact which they left on earth: but all that they ever achieved was of no avail to them –
  <!--END_SECTION:quran-->
 
   
