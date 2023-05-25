@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 12**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 51**
 
-Nay, you thought that the Apostle and the believers would never return to their kith and kin: and this seemed goodly to your hearts. And you entertained [such] evil thoughts because you have always been people devoid of all good!”
+fleeing from a lion?
  <!--END_SECTION:quran-->
 
   
