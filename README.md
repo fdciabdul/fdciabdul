@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 46**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 29**
 
-Say: "What do you think? If God should take away your hearing and your sight and seal your hearts - what deity but God is there that could bring it all back to you?" Behold how many facets we give to our messages-and yet they turn away in disdain!
+Indeed, he led me astray from the remembrance [of God] after it had come unto me!” For [thus it is:] Satan is ever a betrayer of man.
  <!--END_SECTION:quran-->
 
   
