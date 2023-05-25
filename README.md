@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 38**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 16**
 
-and in which you find all that you may wish to find?
+Endure it [now]! But [whether you] bear yourselves with patience or without patience, it will be the same to you: you are but being requited for what you were wont to do.”
  <!--END_SECTION:quran-->
 
   
