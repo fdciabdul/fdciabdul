@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 3**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 46**
 
-Most loathsome is it in the sight of God that you say what you do not do!
+Say: "What do you think? If God should take away your hearing and your sight and seal your hearts - what deity but God is there that could bring it all back to you?" Behold how many facets we give to our messages-and yet they turn away in disdain!
  <!--END_SECTION:quran-->
 
   
