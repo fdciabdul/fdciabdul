@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 65: سُورَةُ الطَّلَاقِ (At-Talaaq) - 10**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 12**
 
-[the while] God has readied for them [yet more] suffering severe [in the life to come] Hence, remain conscious of God, O you who are endowed with insight - [you] who have attained to faith! God has indeed bestowed on you a reminder from on high:
+and the earth, bursting forth with plants!
  <!--END_SECTION:quran-->
 
   
