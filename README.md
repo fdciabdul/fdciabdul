@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 9**
+**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
 
-they would like thee to be soft [with them], so that they might be soft [with thee].
+SAY: "I seek refuge with the Sustainer of men,
  <!--END_SECTION:quran-->
 
   
