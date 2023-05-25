@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 26**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 46**
 
-Said [Noah]: “O my Sustainer! Succour me against their accusation of lying!”
+And We caused Jesus, the son of Mary, to follow in the footsteps of those [earlier prophets], confirming the truth of whatever there still remained of the Torah; and We vouchsafed unto him the Gospel, wherein there was guidance and light, confirming the truth of whatever there still remained of the Torah, and as a guidance and admonition unto the God-conscious.
  <!--END_SECTION:quran-->
 
   
