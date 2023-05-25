@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 1**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 12**
 
-AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;
+Nay, you thought that the Apostle and the believers would never return to their kith and kin: and this seemed goodly to your hearts. And you entertained [such] evil thoughts because you have always been people devoid of all good!”
  <!--END_SECTION:quran-->
 
   
