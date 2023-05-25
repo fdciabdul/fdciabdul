@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 29**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 53**
 
-Hence, enter the gates of hell, therein to abide!" And evil, indeed, shall be the state of all who are given to false pride!
+seeing that aforetime they had been bent on denying the truth, and had been wont to cast scorn, from far away, on something that was beyond the reach of human perception?
  <!--END_SECTION:quran-->
 
   
