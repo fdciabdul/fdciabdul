@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 6**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
 
-O YOU who have attained to faith! Ward off from yourselves and those who are close to you that fire [of the hereafter] whose fuel is human beings and stones: [lording] over it are angelic powers awesome [and] severe, who do not disobey God in whatever He has commanded them, but [always] do what they are bidden to do.
+and neither will you [ever] worship that which I worship.
  <!--END_SECTION:quran-->
 
   
