@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 75**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 1**
 
-for there is nothing [so deeply] hidden in the heavens or on earth but is recorded in [His] clear decree.
+AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;
  <!--END_SECTION:quran-->
 
   
