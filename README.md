@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 29**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 25**
 
-Art thou not aware that it is God who makes the night grow longer by shortening the day, and makes the day grow longer by shortening the night, and that He has made the sun and the moon subservient [to His laws], each running its course for a term set [by Him] and that God is fully aware of all that you do?
+and shake the trunk of the palm-tree towards thee: it will drop fresh, ripe dates upon thee.
  <!--END_SECTION:quran-->
 
   
