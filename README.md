@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 9: سُورَةُ التَّوۡبَةِ (At-Tawba) - 115**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 30**
 
-And God would never-after having invited them to His guidance -condemn people for going astray ere He has made [entirely] clear unto them of what they should beware. Verily, God has full knowledge of everything.
+And after that, the earth: wide has He spread its expanse,
  <!--END_SECTION:quran-->
 
   
