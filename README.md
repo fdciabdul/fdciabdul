@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 38**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 12**
 
-and [who knows that] We have indeed created the heavens and the earth and all that is between them in six aeons, and [that] no weariness could ever touch Us.
+will you, then, contend with him as to what he saw?
  <!--END_SECTION:quran-->
 
   
