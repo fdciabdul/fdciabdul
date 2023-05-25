@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 6**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
 
-Hence, whoever strives hard [in God’s cause] does so only for his own good: for, verily, God does not stand in need of anything in all the worlds!
+which smote them with stone-hard blows of chastisement pre-ordained,
  <!--END_SECTION:quran-->
 
   
