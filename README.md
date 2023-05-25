@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 58**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 86**
 
-As for the good land, its vegetation comes forth [in abundance] by its Sustainer's leave, whereas from the bad it comes forth but poorly. Thus do We give many facets to Our messages for [the benefit of] people who are grateful!
+And those [beings] whom some invoke beside God have it not in their power to intercede [on Judgment Day] for any but such as have [in their lifetime] borne witness to the truth, and have been aware [that God is one and unique].
  <!--END_SECTION:quran-->
 
   
