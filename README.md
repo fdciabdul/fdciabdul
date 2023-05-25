@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 13**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 17**
 
-Say: “Behold, I would dread, were I to rebel against my Sustainer, the suffering [which would befall me] on that awesome Day [of Judgment].”
+Let, then, the deniers of the truth have their will: let them have their will for a little while.
  <!--END_SECTION:quran-->
 
   
