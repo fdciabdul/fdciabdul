@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 30**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 8**
 
-And after that, the earth: wide has He spread its expanse,
+whom they hate for no other reason than that they believe in God, the Almighty, the One to whom all praise is due,
  <!--END_SECTION:quran-->
 
   
