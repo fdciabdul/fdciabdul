@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 9**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 16**
 
-But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,
+Say: "Had God willed it [otherwise], I would not have conveyed this [divine writ] unto you, nor would He have brought it to your knowledge. Indeed. a whole lifetime have I dwelt among you ere this [revelation came unto me]: will you not, then, use your reason?”
  <!--END_SECTION:quran-->
 
   
