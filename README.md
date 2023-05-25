@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 11**
+**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 6**
 
-[Yea-] and most certainly will God mark out those who have [truly] attained to faith, and most certainly will He mark out the hypocrites.
+O YOU who have attained to faith! Ward off from yourselves and those who are close to you that fire [of the hereafter] whose fuel is human beings and stones: [lording] over it are angelic powers awesome [and] severe, who do not disobey God in whatever He has commanded them, but [always] do what they are bidden to do.
  <!--END_SECTION:quran-->
 
   
