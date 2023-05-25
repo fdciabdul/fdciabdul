@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 30**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 8**
 
-O wives of the Prophet! If any of you were to become guilty of manifestly immoral conduct, double [that of other sinners] would be her suffering [in the hereafter]: for that is indeed easy for God.
+verily, it will close in upon them
  <!--END_SECTION:quran-->
 
   
