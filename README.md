@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 84: سُورَةُ الانشِقَاقِ (Al-Inshiqaaq) - 25**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 118**
 
-unless it be such [of them] as [repent, and] attain to faith, and do good works: for theirs shall be a reward unending!.
+and guided them the straight way,
  <!--END_SECTION:quran-->
 
   
