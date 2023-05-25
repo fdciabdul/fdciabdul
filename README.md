@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 5**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 9**
 
-Behold, We shall bestow upon thee a weighty message –
+But, verily, thy Sustainer - He alone - is almighty, a dispenser of grace!
  <!--END_SECTION:quran-->
 
   
