@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 4**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 65**
 
-which smote them with stone-hard blows of chastisement pre-ordained,
+and who pray: “O our Sustainer, avert from us the suffering of hell - for, verily, the suffering caused by it is bound to be a torment dire:
  <!--END_SECTION:quran-->
 
   
