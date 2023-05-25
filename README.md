@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 38**
 
-On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
+and [who knows that] We have indeed created the heavens and the earth and all that is between them in six aeons, and [that] no weariness could ever touch Us.
  <!--END_SECTION:quran-->
 
   
