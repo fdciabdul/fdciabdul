@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 120**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 2**
 
-AND [remember:] out of all the accounts relating to the [earlier] apostles We convey unto thee [only] that wherewith We [aim to] make firm thy heart: for through these [accounts] comes the truth unto thee, as well as an admonition and a reminder unto all believers.
+How awesome that laying-bare of the truth!
  <!--END_SECTION:quran-->
 
   
