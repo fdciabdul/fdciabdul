@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 161**
 
-in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
+for, verily, neither you [blasphemers] nor the objects of your worship
  <!--END_SECTION:quran-->
 
   
