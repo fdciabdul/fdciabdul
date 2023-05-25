@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 3**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 9**
 
-But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.
+for when he does become aware of any of Our messages, he makes them a target of his mockery! For all such there is shameful suffering in store.
  <!--END_SECTION:quran-->
 
   
