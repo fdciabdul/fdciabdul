@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 141**
+**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 1**
 
-And then they cast lots, and he was the one who lost;
+DOOMED are the hands of him of the glowing countence: and doomed is he!
  <!--END_SECTION:quran-->
 
   
