@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 1**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 13**
 
-DOOMED are the hands of him of the glowing countence: and doomed is he!
+Say: “Behold, I would dread, were I to rebel against my Sustainer, the suffering [which would befall me] on that awesome Day [of Judgment].”
  <!--END_SECTION:quran-->
 
   
