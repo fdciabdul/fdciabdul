@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 21**
+**Surah 38: سُورَةُ صٓ (Saad) - 76**
 
-Nay, but [how will you fare on Judgment Day,] when the earth is crushed with crushing upon crushing,
+Answered [Iblis]: “I am better than he: Thou hast created me out of fire, whereas him Thou hast created out of clay.”
  <!--END_SECTION:quran-->
 
   
