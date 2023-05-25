@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 29**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 75**
 
-Indeed, he led me astray from the remembrance [of God] after it had come unto me!” For [thus it is:] Satan is ever a betrayer of man.
+for there is nothing [so deeply] hidden in the heavens or on earth but is recorded in [His] clear decree.
  <!--END_SECTION:quran-->
 
   
