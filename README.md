@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 17**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 10**
 
-For, distant from it shall remain he who is truly conscious of God:
+And yet, verily, there are ever-watchful forces over you,
  <!--END_SECTION:quran-->
 
   
