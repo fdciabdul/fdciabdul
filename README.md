@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 30**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 8**
 
-and whenever they pass by them, they wink at one another [derisively];
+And when [other] near of kin and orphans and needy persons are present at the distribution [of inheritance], give them something thereof for their sustenance, and speak unto them in a kindly way.
  <!--END_SECTION:quran-->
 
   
