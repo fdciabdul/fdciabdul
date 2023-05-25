@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 57**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 7**
 
-an act of thy Sustainer’s favour: and that, that will be the triumph supreme!
+Woe unto every sinful self-deceiver
  <!--END_SECTION:quran-->
 
   
