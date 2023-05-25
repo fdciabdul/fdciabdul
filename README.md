@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 18**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 84**
 
-and [neither will] they [who] worship, side by side with God, things or beings that can neither harm nor benefit them, saying [to themselves], "These are our intercessors with God!" Say: "Do you [think that you could] inform God of anything in the heavens or on earth that He does not know? Limitless is He in His glory, and sublimely exalted above anything to which men may ascribe a share in His divinity!"
+Whosoever shall come [before God] with a good deed will gain [further] good there from; but as for any who shall come with an evil deed - [know that] they who do evil deeds will not be requited with more than [the like of] what they have done.
  <!--END_SECTION:quran-->
 
   
