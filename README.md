@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 106**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 14**
 
-but pray God to forgive [them]: behold, God is indeed much-forgiving, a dispenser of grace.
+Nay, but their hearts are corroded by all [the evil] that they were wont to do!
  <!--END_SECTION:quran-->
 
   
