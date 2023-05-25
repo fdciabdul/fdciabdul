@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 143**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
 
-And had he not been of those who [even in the deep darkness of their distress are able to] extol God’s limitless glory,
+in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
  <!--END_SECTION:quran-->
 
   
