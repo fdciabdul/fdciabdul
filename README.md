@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 8**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 30**
 
-verily, it will close in upon them
+and whenever they pass by them, they wink at one another [derisively];
  <!--END_SECTION:quran-->
 
   
