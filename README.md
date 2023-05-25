@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 9**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 2**
 
-for when he does become aware of any of Our messages, he makes them a target of his mockery! For all such there is shameful suffering in store.
+But if they [who reject all thought of the Last Hour] were to see a sign [of its approach], they would turn aside and say, “An ever-recurring delusion!” –
  <!--END_SECTION:quran-->
 
   
