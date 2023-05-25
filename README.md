@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 10**
+**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 143**
 
-And yet, verily, there are ever-watchful forces over you,
+And had he not been of those who [even in the deep darkness of their distress are able to] extol God’s limitless glory,
  <!--END_SECTION:quran-->
 
   
