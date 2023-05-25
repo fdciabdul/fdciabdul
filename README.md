@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 58**
+**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
 
-THUS, THEN, [O Prophet,] have We made this [divine writ] easy to understand, in thine own [human] tongue, so that men might take it to heart.
+secure in their winter and summer journeys,
  <!--END_SECTION:quran-->
 
   
