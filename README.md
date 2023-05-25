@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 2**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 30**
 
-But if they [who reject all thought of the Last Hour] were to see a sign [of its approach], they would turn aside and say, “An ever-recurring delusion!” –
+O wives of the Prophet! If any of you were to become guilty of manifestly immoral conduct, double [that of other sinners] would be her suffering [in the hereafter]: for that is indeed easy for God.
  <!--END_SECTION:quran-->
 
   
