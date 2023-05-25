@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 16**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 18**
 
-Endure it [now]! But [whether you] bear yourselves with patience or without patience, it will be the same to you: you are but being requited for what you were wont to do.”
+and [neither will] they [who] worship, side by side with God, things or beings that can neither harm nor benefit them, saying [to themselves], "These are our intercessors with God!" Say: "Do you [think that you could] inform God of anything in the heavens or on earth that He does not know? Limitless is He in His glory, and sublimely exalted above anything to which men may ascribe a share in His divinity!"
  <!--END_SECTION:quran-->
 
   
