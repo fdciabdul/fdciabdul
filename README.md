@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 9**
+**Surah 46: سُورَةُ الأَحۡقَافِ (Al-Ahqaf) - 10**
 
-and with [the tribe of] Thamud, who hollowed out rocks in the valley? –
+Say: “Have you given thought [to how you will fare] if this be truly [a revelation] from God and yet you deny its truth? - even though a witness from among the children of Israel has already borne wit­ness to [the advent of] one like himself, and has believed [in him], the while you glory in your arro­gance [and reject his message]? Verily, God does not grace [such] evildoing folk with His guidance!”
  <!--END_SECTION:quran-->
 
   
