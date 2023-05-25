@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 81**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 14**
 
-And say: "The truth has now come [to light], and falsehood has withered away: for, behold, all falsehood is bound to wither away!"
+and of whoever [else] lives on earth, all of them - so that he could but save himself.
  <!--END_SECTION:quran-->
 
   
