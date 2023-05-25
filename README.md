@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 44**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 4**
 
-The seven heavens extol His limitless glory, and the earth, and all that they contain; and there is not a single thing but extols His limitless glory and praise: but you [O men] fail to grasp the manner of their glorifying Him! Verily, He is forbearing, much-forgiving!
+Verily, We have created man into [a life of] pain, toil and trial.
  <!--END_SECTION:quran-->
 
   
