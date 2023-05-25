@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 9**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 6**
 
-But, verily, thy Sustainer - He alone - is almighty, a dispenser of grace!
+you would indeed, most surely, behold the blazing fire [of hell]!
  <!--END_SECTION:quran-->
 
   
