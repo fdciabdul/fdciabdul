@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 16**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 33**
 
-Say: "Had God willed it [otherwise], I would not have conveyed this [divine writ] unto you, nor would He have brought it to your knowledge. Indeed. a whole lifetime have I dwelt among you ere this [revelation came unto me]: will you not, then, use your reason?”
+and has made the sun and the moon, both of them constant upon their courses, subservient [to His laws, so that they be of use] to you; and has made the night and the day subservient [to His laws, so that they be of use] to you.
  <!--END_SECTION:quran-->
 
   
