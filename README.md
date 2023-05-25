@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 30**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 59**
 
-But [when] those who are conscious of God are asked, "What is it that your Sustainer has bestowed from on high?" -they answer, "Goodness supreme!" Good fortune awaits, in this world, all who persevere in doing good; but their ultimate state will be far better still: for, how excellent indeed will be the state of the God-conscious [in the life to come]!
+[As for Jesus,] he was nothing but [a human being -] a servant [of Ours] whom We had graced [with prophethood], and whom We made an example for the children of Israel.
  <!--END_SECTION:quran-->
 
   
