@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 70**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 15**
 
-for every human being will be repaid in full for whatever [good or evil] he has done: and He is fully aware of all that they do.
+Said He: “Not so, indeed! Go forth, then, both of you, with Our messages: verify, We shall be with you, listening [to your call]!
  <!--END_SECTION:quran-->
 
   
