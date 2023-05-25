@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 53**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 58**
 
-seeing that aforetime they had been bent on denying the truth, and had been wont to cast scorn, from far away, on something that was beyond the reach of human perception?
+As for the good land, its vegetation comes forth [in abundance] by its Sustainer's leave, whereas from the bad it comes forth but poorly. Thus do We give many facets to Our messages for [the benefit of] people who are grateful!
  <!--END_SECTION:quran-->
 
   
