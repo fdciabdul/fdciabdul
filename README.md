@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 16**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 106**
 
-and then, behold, they shall enter the blazing fire
+but pray God to forgive [them]: behold, God is indeed much-forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
