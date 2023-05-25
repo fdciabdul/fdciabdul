@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 33**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 56**
 
-and has made the sun and the moon, both of them constant upon their courses, subservient [to His laws, so that they be of use] to you; and has made the night and the day subservient [to His laws, so that they be of use] to you.
+AND CALL to mind, through this divine writ, Idris. Behold, he was a man of truth, a prophet,
  <!--END_SECTION:quran-->
 
   
