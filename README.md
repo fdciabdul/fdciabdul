@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 2**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 21**
 
-and Mount Sinai,
+HAD WE bestowed this Qur’an from on high upon a mountain, thou wouldst indeed see it humbling itself, breaking asunder for awe of God. And [all] such parables We propound unto men, so that they might [learn to] think.
  <!--END_SECTION:quran-->
 
   
