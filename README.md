@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 80: سُورَةُ عَبَسَ (Abasa) - 9**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 30**
 
-and in awe [of God]
+They answered: “Thus has thy Sustainer decreed; and, verily, He alone is truly wise, all- knowing!”
  <!--END_SECTION:quran-->
 
   
