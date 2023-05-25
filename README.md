@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 45**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 16**
 
-And seek aid in steadfast patience and prayer: and this, indeed, is a hard thing for all but the humble in spirit,
+and then, behold, they shall enter the blazing fire
  <!--END_SECTION:quran-->
 
   
