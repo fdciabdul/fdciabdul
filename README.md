@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 86**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 26**
 
-And those [beings] whom some invoke beside God have it not in their power to intercede [on Judgment Day] for any but such as have [in their lifetime] borne witness to the truth, and have been aware [that God is one and unique].
+Said [Noah]: “O my Sustainer! Succour me against their accusation of lying!”
  <!--END_SECTION:quran-->
 
   
