@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 14**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 29**
 
-Nay, but their hearts are corroded by all [the evil] that they were wont to do!
+Hence, enter the gates of hell, therein to abide!" And evil, indeed, shall be the state of all who are given to false pride!
  <!--END_SECTION:quran-->
 
   
