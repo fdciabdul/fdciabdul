@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 3**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 6**
 
-Consider the day as it reveals the world,
+this, because time and again there came unto them their apostles with all evidence of the truth, but they [always] replied, "Shall mere mortal men be our guides?" And so they. denied the truth and turned away. But God was not in need [of them]: for God is self-sufficient, ever to be praised.
  <!--END_SECTION:quran-->
 
   
