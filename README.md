@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 8**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 1**
 
-so that you [too, O men,] might never transgress the measure [of what is right]:
+WOE UNTO THOSE who give short measure:
  <!--END_SECTION:quran-->
 
   
