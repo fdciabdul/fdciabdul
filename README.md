@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 14**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 30**
 
-Yet [even Solomon had to die; but] when We decreed that he should die, nothing showed them that he was dead except an earthworm that gnawed away his staff. And when he fell to the ground, those invisible beings [subservient to him] saw clearly that, had they but understood the reality which was be­yond the reach of their perception, they would not have continued [to toil] in the shameful suffering [of servitude]
+But [when] those who are conscious of God are asked, "What is it that your Sustainer has bestowed from on high?" -they answer, "Goodness supreme!" Good fortune awaits, in this world, all who persevere in doing good; but their ultimate state will be far better still: for, how excellent indeed will be the state of the God-conscious [in the life to come]!
  <!--END_SECTION:quran-->
 
   
