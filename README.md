@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 3**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 2**
 
-This, because they who are bent on denying the truth pursue falsehood, whereas they who have attained to faith pursue [but] the truth [that flows] from their Sustainer. In this way does God set forth unto man the parables of their true state.
+and the night when it grows still and dark.
  <!--END_SECTION:quran-->
 
   
