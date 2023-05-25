@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 15**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 37**
 
-Said He: “Not so, indeed! Go forth, then, both of you, with Our messages: verify, We shall be with you, listening [to your call]!
+whereas he whom God guides aright can never be led astray. Is not God almighty, an avenger of evil?
  <!--END_SECTION:quran-->
 
   
