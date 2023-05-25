@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 106: سُورَةُ قُرَيۡشٍ (Quraish) - 2**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 8**
 
-secure in their winter and summer journeys,
+so that [at the end of time] He might ask those men of truth as to [what response] their truthfulness [had received on earth]. And grievous suffering has He readied for all who deny the truth!
  <!--END_SECTION:quran-->
 
   
