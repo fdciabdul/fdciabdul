@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 8**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 11**
 
-Is not God the most just of judges?
+[Yea-] and most certainly will God mark out those who have [truly] attained to faith, and most certainly will He mark out the hypocrites.
  <!--END_SECTION:quran-->
 
   
