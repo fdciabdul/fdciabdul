@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 10**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 81**
 
-in mind will keep it he who stands in awe [of God],
+And say: "The truth has now come [to light], and falsehood has withered away: for, behold, all falsehood is bound to wither away!"
  <!--END_SECTION:quran-->
 
   
