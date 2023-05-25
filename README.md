@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 37: سُورَةُ الصَّافَّاتِ (As-Saaffaat) - 161**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 45**
 
-for, verily, neither you [blasphemers] nor the objects of your worship
+And seek aid in steadfast patience and prayer: and this, indeed, is a hard thing for all but the humble in spirit,
  <!--END_SECTION:quran-->
 
   
