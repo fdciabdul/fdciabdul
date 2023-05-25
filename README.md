@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 1**
+**Surah 68: سُورَةُ القَلَمِ (Al-Qalam) - 38**
 
-SAY: "I seek refuge with the Sustainer of men,
+and in which you find all that you may wish to find?
  <!--END_SECTION:quran-->
 
   
