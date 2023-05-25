@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 5**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 9**
 
-every human being will [at last] comprehend, what he has sent ahead and what he has held back [in this world].
+But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,
  <!--END_SECTION:quran-->
 
   
