@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 14**
+**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 3**
 
-and of whoever [else] lives on earth, all of them - so that he could but save himself.
+This, because they who are bent on denying the truth pursue falsehood, whereas they who have attained to faith pursue [but] the truth [that flows] from their Sustainer. In this way does God set forth unto man the parables of their true state.
  <!--END_SECTION:quran-->
 
   
