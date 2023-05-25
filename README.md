@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 37**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 6**
 
-whereas he whom God guides aright can never be led astray. Is not God almighty, an avenger of evil?
+Hence, whoever strives hard [in God’s cause] does so only for his own good: for, verily, God does not stand in need of anything in all the worlds!
  <!--END_SECTION:quran-->
 
   
