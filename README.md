@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 51**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 58**
 
-fleeing from a lion?
+THUS, THEN, [O Prophet,] have We made this [divine writ] easy to understand, in thine own [human] tongue, so that men might take it to heart.
  <!--END_SECTION:quran-->
 
   
