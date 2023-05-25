@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 1**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 3**
 
-O THOU human being!
+Consider the day as it reveals the world,
  <!--END_SECTION:quran-->
 
   
