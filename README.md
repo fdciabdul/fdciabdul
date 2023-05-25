@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
+**Surah 99: سُورَةُ الزَّلۡزَلَةِ (Az-Zalzala) - 6**
 
-unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
+On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.
  <!--END_SECTION:quran-->
 
   
