@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 55**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 2**
 
-in a seat of truth, in the presence of a Sovereign who determines all things.
+and Mount Sinai,
  <!--END_SECTION:quran-->
 
   
