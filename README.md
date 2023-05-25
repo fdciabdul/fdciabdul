@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 24**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 8**
 
-and they said: “Are we to follow one single mortal, one from among ourselves? In that case, behold, we would certainly sink into error and folly!
+so that you [too, O men,] might never transgress the measure [of what is right]:
  <!--END_SECTION:quran-->
 
   
