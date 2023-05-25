@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 8**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
 
-whom they hate for no other reason than that they believe in God, the Almighty, the One to whom all praise is due,
+unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
  <!--END_SECTION:quran-->
 
   
