@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 4**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 9**
 
-Verily, We have created man into [a life of] pain, toil and trial.
+and with [the tribe of] Thamud, who hollowed out rocks in the valley? –
  <!--END_SECTION:quran-->
 
   
