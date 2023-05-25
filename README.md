@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 43**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 55**
 
-And [then,] indeed, after We had destroyed those earlier generations [of sinners], We vouchsafed unto Moses [Our] revelation as a means of insight for men, and as a guidance and grace, so that they might bethink themselves [of Us].
+in a seat of truth, in the presence of a Sovereign who determines all things.
  <!--END_SECTION:quran-->
 
   
