@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 46**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 17**
 
-And We caused Jesus, the son of Mary, to follow in the footsteps of those [earlier prophets], confirming the truth of whatever there still remained of the Torah; and We vouchsafed unto him the Gospel, wherein there was guidance and light, confirming the truth of whatever there still remained of the Torah, and as a guidance and admonition unto the God-conscious.
+Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.
  <!--END_SECTION:quran-->
 
   
