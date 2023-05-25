@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 5**
+**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 21**
 
-and neither will you [ever] worship that which I worship.
+Nay, but [how will you fare on Judgment Day,] when the earth is crushed with crushing upon crushing,
  <!--END_SECTION:quran-->
 
   
