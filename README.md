@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 59**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 76**
 
-[As for Jesus,] he was nothing but [a human being -] a servant [of Ours] whom We had graced [with prophethood], and whom We made an example for the children of Israel.
+therein to abide: [and] how goodly an abode and [how high] a station!
  <!--END_SECTION:quran-->
 
   
