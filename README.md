@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 38: سُورَةُ صٓ (Saad) - 76**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 24**
 
-Answered [Iblis]: “I am better than he: Thou hast created me out of fire, whereas him Thou hast created out of clay.”
+and they said: “Are we to follow one single mortal, one from among ourselves? In that case, behold, we would certainly sink into error and folly!
  <!--END_SECTION:quran-->
 
   
