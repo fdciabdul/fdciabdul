@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 82**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 44**
 
-HAVE THEY, then, never journeyed about the earth and beheld what happened in the end to those [deniers of the truth] who lived before their time? More numerous were they, and greater in power than they are, and in the impact which they left on earth: but all that they ever achieved was of no avail to them –
+The seven heavens extol His limitless glory, and the earth, and all that they contain; and there is not a single thing but extols His limitless glory and praise: but you [O men] fail to grasp the manner of their glorifying Him! Verily, He is forbearing, much-forgiving!
  <!--END_SECTION:quran-->
 
   
