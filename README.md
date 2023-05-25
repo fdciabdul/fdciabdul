@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 12**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 5**
 
-will you, then, contend with him as to what he saw?
+Behold, We shall bestow upon thee a weighty message –
  <!--END_SECTION:quran-->
 
   
