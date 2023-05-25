@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 50**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 10**
 
-and that it is He who destroyed the ancient [tribes of] Ad
+in mind will keep it he who stands in awe [of God],
  <!--END_SECTION:quran-->
 
   
