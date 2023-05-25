@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 117**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 5**
 
-[Whereupon] he prayed: “O my Sustainer! Behold, my people have given me the lie:
+every human being will [at last] comprehend, what he has sent ahead and what he has held back [in this world].
  <!--END_SECTION:quran-->
 
   
