@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 17**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 117**
 
-Let, then, the deniers of the truth have their will: let them have their will for a little while.
+[Whereupon] he prayed: “O my Sustainer! Behold, my people have given me the lie:
  <!--END_SECTION:quran-->
 
   
