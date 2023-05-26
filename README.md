@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 43**
+**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 6**
 
-[But] how couldst thou tell anything about it,
+[an angel] endowed with sur­passing power, who in time manifested himself in his true shape and nature,
  <!--END_SECTION:quran-->
 
   
