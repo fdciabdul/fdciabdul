@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 23**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 36**
 
-However, as for him who turns away, being bent on denying the truth,
+nor be allowed to proffer excuses!
  <!--END_SECTION:quran-->
 
   
