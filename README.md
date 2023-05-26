@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 25**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 43**
 
-Said [Moses]: "O my Sustainer! Open up my heart [to Thy light],
+Hast thou ever considered [the kind of man] who makes his own desires his deity? Couldst thou, then, [O Prophet,] be held responsible for him?
  <!--END_SECTION:quran-->
 
   
