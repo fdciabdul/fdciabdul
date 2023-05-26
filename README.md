@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 49**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 61**
 
-And, behold, well do We know that among you are such as will give the lie to it:
+AND LO! We said unto the angels, "Prostrate yourselves before Adam"-whereupon they all prostrated themselves, save Iblis. Said he: "Shall I prostrate myself before one whom Thou hast created out of clay?"
  <!--END_SECTION:quran-->
 
   
