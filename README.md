@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 71: سُورَةُ نُوحٍ (Nooh) - 8**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 14**
 
-"And behold I called unto them openly;
+whereas, behold, the wicked will indeed be in a blazing fire –
  <!--END_SECTION:quran-->
 
   
