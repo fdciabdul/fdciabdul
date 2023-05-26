@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 52**
+**Surah 95: سُورَةُ التِّينِ (At-Tin) - 1**
 
-THIS IS A MESSAGE unto all mankind. Hence, let them be warned thereby, and let them know that He is the One and Only God; and let those who are endowed with insight take this to heart!
+CONSIDER the fig and the olive,
  <!--END_SECTION:quran-->
 
   
