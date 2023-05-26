@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 15**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 15**
 
-in sublime almightiness enthroned,
+And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –
  <!--END_SECTION:quran-->
 
   
