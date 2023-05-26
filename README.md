@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 1**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
 
-SAY: "O you who deny the truth!
+SAY: "I seek refuge with the Sustainer of the rising dawn,
  <!--END_SECTION:quran-->
 
   
