@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 52**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 5**
 
-[To them shall happen.] the like of what happened to Pharaoh's people and those who lived before them: they denied the truth of God's messagesand so God took them to task for their sins. Verily, God is powerful, severe in retribution!
+thereby storming [blindly] into any host!
  <!--END_SECTION:quran-->
 
   
