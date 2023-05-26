@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 15**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 17**
 
-And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –
+"Now, what is this in thy right hand, O Moses?"
  <!--END_SECTION:quran-->
 
   
