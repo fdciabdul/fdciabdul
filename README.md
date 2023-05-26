@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 4**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 13**
 
-and yet overtake [one another] with swift overtaking:
+Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.
  <!--END_SECTION:quran-->
 
   
