@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 6**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 8**
 
-O MAN! What is it that lures thee away from thy bountiful Sustainer,
+and who give food - however great be their own want of it - unto the needy, and the orphan, and the captive,
  <!--END_SECTION:quran-->
 
   
