@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 9**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 48**
 
-for what crime she had been slain,
+And he will impart unto thy son revelation, and wisdom, and the Torah, and the Gospel,
  <!--END_SECTION:quran-->
 
   
