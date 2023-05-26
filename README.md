@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 95: سُورَةُ التِّينِ (At-Tin) - 1**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
 
-CONSIDER the fig and the olive,
+"from the evil of aught that He has created,
  <!--END_SECTION:quran-->
 
   
