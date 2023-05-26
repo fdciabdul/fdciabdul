@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 6**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 27**
 
-Nay, verily, man becomes grossly overweening
+for it is composed of all that is most exalting
  <!--END_SECTION:quran-->
 
   
