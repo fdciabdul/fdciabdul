@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 1**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 121**
 
-ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!
+Such as these have hell for their goal: and they shall find no way to escape therefrom.
  <!--END_SECTION:quran-->
 
   
