@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 280**
+**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 9**
 
-If, however, [the debtor] is in straitened circumstances, [grant him] a delay until a time of ease; and it would be for your own good -if you but knew it -to remit [the debt entirely] by way of charity.
+O YOU who have attained to faith! When the call to prayer is sounded on the day of congregation, hasten to the remembrance of God, and leave all worldly commerce: this is for your own good, if you but knew it.
  <!--END_SECTION:quran-->
 
   
