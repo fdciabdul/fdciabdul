@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 34**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 67**
 
-and a cup [of happiness] overflowing.
+But as against this - anyone who repents and attains to faith and does righteous deeds may well [hope to] find himself among those who achieve a happy state [in the life to come].
  <!--END_SECTION:quran-->
 
   
