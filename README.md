@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 11: سُورَةُ هُودٍ (Hud) - 61**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 37**
 
-AND UNTO [the tribe of] Thamud [We sent] their brother Salih. He said: "O my people! Worship God [alone]: you have no deity other than Him. He brought you into being out of the earth, and made you thrive thereon. Ask Him, therefore, to forgive you your sins, and then turn towards Him in repentance-for, verily, my Sustainer is ever-near, responding [to the call of whoever calls unto Him]!"
+Thus, then, have We bestowed from on high this [divine writ] as an ordinance in the Arabic tongue. And, indeed, if thou shouldst defer to men's likes and dislikes after all the [divine] knowledge that has come unto thee, thou wouldst have none to protect thee from God, and none to shield thee [from Him].
  <!--END_SECTION:quran-->
 
   
