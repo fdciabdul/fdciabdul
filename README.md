@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 26**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 9**
 
-Eat, then, and drink, and let thine eye be gladdened! And if thou shouldst see any human being, convey this unto him: `Behold, abstinence from speech have I vowed unto the Most Gracious; hence, I may not speak today to any mortal.
+to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.
  <!--END_SECTION:quran-->
 
   
