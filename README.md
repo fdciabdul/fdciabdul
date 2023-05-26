@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 30**
+**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 52**
 
-[And] he prayed: “O my Sustainer! Succour Thou me against these people who spread corrup­tion!”
+[To them shall happen.] the like of what happened to Pharaoh's people and those who lived before them: they denied the truth of God's messagesand so God took them to task for their sins. Verily, God is powerful, severe in retribution!
  <!--END_SECTION:quran-->
 
   
