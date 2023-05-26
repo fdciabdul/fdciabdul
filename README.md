@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 70**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 126**
 
-NOW, INDEED, We have conferred dignity on the children of Adam, and borne them over land and sea, and provided for them sustenance out of the good things of life, and favoured them far above most of Our creation:
+For, unto God belongs all that is in the heavens and all that is on earth; and, indeed, God encompasses everything.
  <!--END_SECTION:quran-->
 
   
