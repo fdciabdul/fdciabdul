@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
 
-"And I will not worship ~hat which you have [ever] worshipped,
+BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
  <!--END_SECTION:quran-->
 
   
