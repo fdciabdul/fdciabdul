@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 13**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 27**
 
-Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.
+and people ask, "Is there any wizard [that could save him]?"
  <!--END_SECTION:quran-->
 
   
