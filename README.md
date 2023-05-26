@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 2**
+**Surah 50: سُورَةُ قٓ (Qaaf) - 1**
 
-THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the Wise.
+Qaf. CONSIDER this sublime Qur’an!
  <!--END_SECTION:quran-->
 
   
