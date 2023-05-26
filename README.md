@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 108: سُورَةُ الكَوۡثَرِ (Al-Kawthar) - 1**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 31**
 
-BEHOLD, We have bestowed upon thee good in abundance:
+We are close unto you in the life of this world and [will be so] in the life to come; and in that [life to come] you shall have all that your souls may desire, and in it you shall have all that you ever prayed for,
  <!--END_SECTION:quran-->
 
   
