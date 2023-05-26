@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 10**
+**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 47**
 
-And yet, verily, there are ever-watchful forces over you,
+AND IT IS We who have built the universe with [Our creative] power; and, verily, it is We who are steadily expanding it.
  <!--END_SECTION:quran-->
 
   
