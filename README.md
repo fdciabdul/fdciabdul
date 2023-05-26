@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 4**
+**Surah 19: سُورَةُ مَرۡيَمَ (Maryam) - 26**
 
-and who are intent on inner purity;
+Eat, then, and drink, and let thine eye be gladdened! And if thou shouldst see any human being, convey this unto him: `Behold, abstinence from speech have I vowed unto the Most Gracious; hence, I may not speak today to any mortal.
  <!--END_SECTION:quran-->
 
   
