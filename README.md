@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 9**
+**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 17**
 
-to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.
+Said he: “O my Sustainer! [I vow] by all the blessings which Thou hast bestowed on me: Never­more shall I aid such as are lost in sin!”
  <!--END_SECTION:quran-->
 
   
