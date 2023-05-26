@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 4**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 15**
 
-Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!
+in sublime almightiness enthroned,
  <!--END_SECTION:quran-->
 
   
