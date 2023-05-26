@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 44**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 17**
 
-Or do they say, “We are a group united, [and therefore] bound to prevail”?
+[and so] I shall constrain him to endure a painful uphill climb!
  <!--END_SECTION:quran-->
 
   
