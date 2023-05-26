@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 11**
+**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 42**
 
-and of thy Sustainer's blessings shalt thou [ever] speak.
+verily, thou shalt have no power over My creatures- unless it be such as are [already] lost in grievous error and follow thee [of their own will]:
  <!--END_SECTION:quran-->
 
   
