@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 28**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 9**
 
-to everyone of you who wills to walk a straight way.
+for what crime she had been slain,
  <!--END_SECTION:quran-->
 
   
