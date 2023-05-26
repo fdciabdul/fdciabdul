@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 66: سُورَةُ التَّحۡرِيمِ (At-Tahrim) - 5**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 4**
 
-[O wives of the Prophet!] Were he to divorce [any of] you, God might well give him in your stead spouses better than you - women who surrender themselves unto God, who truly believe, devoutly obey His will, turn [unto Him] in repentance [whenever they have sinned] worship [Him alone] and go on and on [seeking His goodly acceptance] - be they women previously married or virgins.
+and yet overtake [one another] with swift overtaking:
  <!--END_SECTION:quran-->
 
   
