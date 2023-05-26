@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 24**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 30**
 
-without (adding], "if God so wills." And if thou shouldst forget [thyself at the time, and become aware of it later], call thy Sustainer to mind and say: "I pray that my Sustainer guide me, even closer than this, to a consciousness of what is right!"
+Thereupon the command will go forth:] "Lay hold of him, and shackle him,
  <!--END_SECTION:quran-->
 
   
