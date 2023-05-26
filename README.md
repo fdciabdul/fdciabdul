@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 61**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 33**
 
-AND LO! We said unto the angels, "Prostrate yourselves before Adam"-whereupon they all prostrated themselves, save Iblis. Said he: "Shall I prostrate myself before one whom Thou hast created out of clay?"
+IS, THEN, HE who has every living being in His almighty care, [dealing with each] according to what it deserves -[is, then, He like anything else that exists]? And yet, they ascribe to other beings a share in God's divinity! Say: "Give them any name [you please]: but do you [really think that you could] inform Him of anything on earth that He does not know-or [do you] but play with words?, Nay, goodly seems their false imagery to those who are bent on denying the truth, and so they are turned away from the [right] path: and he whom God lets go astray can never find any guide.
  <!--END_SECTION:quran-->
 
   
