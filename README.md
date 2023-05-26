@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 102**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 4**
 
-O you who have attained to faith! Be conscious of God with all the consciousness that is due to Him, and do not allow death to overtake you ere you have surrendered yourselves unto Him.
+Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!
  <!--END_SECTION:quran-->
 
   
