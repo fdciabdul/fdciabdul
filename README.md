@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 34**
 
-and thou seest people enter God's religion in hosts,
+and a cup [of happiness] overflowing.
  <!--END_SECTION:quran-->
 
   
