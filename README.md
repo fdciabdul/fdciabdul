@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 48**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 10**
 
-And he will impart unto thy son revelation, and wisdom, and the Torah, and the Gospel,
+He who desires might and glory [ought to know that] all might and glory belong to God [alone]. Unto Him ascend all good words, and the righteous deed does He exalt. But as for those who cunningly devise evil deeds - suffering severe awaits them; and all their devising is bound to come to nought.
  <!--END_SECTION:quran-->
 
   
