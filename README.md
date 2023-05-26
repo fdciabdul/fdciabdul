@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
+**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
 
-SAY: "I seek refuge with the Sustainer of the rising dawn,
+HAVE WE NOT opened up thy heart,
  <!--END_SECTION:quran-->
 
   
