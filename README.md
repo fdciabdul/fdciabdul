@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 71**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 18**
 
-And yet they [who claim to believe in Him often] worship [other beings or forces] beside God - something for which He has never bestoweed any warrant from on high, and [of the reality] whereof they cannot have any knowledge: and such evildoers shall have none to succour them [on Judgment Day].
+till, when they came upon a valley [full] of ants, an ant exclaimed: “O you ants! Get into your dwellings, lest Solomon and his hosts crush you without [even] being aware [of you]!”
  <!--END_SECTION:quran-->
 
   
