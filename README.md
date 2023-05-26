@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 8**
+**Surah 22: سُورَةُ الحَجِّ (Al-Hajj) - 71**
 
-and who are faithful to their trusts and to their pledges,
+And yet they [who claim to believe in Him often] worship [other beings or forces] beside God - something for which He has never bestoweed any warrant from on high, and [of the reality] whereof they cannot have any knowledge: and such evildoers shall have none to succour them [on Judgment Day].
  <!--END_SECTION:quran-->
 
   
