@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 54**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 22**
 
-THUS, INDEED, have We given in this Qur'an many facets to every kind of lesson [designed] for [the benefit of] mankind. However, man is, above all else, always given to contention:
+Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?
  <!--END_SECTION:quran-->
 
   
