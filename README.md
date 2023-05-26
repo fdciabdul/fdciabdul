@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 89: سُورَةُ الفَجۡرِ (Al-Fajr) - 19**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 10**
 
-and you devour the inheritance [of others] with devouring greed,
+And yet, verily, there are ever-watchful forces over you,
  <!--END_SECTION:quran-->
 
   
