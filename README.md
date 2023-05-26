@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 30**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 16**
 
-Thereupon the command will go forth:] "Lay hold of him, and shackle him,
+and which they shall not [be able to] evade.
  <!--END_SECTION:quran-->
 
   
