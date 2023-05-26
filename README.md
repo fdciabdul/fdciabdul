@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 66**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 52**
 
-and if they would but truly observe the Torah and the Gospel and all [the revelation] that has been bestowed from on high upon them by their Sustainer, they would indeed partake of all the blessings of heaven and earth. Some of them do pursue a right course; but as for most of them -vile indeed is what they do!
+THIS IS A MESSAGE unto all mankind. Hence, let them be warned thereby, and let them know that He is the One and Only God; and let those who are endowed with insight take this to heart!
  <!--END_SECTION:quran-->
 
   
