@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 62: سُورَةُ الجُمُعَةِ (Al-Jumu'a) - 9**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 19**
 
-O YOU who have attained to faith! When the call to prayer is sounded on the day of congregation, hasten to the remembrance of God, and leave all worldly commerce: this is for your own good, if you but knew it.
+And what could make thee conceive what that mode most lofty will be?
  <!--END_SECTION:quran-->
 
   
