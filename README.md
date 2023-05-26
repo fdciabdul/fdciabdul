@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 13**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 30**
 
-God - there is no deity save Him! In God then let the believers place their trust.
+[And] he prayed: “O my Sustainer! Succour Thou me against these people who spread corrup­tion!”
  <!--END_SECTION:quran-->
 
   
