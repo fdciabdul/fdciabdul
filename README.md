@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 20**
 
-HAVE WE NOT opened up thy heart,
+it swept the people away as though they were palm-trunks uprooted:
  <!--END_SECTION:quran-->
 
   
