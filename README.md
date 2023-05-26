@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 11**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 44**
 
-You are to believe in God and His Apostle, and to strive hard in God's cause with your possessions and your lives: this is for your own good - if you but knew it!
+Or do they say, “We are a group united, [and therefore] bound to prevail”?
  <!--END_SECTION:quran-->
 
   
