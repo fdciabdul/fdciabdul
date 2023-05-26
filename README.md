@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 1**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 11**
 
-Oh, the chargers that run panting,
+You are to believe in God and His Apostle, and to strive hard in God's cause with your possessions and your lives: this is for your own good - if you but knew it!
  <!--END_SECTION:quran-->
 
   
