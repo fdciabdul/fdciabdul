@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 3**
+**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 12**
 
-Consider the day as it reveals the world,
+O Prophet! Whenever believing women come unto thee to pledge their allegiance to thee, [pledging] that [henceforth] they would not ascribe divinity, in any way, to aught but God, and would not steal, and would not commit adultery, and would not kill their children, and would not indulge in slander, falsely devising it out of nothingness: and would not disobey thee in anything [that thou declarest to be] right - then accept their pledge of allegiance, and pray to God to forgive them their [past] sins: for, behold, God is much-forgiving, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
