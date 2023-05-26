@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 14**
+**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 128**
 
-whereas, behold, the wicked will indeed be in a blazing fire –
+AND ON THE DAY when He shall gather them [all] together, [He will say:] "O you who have lived in close communion with [evil] invisible beings! A great many [other] human beings have you ensnared! And those of the humans who were close to them will say: "O our Sustainer! We did enjoy one another's fellowship [in life]; but (now that] we have reached the end of our term-the term which Thou hast laid down for us - (we see the error of our ways]!" [But] He will say: "The fire shall be your abode, therein to abide-unless God wills it otherwise." Verily, thy Sustainer is wise, all-knowing.
  <!--END_SECTION:quran-->
 
   
