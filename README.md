@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 12**
+**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 2**
 
-or is concerned with God-consciousness?
+and thou seest people enter God's religion in hosts,
  <!--END_SECTION:quran-->
 
   
