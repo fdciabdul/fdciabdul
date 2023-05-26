@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 6: سُورَةُ الأَنۡعَامِ (Al-An'aam) - 128**
+**Surah 11: سُورَةُ هُودٍ (Hud) - 61**
 
-AND ON THE DAY when He shall gather them [all] together, [He will say:] "O you who have lived in close communion with [evil] invisible beings! A great many [other] human beings have you ensnared! And those of the humans who were close to them will say: "O our Sustainer! We did enjoy one another's fellowship [in life]; but (now that] we have reached the end of our term-the term which Thou hast laid down for us - (we see the error of our ways]!" [But] He will say: "The fire shall be your abode, therein to abide-unless God wills it otherwise." Verily, thy Sustainer is wise, all-knowing.
+AND UNTO [the tribe of] Thamud [We sent] their brother Salih. He said: "O my people! Worship God [alone]: you have no deity other than Him. He brought you into being out of the earth, and made you thrive thereon. Ask Him, therefore, to forgive you your sins, and then turn towards Him in repentance-for, verily, my Sustainer is ever-near, responding [to the call of whoever calls unto Him]!"
  <!--END_SECTION:quran-->
 
   
