@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 20**
+**Surah 64: سُورَةُ التَّغَابُنِ (At-Taghaabun) - 13**
 
-it swept the people away as though they were palm-trunks uprooted:
+God - there is no deity save Him! In God then let the believers place their trust.
  <!--END_SECTION:quran-->
 
   
