@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 17**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 6**
 
-[and so] I shall constrain him to endure a painful uphill climb!
+Nay, verily, man becomes grossly overweening
  <!--END_SECTION:quran-->
 
   
