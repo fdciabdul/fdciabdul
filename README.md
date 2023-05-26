@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 2**
+**Surah 5: سُورَةُ المَائـِدَةِ (Al-Maaida) - 66**
 
-O YOU who have attained to faith! Why do you say one thing and do another?
+and if they would but truly observe the Torah and the Gospel and all [the revelation] that has been bestowed from on high upon them by their Sustainer, they would indeed partake of all the blessings of heaven and earth. Some of them do pursue a right course; but as for most of them -vile indeed is what they do!
  <!--END_SECTION:quran-->
 
   
