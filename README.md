@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 12**
+**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 9**
 
-O Prophet! Whenever believing women come unto thee to pledge their allegiance to thee, [pledging] that [henceforth] they would not ascribe divinity, in any way, to aught but God, and would not steal, and would not commit adultery, and would not kill their children, and would not indulge in slander, falsely devising it out of nothingness: and would not disobey thee in anything [that thou declarest to be] right - then accept their pledge of allegiance, and pray to God to forgive them their [past] sins: for, behold, God is much-forgiving, a dispenser of grace.
+and then He forms him in accordance with what he is meant to be, and breathes into him of His spirit: and [thus, O men,] He endows you with hearing, and sight, and feelings as well as minds: [yet] how seldom are you grateful!
  <!--END_SECTION:quran-->
 
   
