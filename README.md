@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 19**
+**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 12**
 
-Are then they [who deny the truth] not aware of how God creates [life] in the first instance, and then brings it forth anew? This, verily, is easy for God!
+or is concerned with God-consciousness?
  <!--END_SECTION:quran-->
 
   
