@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 14**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 4**
 
-ART THOU NOT aware of those who would be friends with people whom God has condemned? They are neither of you [O believers] nor of those [who utterly reject the truth]: and so they swear to a falsehood the while they know [it to be false].
+"And I will not worship ~hat which you have [ever] worshipped,
  <!--END_SECTION:quran-->
 
   
