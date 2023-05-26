@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 32**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
 
-They replied: "Limitless art Thou in Thy glory! No knowledge have we save that which Thou hast imparted unto us. Verily, Thou alone art all-knowing, truly wise."
+unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
  <!--END_SECTION:quran-->
 
   
