@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 8**
 
-CONSIDER the flight of time!
+and who are faithful to their trusts and to their pledges,
  <!--END_SECTION:quran-->
 
   
