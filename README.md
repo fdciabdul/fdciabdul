@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 22**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 28**
 
-Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?
+to everyone of you who wills to walk a straight way.
  <!--END_SECTION:quran-->
 
   
