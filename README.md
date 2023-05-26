@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
+**Surah 71: سُورَةُ نُوحٍ (Nooh) - 8**
 
-SAY: "I seek refuge with the Sustainer of the rising dawn,
+"And behold I called unto them openly;
  <!--END_SECTION:quran-->
 
   
