@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
+**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 102**
 
-SAY: "I seek refuge with the Sustainer of the rising dawn,
+O you who have attained to faith! Be conscious of God with all the consciousness that is due to Him, and do not allow death to overtake you ere you have surrendered yourselves unto Him.
  <!--END_SECTION:quran-->
 
   
