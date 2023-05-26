@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 17**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 1**
 
-Said he: “O my Sustainer! [I vow] by all the blessings which Thou hast bestowed on me: Never­more shall I aid such as are lost in sin!”
+ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!
  <!--END_SECTION:quran-->
 
   
