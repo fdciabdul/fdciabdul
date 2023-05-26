@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 32: سُورَةُ السَّجۡدَةِ (As-Sajda) - 9**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 4**
 
-and then He forms him in accordance with what he is meant to be, and breathes into him of His spirit: and [thus, O men,] He endows you with hearing, and sight, and feelings as well as minds: [yet] how seldom are you grateful!
+And thine inner self purify!
  <!--END_SECTION:quran-->
 
   
