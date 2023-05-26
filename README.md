@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 5**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 17**
 
-"who whispers in the hearts of men
+And what could make thee conceive what that Judgment Day will be?
  <!--END_SECTION:quran-->
 
   
