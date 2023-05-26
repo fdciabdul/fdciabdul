@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 31**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 25**
 
-We are close unto you in the life of this world and [will be so] in the life to come; and in that [life to come] you shall have all that your souls may desire, and in it you shall have all that you ever prayed for,
+Said [Moses]: "O my Sustainer! Open up my heart [to Thy light],
  <!--END_SECTION:quran-->
 
   
