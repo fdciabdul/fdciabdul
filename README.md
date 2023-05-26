@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 3**
+**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 2**
 
-unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.
+All praise is due to God alone, the Sustainer of all the worlds,
  <!--END_SECTION:quran-->
 
   
