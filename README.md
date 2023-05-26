@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 11**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 18**
 
-WHO IS IT that will offer up unto God a goodly loan, which He will amply repay For, such [as do so] shall have a noble reward
+Which, then, of your Sustain­er’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
