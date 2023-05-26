@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 28**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
 
-And it is He who sends down rain after [men] have lost all hope, and unfolds His grace [thereby]: for He alone is [their] Protector, the One to whom all praise is due.
+SAY: "I seek refuge with the Sustainer of the rising dawn,
  <!--END_SECTION:quran-->
 
   
