@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 17**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 2**
 
-And what could make thee conceive what that Judgment Day will be?
+O YOU who have attained to faith! Why do you say one thing and do another?
  <!--END_SECTION:quran-->
 
   
