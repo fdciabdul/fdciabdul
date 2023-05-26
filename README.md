@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 42**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 53**
 
-verily, thou shalt have no power over My creatures- unless it be such as are [already] lost in grievous error and follow thee [of their own will]:
+In time We shall make them fully understand Our messages [through what they perceive] in the utmost horizons [of the universe] and within them­selves, so that it will become clear unto them that this [revelation] is indeed the truth. [Still,] is it not enough [for them to know] that thy Sustainer is witness unto everything?
  <!--END_SECTION:quran-->
 
   
