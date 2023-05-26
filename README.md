@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 37**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 32**
 
-Thus, then, have We bestowed from on high this [divine writ] as an ordinance in the Arabic tongue. And, indeed, if thou shouldst defer to men's likes and dislikes after all the [divine] knowledge that has come unto thee, thou wouldst have none to protect thee from God, and none to shield thee [from Him].
+Now they who are bent on denying the truth are wont to ask. “Why has not the Qur’an been bestowed on him from on high in one single re­velation?” [it has been revealed] in this manner so that We might strengthen thy heart thereby - for We have so arranged its component parts that they form one consistent whole -
  <!--END_SECTION:quran-->
 
   
