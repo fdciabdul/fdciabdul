@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 43**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 280**
 
-Hast thou ever considered [the kind of man] who makes his own desires his deity? Couldst thou, then, [O Prophet,] be held responsible for him?
+If, however, [the debtor] is in straitened circumstances, [grant him] a delay until a time of ease; and it would be for your own good -if you but knew it -to remit [the debt entirely] by way of charity.
  <!--END_SECTION:quran-->
 
   
