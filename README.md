@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 19**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
 
-And what could make thee conceive what that mode most lofty will be?
+CONSIDER the flight of time!
  <!--END_SECTION:quran-->
 
   
