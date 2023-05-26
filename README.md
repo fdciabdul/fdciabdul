@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 53: سُورَةُ النَّجۡمِ (An-Najm) - 6**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 12**
 
-[an angel] endowed with sur­passing power, who in time manifested himself in his true shape and nature,
+he who [in the life to come] shall have to endure the great fire
  <!--END_SECTION:quran-->
 
   
