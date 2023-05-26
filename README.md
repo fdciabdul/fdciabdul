@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 5**
+**Surah 25: سُورَةُ الفُرۡقَانِ (Al-Furqaan) - 57**
 
-Thee alone do we worship; and unto Thee alone do we turn for aid.
+Say: “For this, no reward do I ask of you [- no reward] other than that he who so wills may unto his Sustainer find a way!”
  <!--END_SECTION:quran-->
 
   
