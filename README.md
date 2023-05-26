@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 54**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 2**
 
-IT IS GOD who creates you [all in a states of weak­ness, and then, after weakness, ordains strength [for you], and then, after [a period of] strength, ordains [old-age] weakness and grey hair. He creates what He wills; and He alone is all-knowing, infinite in His power.
+THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the Wise.
  <!--END_SECTION:quran-->
 
   
