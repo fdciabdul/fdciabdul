@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 51: سُورَةُ الذَّارِيَاتِ (Adh-Dhaariyat) - 47**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 70**
 
-AND IT IS We who have built the universe with [Our creative] power; and, verily, it is We who are steadily expanding it.
+NOW, INDEED, We have conferred dignity on the children of Adam, and borne them over land and sea, and provided for them sustenance out of the good things of life, and favoured them far above most of Our creation:
  <!--END_SECTION:quran-->
 
   
