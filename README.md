@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 17**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 24**
 
-"Now, what is this in thy right hand, O Moses?"
+without (adding], "if God so wills." And if thou shouldst forget [thyself at the time, and become aware of it later], call thy Sustainer to mind and say: "I pray that my Sustainer guide me, even closer than this, to a consciousness of what is right!"
  <!--END_SECTION:quran-->
 
   
