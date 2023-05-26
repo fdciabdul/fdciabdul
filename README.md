@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 34**
+**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 6**
 
-and, indeed, if you pay heed to a mortal like your­selves, you will surely be the losers!
+O MAN! What is it that lures thee away from thy bountiful Sustainer,
  <!--END_SECTION:quran-->
 
   
