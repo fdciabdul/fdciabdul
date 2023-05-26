@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 1**
+**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
 
-BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.
+SAY: "I seek refuge with the Sustainer of the rising dawn,
  <!--END_SECTION:quran-->
 
   
