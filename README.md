@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 12**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 1**
 
-he who [in the life to come] shall have to endure the great fire
+SAY: "O you who deny the truth!
  <!--END_SECTION:quran-->
 
   
