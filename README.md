@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 1: سُورَةُ ٱلْفَاتِحَةِ (Al-Faatiha) - 2**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 17**
 
-All praise is due to God alone, the Sustainer of all the worlds,
+Neither their worldly possessions nor their offspring will be of the least avail to them against God: it is they who are destined for the fire, therein to abide!
  <!--END_SECTION:quran-->
 
   
