@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 110: سُورَةُ النَّصۡرِ (An-Nasr) - 3**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 53**
 
-extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.
+Which, then, of your Sustainer s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
