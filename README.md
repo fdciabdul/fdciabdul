@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 1**
+**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 19**
 
-CONSIDER the flight of time!
+Behold, We let loose upon them a raging storm wind on a day of bitter misfortune:
  <!--END_SECTION:quran-->
 
   
