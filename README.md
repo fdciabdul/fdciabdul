@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 18**
+**Surah 93: سُورَةُ الضُّحَىٰ (Ad-Dhuhaa) - 11**
 
-Which, then, of your Sustain­er’s powers can you disavow?
+and of thy Sustainer's blessings shalt thou [ever] speak.
  <!--END_SECTION:quran-->
 
   
