@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 126**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 29**
 
-For, unto God belongs all that is in the heavens and all that is on earth; and, indeed, God encompasses everything.
+(It is) they who [truly] follow God’s revelation, and are constant in prayer, and spend on others, secretly and openly, out of what We provide for them as sustenance - it is they who may look forward to a bargain that can never fail,
  <!--END_SECTION:quran-->
 
   
