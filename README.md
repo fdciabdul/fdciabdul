@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 2**
+**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 74**
 
-"from the evil of aught that He has created,
+And 'had We not made thee firm [in faith], thou might have inclined to them a. little
  <!--END_SECTION:quran-->
 
   
