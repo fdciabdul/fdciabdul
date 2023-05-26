@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 4**
+**Surah 29: سُورَةُ العَنكَبُوتِ (Al-Ankaboot) - 19**
 
-And thine inner self purify!
+Are then they [who deny the truth] not aware of how God creates [life] in the first instance, and then brings it forth anew? This, verily, is easy for God!
  <!--END_SECTION:quran-->
 
   
