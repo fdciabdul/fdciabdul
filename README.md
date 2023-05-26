@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 50: سُورَةُ قٓ (Qaaf) - 1**
+**Surah 57: سُورَةُ الحَدِيدِ (Al-Hadid) - 11**
 
-Qaf. CONSIDER this sublime Qur’an!
+WHO IS IT that will offer up unto God a goodly loan, which He will amply repay For, such [as do so] shall have a noble reward
  <!--END_SECTION:quran-->
 
   
