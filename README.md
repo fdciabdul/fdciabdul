@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 18**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 34**
 
-till, when they came upon a valley [full] of ants, an ant exclaimed: “O you ants! Get into your dwellings, lest Solomon and his hosts crush you without [even] being aware [of you]!”
+and, indeed, if you pay heed to a mortal like your­selves, you will surely be the losers!
  <!--END_SECTION:quran-->
 
   
