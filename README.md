@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 82: سُورَةُ الانفِطَارِ (Al-Infitaar) - 16**
+**Surah 91: سُورَةُ الشَّمۡسِ (Ash-Shams) - 3**
 
-and which they shall not [be able to] evade.
+Consider the day as it reveals the world,
  <!--END_SECTION:quran-->
 
   
