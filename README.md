@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 17: سُورَةُ الإِسۡرَاءِ (Al-Israa) - 74**
+**Surah 97: سُورَةُ القَدۡرِ (Al-Qadr) - 4**
 
-And 'had We not made thee firm [in faith], thou might have inclined to them a. little
+in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen
  <!--END_SECTION:quran-->
 
   
