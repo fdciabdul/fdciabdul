@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 121**
+**Surah 2: سُورَةُ البَقَرَةِ (Al-Baqara) - 32**
 
-Such as these have hell for their goal: and they shall find no way to escape therefrom.
+They replied: "Limitless art Thou in Thy glory! No knowledge have we save that which Thou hast imparted unto us. Verily, Thou alone art all-knowing, truly wise."
  <!--END_SECTION:quran-->
 
   
