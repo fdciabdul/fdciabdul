@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 53**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 13**
 
-Which, then, of your Sustainer s powers can you disavow?
+Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.
  <!--END_SECTION:quran-->
 
   
