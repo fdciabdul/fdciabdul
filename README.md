@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 29**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 43**
 
-(It is) they who [truly] follow God’s revelation, and are constant in prayer, and spend on others, secretly and openly, out of what We provide for them as sustenance - it is they who may look forward to a bargain that can never fail,
+[But] how couldst thou tell anything about it,
  <!--END_SECTION:quran-->
 
   
