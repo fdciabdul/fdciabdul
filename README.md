@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 27**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 54**
 
-and people ask, "Is there any wizard [that could save him]?"
+THUS, INDEED, have We given in this Qur'an many facets to every kind of lesson [designed] for [the benefit of] mankind. However, man is, above all else, always given to contention:
  <!--END_SECTION:quran-->
 
   
