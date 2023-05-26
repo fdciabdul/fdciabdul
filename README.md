@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 28: سُورَةُ القَصَصِ (Al-Qasas) - 67**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 23**
 
-But as against this - anyone who repents and attains to faith and does righteous deeds may well [hope to] find himself among those who achieve a happy state [in the life to come].
+However, as for him who turns away, being bent on denying the truth,
  <!--END_SECTION:quran-->
 
   
