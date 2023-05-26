@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 54: سُورَةُ القَمَرِ (Al-Qamar) - 19**
+**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 14**
 
-Behold, We let loose upon them a raging storm wind on a day of bitter misfortune:
+ART THOU NOT aware of those who would be friends with people whom God has condemned? They are neither of you [O believers] nor of those [who utterly reject the truth]: and so they swear to a falsehood the while they know [it to be false].
  <!--END_SECTION:quran-->
 
   
