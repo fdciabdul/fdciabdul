@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 23**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 15**
 
-VERILY, [O believer,] it is We who have bestowed from on high this Qur’an upon thee, step by step - truly a bestowal from on high!
+[And God] replied: "Verily, thou shalt be among those who are granted a respite."
  <!--END_SECTION:quran-->
 
   
