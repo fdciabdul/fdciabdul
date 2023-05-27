@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 10: سُورَةُ يُونُسَ (Yunus) - 90**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 44**
 
-And We brought the children of Israel across the sea; and thereupon Pharaoh and his hosts pursued them with vehement insolence and tyranny, until [they were overwhelmed by the waters of the sea. And] when he was about to drown, [Pharaoh] exclaimed: "I have come to believe that there is no deity save Him in whom the children of Israel believe, and I am of those who surrender themselves unto Him!"
+And We sent forth Our apostles, one after another: [and] every time their apostle came to a community, they gave him the lie: and so We caused them to follow one another [into the grave], and let them become [mere] tales: and so - away with the folk who would not believe!
  <!--END_SECTION:quran-->
 
   
