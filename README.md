@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 17**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 10**
 
-Or can you ever feel secure that He who is in heaven will not let loose against you a deadly stormwind, whereupon you would come to know how [true] My warning was?
+And spend on others out of what We have provided for you as sustenance, ere there come a time when death approaches any of you, and he then says, "O my Sustainer! If only Thou wouldst grant me a delay for a short while, so that I could give in charity and be among the righteous!"
  <!--END_SECTION:quran-->
 
   
