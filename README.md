@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 8**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 49**
 
-who hears God’s messages when they are conveyed to him, and yet, as though he had not heard them, persists in his haughty disdain! Hence, announce unto him grievous suffering –
+MAN NEVER TIRES of asking for the good [things of life]; and if evil fortune touches him, he abandons all hope, giving himself up to despair.
  <!--END_SECTION:quran-->
 
   
