@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 7**
+**Surah 76: سُورَةُ الإِنسَانِ (Al-Insaan) - 23**
 
-issuing from between the loins [of man] and the pelvic arch [of woman].
+VERILY, [O believer,] it is We who have bestowed from on high this Qur’an upon thee, step by step - truly a bestowal from on high!
  <!--END_SECTION:quran-->
 
   
