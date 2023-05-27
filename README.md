@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 40**
+**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 25**
 
-Behold, this [Qur’an] is indeed the [inspired] word of a noble apostle,
+Which, then, of your Sustainer’s powers can you disavow?
  <!--END_SECTION:quran-->
 
   
