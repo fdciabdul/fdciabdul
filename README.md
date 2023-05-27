@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 96: سُورَةُ العَلَقِ (Al-Alaq) - 19**
+**Surah 59: سُورَةُ الحَشۡرِ (Al-Hashr) - 24**
 
-Nay, pay thou no heed to him, but prostrate thyself [before God] and draw close [unto Him]!
+He is God, the Creator, the Maker who shapes all forms and appearances! His [alone] are the attributes of perfection. All that is in the heavens and on earth extols His limitless glory: for He alone is almighty, truly wise!
  <!--END_SECTION:quran-->
 
   
