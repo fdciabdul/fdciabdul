@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 47**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 7**
 
-[And the word will be spoken:] “Seize him, [O you forces of hell,] and drag him into the midst of the blazing fire:
+for him shall We make easy the path towards [ultimate] ease.
  <!--END_SECTION:quran-->
 
   
