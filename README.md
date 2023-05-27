@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 183**
+**Surah 45: سُورَةُ الجَاثِيَةِ (Al-Jaathiya) - 8**
 
-and do not deprive people of what is rightfully theirs; and do not act wickedly on earth by spreading corruption,
+who hears God’s messages when they are conveyed to him, and yet, as though he had not heard them, persists in his haughty disdain! Hence, announce unto him grievous suffering –
  <!--END_SECTION:quran-->
 
   
