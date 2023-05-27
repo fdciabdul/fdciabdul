@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 15: سُورَةُ الحِجۡرِ (Al-Hijr) - 94**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 36**
 
-Hence, proclaim openly all that thou hast been bidden [to say], and leave alone all those who ascribe divinity to aught beside God:
+"Are these deniers of the truth being [thus] requited for [aught but] what they were wont to do?"
  <!--END_SECTION:quran-->
 
   
