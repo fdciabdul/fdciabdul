@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 8: سُورَةُ الأَنفَالِ (Al-Anfaal) - 25**
+**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 1**
 
-And beware of that temptation to evil which does not befall only those among you who are bent on denying the truth, to the exclusion of others; and know that God is severe in retribution.
+HAST THOU ever considered [the kind of man] who gives the lie to all moral law?
  <!--END_SECTION:quran-->
 
   
