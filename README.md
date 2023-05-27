@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 94: سُورَةُ الشَّرۡحِ (Ash-Sharh) - 1**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 6**
 
-HAVE WE NOT opened up thy heart,
+But among men there is many a one that prefers a mere play with words [to divine guidance], so as to lead [those] without knowledge astray from the path of God, and to turn it to ridicule: for such there is shameful suffering in store.
  <!--END_SECTION:quran-->
 
   
