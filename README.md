@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 20**
 
-Thus, He let loose upon them great swarms of flying creatures
+[And] is there any, besides the Most Gracious, that could be a shield for you, and could succour you [against danger]? They who deny this truth are but lost in self- delusion!
  <!--END_SECTION:quran-->
 
   
