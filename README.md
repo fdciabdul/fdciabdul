@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 20: سُورَةُ طه (Taa-Haa) - 53**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 40**
 
-HE IT IS who has made the earth a cradle for you, and has traced out for you ways [of livelihood] thereon, and [who] sends down waters from the sky: and by this means We bring forth various kinds of plants.
+CANST THOU, perchance, [O Muhammad,] make the deaf hear, or show the right way to the blind or to such as are obviously lost in error?
  <!--END_SECTION:quran-->
 
   
