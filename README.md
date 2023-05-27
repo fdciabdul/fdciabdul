@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 2**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 3**
 
-Defeated have been the Byzantines
+rushing to assault at morn,
  <!--END_SECTION:quran-->
 
   
