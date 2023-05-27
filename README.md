@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 114**
+**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 23**
 
-Answered [Pharaoh]: "Yes; and, verily, you shall be among those who are near unto me."
+such being God’s way which has ever obtained in the past - and never wilt thou find any change in God’s way!
  <!--END_SECTION:quran-->
 
   
