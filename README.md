@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 17**
+**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 7**
 
-nor is this difficult for God.
+VERILY, [O man,] the suffering decreed by thy Sustainer [for the sinners] will indeed come to pass:
  <!--END_SECTION:quran-->
 
   
