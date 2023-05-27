@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 19**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 3**
 
-[for] He is aware of the [most] stealthy glance, and of all that the hearts would conceal.
+rushing to assault at morn,
  <!--END_SECTION:quran-->
 
   
