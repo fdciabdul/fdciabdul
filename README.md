@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 37**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 114**
 
-"O our Sustainer! Behold, I have settled some of my offspring in a valley in which there is no arable land, close to Thy sanctified Temple, so that, O our Sustainer, they might devote themselves to prayer: cause Thou, therefore, people's hearts to incline towards them and grant them fruitful sustenance, so that they might have cause to be grateful.
+Answered [Pharaoh]: "Yes; and, verily, you shall be among those who are near unto me."
  <!--END_SECTION:quran-->
 
   
