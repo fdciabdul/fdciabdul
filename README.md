@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 41**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 10**
 
-[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,
+AND ON WHATEVER you may differ, [O believers,] the verdict thereon rests with God. [Say, therefore:] “Such is God, my Sustainer: in Him have I placed my trust, and unto Him do I always turn!”
  <!--END_SECTION:quran-->
 
   
