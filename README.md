@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 203**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 4**
 
-And yet, when thou [O Prophet] dost not produce any miracle for them, some [people] say, "Why dost thou not seek to obtain it [from God]? Say: "I only follow whatever is being revealed to me by my Sustainer: this [revelation] is a means of insight from your Sustainer, and a guidance and grace unto people who will believe.
+THE LIE gave [the tribes of] Thamud and ‘Ad to [all tidings of] that sudden calamity!
  <!--END_SECTION:quran-->
 
   
