@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 178**
+**Surah 30: سُورَةُ الرُّومِ (Ar-Room) - 2**
 
-Behold, I am an apostle [sent by Him] to you, [and therefore] worthy of your trust:
+Defeated have been the Byzantines
  <!--END_SECTION:quran-->
 
   
