@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 16**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 46**
 
-and then, behold! you shall be raised from the dead on Resurrection Day.
+EAT [your fill] and enjoy your life for a little while, O you who are lost in sin!
  <!--END_SECTION:quran-->
 
   
