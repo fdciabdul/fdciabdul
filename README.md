@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 19**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 40**
 
-not as payment for favours received,
+Behold, this [Qur’an] is indeed the [inspired] word of a noble apostle,
  <!--END_SECTION:quran-->
 
   
