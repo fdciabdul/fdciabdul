@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 2**
+**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
 
-"I do not worship that which you worship,
+Verily, man is bound to lose himself
  <!--END_SECTION:quran-->
 
   
