@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 52: سُورَةُ الطُّورِ (At-Tur) - 7**
+**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 41**
 
-VERILY, [O man,] the suffering decreed by thy Sustainer [for the sinners] will indeed come to pass:
+[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,
  <!--END_SECTION:quran-->
 
   
