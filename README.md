@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 26**
+**Surah 109: سُورَةُ الكَافِرُونَ (Al-Kaafiroon) - 2**
 
-[Hence,] I shall cause him to endure hell-fire [in the life to come]!
+"I do not worship that which you worship,
  <!--END_SECTION:quran-->
 
   
