@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 114: سُورَةُ النَّاسِ (An-Naas) - 2**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 68**
 
-"the Sovereign of men,
+It is He who grants life and deals death; and when He wills a thing to be, He but says unto it, “Be” - and it is.
  <!--END_SECTION:quran-->
 
   
