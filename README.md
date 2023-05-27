@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 5**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 63**
 
-of fire fiercely burning [for all who have attained to faith]!
+He answered: “Nay, it was this one, the big­gest of them, that did it: but ask them [yourselves] - provided they can speak!”
  <!--END_SECTION:quran-->
 
   
