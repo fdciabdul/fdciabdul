@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 55: سُورَةُ الرَّحۡمَٰن (Ar-Rahmaan) - 25**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 142**
 
-Which, then, of your Sustainer’s powers can you disavow?
+when their brother Salih said unto them: “Will you not be conscious of God?
  <!--END_SECTION:quran-->
 
   
