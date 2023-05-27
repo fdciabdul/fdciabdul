@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 34: سُورَةُ سَبَإٍ (Saba) - 45**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 47**
 
-Thus, too, gave the lie to the truth [many of] those who lived before them; and although those [earlier people] had not attained to even a tenth of [the evidence of the truth] which We have vouch­safed unto these [late successors of theirs], yet when they gave the lie to My apostles, how awesome was My rejection!
+[And the word will be spoken:] “Seize him, [O you forces of hell,] and drag him into the midst of the blazing fire:
  <!--END_SECTION:quran-->
 
   
