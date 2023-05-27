@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 20**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 183**
 
-[And] is there any, besides the Most Gracious, that could be a shield for you, and could succour you [against danger]? They who deny this truth are but lost in self- delusion!
+and do not deprive people of what is rightfully theirs; and do not act wickedly on earth by spreading corruption,
  <!--END_SECTION:quran-->
 
   
