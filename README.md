@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 44**
+**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 35**
 
-And We sent forth Our apostles, one after another: [and] every time their apostle came to a community, they gave him the lie: and so We caused them to follow one another [into the grave], and let them become [mere] tales: and so - away with the folk who would not believe!
+and ever nearer unto thee, and nearer!
  <!--END_SECTION:quran-->
 
   
