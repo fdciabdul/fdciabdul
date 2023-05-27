@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 77: سُورَةُ المُرۡسَلَاتِ (Al-Mursalaat) - 46**
+**Surah 39: سُورَةُ الزُّمَرِ (Az-Zumar) - 66**
 
-EAT [your fill] and enjoy your life for a little while, O you who are lost in sin!
+Nay, but thou shalt worship God [alone], and be among those who are grateful [to Him]!
  <!--END_SECTION:quran-->
 
   
