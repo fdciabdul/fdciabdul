@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 68**
+**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 20**
 
-Indeed, we were promised this - we and our forefathers - in the past as well; it is nothing but fables of ancient times!”
+and when the mountains are made to vanish as if they had been a mirage.
  <!--END_SECTION:quran-->
 
   
