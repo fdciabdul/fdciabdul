@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 60: سُورَةُ المُمۡتَحنَةِ (Al-Mumtahana) - 3**
+**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 31**
 
-But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.
+But if any of you devoutly obeys God and His Apostle and does good deeds, on her shall We bestow her reward twice-over: for We shall have readied for her a most excellent sustenance [in the life to come].
  <!--END_SECTION:quran-->
 
   
