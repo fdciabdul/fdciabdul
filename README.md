@@ -15,19 +15,12 @@
                
 
 _______ 
-### Daily Ayah
+### About
 
-<!--START_SECTION:quran-->
+i have experience in programming is about 8 years 
 
-**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
-
-"He begets not, and neither is He begotten;
- <!--END_SECTION:quran-->
-
-  
-                       
-                                             
-_______
+my first programming language is VB Classic or Visual Basic 6                    
+                                      _______
 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
  
