@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 23**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 26**
 
-However, as for him who turns away, being bent on denying the truth,
+and who accept as true the [coming of the] Day of Judgment;
  <!--END_SECTION:quran-->
 
   
