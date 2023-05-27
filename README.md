@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 22**
+**Surah 112: سُورَةُ الإِخۡلَاصِ (Al-Ikhlaas) - 3**
 
-in a lofty paradise,
+"He begets not, and neither is He begotten;
  <!--END_SECTION:quran-->
 
   
