@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 34**
+**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 27**
 
-AND SO, when the great overwhelming event [of, resurrection] comes to pass –
+And if all the trees on earth were pens, and the sea [were] ink, with seven [morel seas yet added to it, the words of God would not be exhausted: for, verily, God is almighty, wise.
  <!--END_SECTION:quran-->
 
   
