@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 90**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 42**
 
-For, [on that Day,] paradise will be brought within sight of the God-conscious,
+save those upon whom God will have bestowed His grace and mercy: for, verily, He alone is almighty, a dispenser of grace.
  <!--END_SECTION:quran-->
 
   
