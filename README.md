@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 21**
+**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
 
-witnessed~ by all who have [ever] been drawn close unto God.
+And what could make thee conceive what that crushing torment will be?
  <!--END_SECTION:quran-->
 
   
