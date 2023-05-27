@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 113: سُورَةُ الفَلَقِ (Al-Falaq) - 1**
+**Surah 88: سُورَةُ الغَاشِيَةِ (Al-Ghaashiya) - 23**
 
-SAY: "I seek refuge with the Sustainer of the rising dawn,
+However, as for him who turns away, being bent on denying the truth,
  <!--END_SECTION:quran-->
 
   
