@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 142**
+**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 81**
 
-when their brother Salih said unto them: “Will you not be conscious of God?
+And among the many objects of His creation, God has appointed for you [various] means of protection: thus, He has given you in the mountains places of shelter, and has endowed you with [the ability to make] garments to protect you from heat [and cold], as well as such garments as might protect you from your [mutual] violence. In this way does He bestow the full measure of His blessings on you, so that you might surrender yourselves unto Him.
  <!--END_SECTION:quran-->
 
   
