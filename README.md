@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 33**
+**Surah 23: سُورَةُ المُؤۡمِنُونَ (Al-Muminoon) - 16**
 
-never-failing and never out of reach.
+and then, behold! you shall be raised from the dead on Resurrection Day.
  <!--END_SECTION:quran-->
 
   
