@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 36**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 178**
 
-"Are these deniers of the truth being [thus] requited for [aught but] what they were wont to do?"
+Behold, I am an apostle [sent by Him] to you, [and therefore] worthy of your trust:
  <!--END_SECTION:quran-->
 
   
