@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 78: سُورَةُ النَّبَإِ (An-Naba) - 20**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 24**
 
-and when the mountains are made to vanish as if they had been a mirage.
+and says, "All this is mere spellbinding eloquence handed down [from olden times]!
  <!--END_SECTION:quran-->
 
   
