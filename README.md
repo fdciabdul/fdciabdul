@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 15**
+**Surah 49: سُورَةُ الحُجُرَاتِ (Al-Hujuraat) - 7**
 
-[And God] replied: "Verily, thou shalt be among those who are granted a respite."
+And know that God’s Apostle is among you: were he to comply with your inclinations in each and every case, you would be bound to come to harm [as a community]. But as it is, God has caused [your] faith to be dear to you, and has given it beauty in your hearts, and has made hateful to you all denial of the truth, and all iniquity, and all rebellion [against what is good]. Such indeed are they who follow the right course
  <!--END_SECTION:quran-->
 
   
