@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 65**
+**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 111**
 
-and found one of Our servants, on whom We had bestowed grace from Ourselves and unto whom We had imparted knowledge [issuing] from Ourselves.
+But [as for me,] I do not know whether, perchance, this [delay in God’s judgment] is but a trial for you, and a [merciful] respite for a while.”
  <!--END_SECTION:quran-->
 
   
