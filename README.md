@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 3**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 203**
 
-rushing to assault at morn,
+And yet, when thou [O Prophet] dost not produce any miracle for them, some [people] say, "Why dost thou not seek to obtain it [from God]? Say: "I only follow whatever is being revealed to me by my Sustainer: this [revelation] is a means of insight from your Sustainer, and a guidance and grace unto people who will believe.
  <!--END_SECTION:quran-->
 
   
