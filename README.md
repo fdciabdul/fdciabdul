@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 11**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 8**
 
-enveloping all mankind, [and causing the sinners to exclaim:] “Grievous is this suffering!
+But as for him who is niggardly, and thinks that he is self-sufficient,
  <!--END_SECTION:quran-->
 
   
