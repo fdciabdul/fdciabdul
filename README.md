@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 33: سُورَةُ الأَحۡزَابِ (Al-Ahzaab) - 31**
+**Surah 35: سُورَةُ فَاطِرٍ (Faatir) - 17**
 
-But if any of you devoutly obeys God and His Apostle and does good deeds, on her shall We bestow her reward twice-over: for We shall have readied for her a most excellent sustenance [in the life to come].
+nor is this difficult for God.
  <!--END_SECTION:quran-->
 
   
