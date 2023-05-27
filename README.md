@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 12**
+**Surah 86: سُورَةُ الطَّارِقِ (At-Taariq) - 7**
 
-for, behold, heavy fetters [await them] with Us, and a blazing fire,
+issuing from between the loins [of man] and the pelvic arch [of woman].
  <!--END_SECTION:quran-->
 
   
