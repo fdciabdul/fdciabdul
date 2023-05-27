@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 4**
+**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 17**
 
-THE LIE gave [the tribes of] Thamud and ‘Ad to [all tidings of] that sudden calamity!
+And as for [the tribe of] Thamud, We offered them guidance, but they chose blindness in pre­ference to guidance: and so the thunderbolt of shame­ful suffering fell upon them as an outcome of all [the evil] that they had wrought;
  <!--END_SECTION:quran-->
 
   
