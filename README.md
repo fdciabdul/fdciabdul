@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 24**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 1**
 
-and says, "All this is mere spellbinding eloquence handed down [from olden times]!
+ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!
  <!--END_SECTION:quran-->
 
   
