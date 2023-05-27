@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 5**
+**Surah 10: سُورَةُ يُونُسَ (Yunus) - 90**
 
-Nay, if you could but understand [it] with an understanding [born] of certainty,
+And We brought the children of Israel across the sea; and thereupon Pharaoh and his hosts pursued them with vehement insolence and tyranny, until [they were overwhelmed by the waters of the sea. And] when he was about to drown, [Pharaoh] exclaimed: "I have come to believe that there is no deity save Him in whom the children of Israel believe, and I am of those who surrender themselves unto Him!"
  <!--END_SECTION:quran-->
 
   
