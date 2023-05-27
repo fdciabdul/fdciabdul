@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 68**
+**Surah 102: سُورَةُ التَّكَاثُرِ (At-Takaathur) - 5**
 
-It is He who grants life and deals death; and when He wills a thing to be, He but says unto it, “Be” - and it is.
+Nay, if you could but understand [it] with an understanding [born] of certainty,
  <!--END_SECTION:quran-->
 
   
