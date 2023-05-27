@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 47: سُورَةُ مُحَمَّدٍ (Muhammad) - 32**
+**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 76**
 
-Verily, they who are bent on denying the truth and on barring [others] from the path of God, and [who thus] cut themselves off from the Apostle after guidance has been vouchsafed to them, can in no wise harm God; but He will cause all their deeds to come to nought.
+And it is not We who will be doing wrong unto them, but it is they who will have wronged them­selves.
  <!--END_SECTION:quran-->
 
   
