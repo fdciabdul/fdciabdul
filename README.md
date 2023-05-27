@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 22**
+**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 23**
 
-and brusquely turned his back [on Moses];
+[and] who incessantly persevere in their prayer
  <!--END_SECTION:quran-->
 
   
