@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 41: سُورَةُ فُصِّلَتۡ (Fussilat) - 17**
+**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 21**
 
-And as for [the tribe of] Thamud, We offered them guidance, but they chose blindness in pre­ference to guidance: and so the thunderbolt of shame­ful suffering fell upon them as an outcome of all [the evil] that they had wrought;
+witnessed~ by all who have [ever] been drawn close unto God.
  <!--END_SECTION:quran-->
 
   
