@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 81**
+**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 183**
 
-Is, then, He who has created the heavens and the earth not able to create [anew] the like of those [who have died]? Yea, indeed - for He alone is the all-knowing Crea­tor:
+for, behold, though I may give them rein for a while. My subtle scheme is exceedingly firm!
  <!--END_SECTION:quran-->
 
   
