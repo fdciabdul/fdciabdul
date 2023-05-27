@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 35**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 4**
 
-and ever nearer unto thee, and nearer!
+NONE BUT THOSE who are bent on denying the truth would call God’s messages in question. But let it not deceive thee that they seem to be able to do as they please on earth:
  <!--END_SECTION:quran-->
 
   
