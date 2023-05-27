@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 4**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 19**
 
-NONE BUT THOSE who are bent on denying the truth would call God’s messages in question. But let it not deceive thee that they seem to be able to do as they please on earth:
+[If so,] then I shall guide thee towards [a cognition of] thy Sustainer, so that [henceforth] thou wilt stand in awe [of Him].’"
  <!--END_SECTION:quran-->
 
   
