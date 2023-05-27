@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 8**
+**Surah 18: سُورَةُ الكَهۡفِ (Al-Kahf) - 65**
 
-But as for him who is niggardly, and thinks that he is self-sufficient,
+and found one of Our servants, on whom We had bestowed grace from Ourselves and unto whom We had imparted knowledge [issuing] from Ourselves.
  <!--END_SECTION:quran-->
 
   
