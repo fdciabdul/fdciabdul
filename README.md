@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 10**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 34**
 
-AND ON WHATEVER you may differ, [O believers,] the verdict thereon rests with God. [Say, therefore:] “Such is God, my Sustainer: in Him have I placed my trust, and unto Him do I always turn!”
+AND SO, when the great overwhelming event [of, resurrection] comes to pass –
  <!--END_SECTION:quran-->
 
   
