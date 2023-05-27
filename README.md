@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 4**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 61**
 
-And there are on earth [many] tracts of land close by one another [and yet widely differing from one another]; and [there are on it] vinyards, and fields of grain, and date-palms growing in clusters from one root or standing alone, [all] watered with the same water: and yet, some of them have We favoured above others by way of the food [which they provide for man and beast]. Verily, in all this there are messages indeed for people who use their reason!
+and that you should worship Me [alone]? This would have been a straight way!
  <!--END_SECTION:quran-->
 
   
