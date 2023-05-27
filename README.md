@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 13**
+**Surah 79: سُورَةُ النَّازِعَاتِ (An-Naazi'aat) - 22**
 
-and food that chokes, and grievous suffering
+and brusquely turned his back [on Moses];
  <!--END_SECTION:quran-->
 
   
