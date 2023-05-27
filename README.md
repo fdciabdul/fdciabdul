@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 103: سُورَةُ العَصۡرِ (Al-Asr) - 2**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 4**
 
-Verily, man is bound to lose himself
+Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.
  <!--END_SECTION:quran-->
 
   
