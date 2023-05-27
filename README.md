@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 48: سُورَةُ الفَتۡحِ (Al-Fath) - 23**
+**Surah 42: سُورَةُ الشُّورَىٰ (Ash-Shura) - 16**
 
-such being God’s way which has ever obtained in the past - and never wilt thou find any change in God’s way!
+And as for those who would [still] argue about God after He has been acknowledged [by them] all their arguments are null and void in their Sustainer’s sight, and upon them will fall [His] condemnation, and for them is suffering severe in store:
  <!--END_SECTION:quran-->
 
   
