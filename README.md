@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 153**
+**Surah 13: سُورَةُ الرَّعۡدِ (Ar-Ra'd) - 4**
 
-THE FOLLOWERS of the Old Testament demand of thee [O Prophet] that thou cause a revelation to be sent down to them from heaven. And an even greater thing than this did they demand of Moses when they said, "Make us see God face to face" - whereupon the thunderbolt of punishment overtook them for this their wickedness. After that, they took to worshipping the [golden] calf - and this after all evidence of the truth had come unto them! None the less, We effaced this [sin of theirs], and vouchsafed unto Moses a clear proof [of the truth],
+And there are on earth [many] tracts of land close by one another [and yet widely differing from one another]; and [there are on it] vinyards, and fields of grain, and date-palms growing in clusters from one root or standing alone, [all] watered with the same water: and yet, some of them have We favoured above others by way of the food [which they provide for man and beast]. Verily, in all this there are messages indeed for people who use their reason!
  <!--END_SECTION:quran-->
 
   
