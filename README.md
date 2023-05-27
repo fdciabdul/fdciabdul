@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 76**
+**Surah 85: سُورَةُ البُرُوجِ (Al-Burooj) - 5**
 
-And it is not We who will be doing wrong unto them, but it is they who will have wronged them­selves.
+of fire fiercely burning [for all who have attained to faith]!
  <!--END_SECTION:quran-->
 
   
