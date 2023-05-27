@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 23**
+**Surah 40: سُورَةُ غَافِرٍ (Ghafir) - 19**
 
-[and] who incessantly persevere in their prayer
+[for] He is aware of the [most] stealthy glance, and of all that the hearts would conceal.
  <!--END_SECTION:quran-->
 
   
