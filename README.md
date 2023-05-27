@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 7: سُورَةُ الأَعۡرَافِ (Al-A'raaf) - 183**
+**Surah 67: سُورَةُ المُلۡكِ (Al-Mulk) - 17**
 
-for, behold, though I may give them rein for a while. My subtle scheme is exceedingly firm!
+Or can you ever feel secure that He who is in heaven will not let loose against you a deadly stormwind, whereupon you would come to know how [true] My warning was?
  <!--END_SECTION:quran-->
 
   
