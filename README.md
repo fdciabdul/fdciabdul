@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 20**
+**Surah 34: سُورَةُ سَبَإٍ (Saba) - 45**
 
-[with] fire closing in upon them.
+Thus, too, gave the lie to the truth [many of] those who lived before them; and although those [earlier people] had not attained to even a tenth of [the evidence of the truth] which We have vouch­safed unto these [late successors of theirs], yet when they gave the lie to My apostles, how awesome was My rejection!
  <!--END_SECTION:quran-->
 
   
