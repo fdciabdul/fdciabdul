@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 36: سُورَةُ يسٓ (Yaseen) - 61**
+**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 5**
 
-and that you should worship Me [alone]? This would have been a straight way!
+for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.
  <!--END_SECTION:quran-->
 
   
