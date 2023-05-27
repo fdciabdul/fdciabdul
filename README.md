@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 3**
+**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 3**
 
-rushing to assault at morn,
+and who determines the nature [of all that exists], and thereupon guides it [towards its fulfilment],
  <!--END_SECTION:quran-->
 
   
