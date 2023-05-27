@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 31: سُورَةُ لُقۡمَانَ (Luqman) - 27**
+**Surah 14: سُورَةُ إِبۡرَاهِيمَ (Ibrahim) - 1**
 
-And if all the trees on earth were pens, and the sea [were] ink, with seven [morel seas yet added to it, the words of God would not be exhausted: for, verily, God is almighty, wise.
+Alif. Lam. Ra. A DIVINE WRIT [is this -a revelation] which We have bestowed upon thee from on high in order that thou might bring forth all mankind, by their Sustainer's leave, out of the depths of darkness into the light: onto the way that leads to the Almighty, the One to whom all praise is due -
  <!--END_SECTION:quran-->
 
   
