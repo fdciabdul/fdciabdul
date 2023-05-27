@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 16: سُورَةُ النَّحۡلِ (An-Nahl) - 81**
+**Surah 44: سُورَةُ الدُّخَانِ (Ad-Dukhaan) - 11**
 
-And among the many objects of His creation, God has appointed for you [various] means of protection: thus, He has given you in the mountains places of shelter, and has endowed you with [the ability to make] garments to protect you from heat [and cold], as well as such garments as might protect you from your [mutual] violence. In this way does He bestow the full measure of His blessings on you, so that you might surrender yourselves unto Him.
+enveloping all mankind, [and causing the sinners to exclaim:] “Grievous is this suffering!
  <!--END_SECTION:quran-->
 
   
