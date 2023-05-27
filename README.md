@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 83: سُورَةُ المُطَفِّفِينَ (Al-Mutaffifin) - 27**
+**Surah 20: سُورَةُ طه (Taa-Haa) - 53**
 
-for it is composed of all that is most exalting
+HE IT IS who has made the earth a cradle for you, and has traced out for you ways [of livelihood] thereon, and [who] sends down waters from the sky: and by this means We bring forth various kinds of plants.
  <!--END_SECTION:quran-->
 
   
