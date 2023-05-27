@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 63**
+**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 7**
 
-He answered: “Nay, it was this one, the big­gest of them, that did it: but ask them [yourselves] - provided they can speak!”
+And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.
  <!--END_SECTION:quran-->
 
   
