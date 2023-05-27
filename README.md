@@ -16,11 +16,32 @@
 
 _______ 
 ### About
+  <details>
 
-i have experience in programming is about 8 years 
+  <summary>if you interested to know about me , then click this</summary>
 
-my first programming language is VB Classic or Visual Basic 6                    
-                                      _______
+  
+
+  ### About Me👋 Hello World, I'm Abdul Muttaqin!
+
+I've been breathing life into code since 2014 - that's 9 years of computing adventure! I began my journey with Visual Basic 6, a robust language that laid the foundation of my programming fundamentals. Over the years, I've flirted with PHP (since 2016), Python (since 2017), and JavaScript (since 2019). 
+
+In the process, I fell in love with JavaScript, a language that's as dynamic as the web itself. I've built some cool projects, learned a ton, and had loads of fun.
+
+But as in any love story, there's a twist. Rust entered the scene! The safety, concurrency, and performance that Rust offers have started to capture my heart. I'm still a JS loyalist but don't be surprised if you see me moonlighting with Rust.
+
+Remember, in the world of programming, it's not about cheating on one language with another; it's about finding the right tool for the job. And right now, I'm quite smitten with the Rust toolset.
+
+Feel free to check out my repositories and contributions. I'm always up for collaboration and learning from the GitHub community. Feel free to drop me a message or question. 
+
+Happy Coding! 🚀👨‍💻💻🌐
+
+
+
+
+</details>
+
+_______
 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;
  
