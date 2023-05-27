@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 1**
+**Surah 69: سُورَةُ الحَاقَّةِ (Al-Haaqqa) - 22**
 
-ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!
+in a lofty paradise,
  <!--END_SECTION:quran-->
 
   
