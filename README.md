@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 3: سُورَةُ آلِ عِمۡرَانَ (Aal-i-Imraan) - 128**
+**Surah 27: سُورَةُ النَّمۡلِ (An-Naml) - 68**
 
-[And] it is in no wise for thee [O Prophet] to decide whether He shall accept their repentance or chastise them - for, behold, they are but wrongdoers,
+Indeed, we were promised this - we and our forefathers - in the past as well; it is nothing but fables of ancient times!”
  <!--END_SECTION:quran-->
 
   
