@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 21: سُورَةُ الأَنبِيَاءِ (Al-Anbiyaa) - 111**
+**Surah 105: سُورَةُ الفِيلِ (Al-Fil) - 3**
 
-But [as for me,] I do not know whether, perchance, this [delay in God’s judgment] is but a trial for you, and a [merciful] respite for a while.”
+Thus, He let loose upon them great swarms of flying creatures
  <!--END_SECTION:quran-->
 
   
