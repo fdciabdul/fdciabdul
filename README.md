@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 87: سُورَةُ الأَعۡلَىٰ (Al-A'laa) - 3**
+**Surah 90: سُورَةُ البَلَدِ (Al-Balad) - 20**
 
-and who determines the nature [of all that exists], and thereupon guides it [towards its fulfilment],
+[with] fire closing in upon them.
  <!--END_SECTION:quran-->
 
   
