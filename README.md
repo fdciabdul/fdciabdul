@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 104: سُورَةُ الهُمَزَةِ (Al-Humaza) - 5**
+**Surah 74: سُورَةُ المُدَّثِّرِ (Al-Muddaththir) - 26**
 
-And what could make thee conceive what that crushing torment will be?
+[Hence,] I shall cause him to endure hell-fire [in the life to come]!
  <!--END_SECTION:quran-->
 
   
