@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 111: سُورَةُ المَسَدِ (Al-Masad) - 4**
+**Surah 92: سُورَةُ اللَّيۡلِ (Al-Lail) - 19**
 
-together with his wife, that carrier of evil tales,
+not as payment for favours received,
  <!--END_SECTION:quran-->
 
   
