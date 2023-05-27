@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 58: سُورَةُ المُجَادلَةِ (Al-Mujaadila) - 6**
+**Surah 4: سُورَةُ النِّسَاءِ (An-Nisaa) - 153**
 
-on the Day when God will raise them all from the dead and will make them truly understand all that they did [in life]: God will have taken [all of] it into account, even though they [themselves] may have forgotten it - for God is wit­ness unto everything.
+THE FOLLOWERS of the Old Testament demand of thee [O Prophet] that thou cause a revelation to be sent down to them from heaven. And an even greater thing than this did they demand of Moses when they said, "Make us see God face to face" - whereupon the thunderbolt of punishment overtook them for this their wickedness. After that, they took to worshipping the [golden] calf - and this after all evidence of the truth had come unto them! None the less, We effaced this [sin of theirs], and vouchsafed unto Moses a clear proof [of the truth],
  <!--END_SECTION:quran-->
 
   
