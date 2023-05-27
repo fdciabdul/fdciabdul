@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 61: سُورَةُ الصَّفِّ (As-Saff) - 4**
+**Surah 36: سُورَةُ يسٓ (Yaseen) - 81**
 
-Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.
+Is, then, He who has created the heavens and the earth not able to create [anew] the like of those [who have died]? Yea, indeed - for He alone is the all-knowing Crea­tor:
  <!--END_SECTION:quran-->
 
   
