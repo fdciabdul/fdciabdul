@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 63: سُورَةُ المُنَافِقُونَ (Al-Munaafiqoon) - 10**
+**Surah 100: سُورَةُ العَادِيَاتِ (Al-Aadiyaat) - 3**
 
-And spend on others out of what We have provided for you as sustenance, ere there come a time when death approaches any of you, and he then says, "O my Sustainer! If only Thou wouldst grant me a delay for a short while, so that I could give in charity and be among the righteous!"
+rushing to assault at morn,
  <!--END_SECTION:quran-->
 
   
