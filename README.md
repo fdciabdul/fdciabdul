@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 70: سُورَةُ المَعَارِجِ (Al-Ma'aarij) - 26**
+**Surah 56: سُورَةُ الوَاقِعَةِ (Al-Waaqia) - 33**
 
-and who accept as true the [coming of the] Day of Judgment;
+never-failing and never out of reach.
  <!--END_SECTION:quran-->
 
   
