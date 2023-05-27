@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 107: سُورَةُ المَاعُونِ (Al-Maa'un) - 1**
+**Surah 73: سُورَةُ المُزَّمِّلِ (Al-Muzzammil) - 12**
 
-HAST THOU ever considered [the kind of man] who gives the lie to all moral law?
+for, behold, heavy fetters [await them] with Us, and a blazing fire,
  <!--END_SECTION:quran-->
 
   
