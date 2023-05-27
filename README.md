@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 43: سُورَةُ الزُّخۡرُفِ (Az-Zukhruf) - 40**
+**Surah 81: سُورَةُ التَّكۡوِيرِ (At-Takwir) - 2**
 
-CANST THOU, perchance, [O Muhammad,] make the deaf hear, or show the right way to the blind or to such as are obviously lost in error?
+and when the stars lose their light,
  <!--END_SECTION:quran-->
 
   
