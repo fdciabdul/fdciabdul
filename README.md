@@ -19,9 +19,9 @@ _______
 
 <!--START_SECTION:quran-->
 
-**Surah 75: سُورَةُ القِيَامَةِ (Al-Qiyaama) - 38**
+**Surah 26: سُورَةُ الشُّعَرَاءِ (Ash-Shu'araa) - 90**
 
-and thereafter became a germ-cell - whereupon He created and formed [it] in accordance with what [it] was meant to be,
+For, [on that Day,] paradise will be brought within sight of the God-conscious,
  <!--END_SECTION:quran-->
 
   
