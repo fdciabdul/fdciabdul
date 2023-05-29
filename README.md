@@ -9,7 +9,7 @@
 
 <center>
   
-### Hire me for some project 
+### Hire me for some project on
 
 <a href="https://projects.co.id/public/browse_users/view/496e26/imtaqinid"> <img src="https://cdn.projects.co.id/assets/img/projectscoid.png"/></a>
 
