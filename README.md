@@ -1,4 +1,4 @@
- 
+ <a href="https://app.daily.dev/fdciabdul"><img src="https://api.daily.dev/devcards/e321f902ecb749bf905b492c555ee0f1.png?r=5er" width="400" alt="Abdul Muttaqin's Dev Card"/></a>
 <!--START_SECTION:waka-->
 
 ```txt
