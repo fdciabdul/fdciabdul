@@ -4,11 +4,11 @@ you are a nice people until you put emoji on your text
 <!--START_SECTION:waka-->
 
 ```txt
-JavaScript   12 hrs 35 mins  ████████████████▒░░░░░░░░   65.91 %
-PHP          3 hrs 35 mins   ████▓░░░░░░░░░░░░░░░░░░░░   18.75 %
-JSON         1 hr 34 mins    ██░░░░░░░░░░░░░░░░░░░░░░░   08.21 %
-EJS          45 mins         █░░░░░░░░░░░░░░░░░░░░░░░░   03.93 %
-Text         18 mins         ▒░░░░░░░░░░░░░░░░░░░░░░░░   01.63 %
+JavaScript   11 hrs 50 mins  ████████████████▓░░░░░░░░   66.78 %
+PHP          3 hrs 35 mins   █████░░░░░░░░░░░░░░░░░░░░   20.21 %
+JSON         1 hr 12 mins    █▓░░░░░░░░░░░░░░░░░░░░░░░   06.77 %
+EJS          45 mins         █░░░░░░░░░░░░░░░░░░░░░░░░   04.24 %
+TypeScript   5 mins          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.48 %
 ```
 
 <!--END_SECTION:waka-->
