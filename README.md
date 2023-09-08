@@ -10,11 +10,11 @@ i' available for open private project here in Projects.co.id
 <!--START_SECTION:waka-->
 
 ```txt
-JavaScript   2 hrs 32 mins   ██████████████████████░░░   87.90 %
-PHP          8 mins          █▒░░░░░░░░░░░░░░░░░░░░░░░   04.72 %
-JSON         5 mins          ▓░░░░░░░░░░░░░░░░░░░░░░░░   03.11 %
-Bash         2 mins          ▒░░░░░░░░░░░░░░░░░░░░░░░░   01.37 %
-HTML         1 min           ▒░░░░░░░░░░░░░░░░░░░░░░░░   00.97 %
+JavaScript   2 hrs 27 mins   ██████████████████▒░░░░░░   73.77 %
+Python       29 mins         ███▓░░░░░░░░░░░░░░░░░░░░░   14.53 %
+PHP          8 mins          █░░░░░░░░░░░░░░░░░░░░░░░░   04.09 %
+JSON         5 mins          ▓░░░░░░░░░░░░░░░░░░░░░░░░   02.70 %
+Bash         3 mins          ▒░░░░░░░░░░░░░░░░░░░░░░░░   01.52 %
 ```
 
 <!--END_SECTION:waka-->
