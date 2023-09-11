@@ -1,6 +1,5 @@
-Thanks to visit my profile , by the way if you interest to hire me for your proroject or your office 
+Nostr :npub1amlyppaefrtx7juu7k2zax6k57w6wp4h4m9mjr5je9lxwy6aqvxsgarqpw
 
-i' available for open private project here in Projects.co.id 
 
 - [fdciabdul in projects.co.id](https://projects.co.id/public/browse_users/view/496e26/fdciabdul)
 
