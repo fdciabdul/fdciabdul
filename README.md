@@ -9,11 +9,11 @@ Nostr :npub1amlyppaefrtx7juu7k2zax6k57w6wp4h4m9mjr5je9lxwy6aqvxsgarqpw
 <!--START_SECTION:waka-->
 
 ```txt
-JavaScript    6 hrs 43 mins   ████████████████████▒░░░░   81.12 %
-Python        29 mins         █▒░░░░░░░░░░░░░░░░░░░░░░░   05.85 %
-EJS           25 mins         █▒░░░░░░░░░░░░░░░░░░░░░░░   05.07 %
-TypeScript    13 mins         ▓░░░░░░░░░░░░░░░░░░░░░░░░   02.78 %
-PHP           8 mins          ▒░░░░░░░░░░░░░░░░░░░░░░░░   01.65 %
+JavaScript     6 hrs 9 mins    ██████████████████▓░░░░░░   74.81 %
+Python         29 mins         █▒░░░░░░░░░░░░░░░░░░░░░░░   05.90 %
+EJS            25 mins         █▒░░░░░░░░░░░░░░░░░░░░░░░   05.11 %
+Cheetah        17 mins         █░░░░░░░░░░░░░░░░░░░░░░░░   03.51 %
+TypeScript     13 mins         ▓░░░░░░░░░░░░░░░░░░░░░░░░   02.80 %
 ```
 
 <!--END_SECTION:waka-->
