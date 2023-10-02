@@ -9,11 +9,11 @@ Nostr :npub1amlyppaefrtx7juu7k2zax6k57w6wp4h4m9mjr5je9lxwy6aqvxsgarqpw
 <!--START_SECTION:waka-->
 
 ```txt
-JavaScript   5 hrs 6 mins    ███████████████████████▓░   94.68 %
-JSON         14 mins         █░░░░░░░░░░░░░░░░░░░░░░░░   04.39 %
-Ezhil        1 min           ░░░░░░░░░░░░░░░░░░░░░░░░░   00.37 %
-Other        0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.27 %
-Bash         0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.24 %
+JavaScript   4 hrs 14 mins   ██████████████████████▓░░   91.15 %
+JSON         17 mins         █▓░░░░░░░░░░░░░░░░░░░░░░░   06.32 %
+Markdown     3 mins          ▒░░░░░░░░░░░░░░░░░░░░░░░░   01.25 %
+Other        1 min           ░░░░░░░░░░░░░░░░░░░░░░░░░   00.64 %
+Bash         0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.28 %
 ```
 
 <!--END_SECTION:waka-->
