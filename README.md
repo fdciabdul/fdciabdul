@@ -1,6 +1,4 @@
-[![@fdciabdul Holopin board](https://holopin.io/api/user/board?user=fdciabdul)](https://holopin.io/@fdciabdul)
-
-- [fdciabdul in projects.co.id](https://projects.co.id/public/browse_users/view/496e26/fdciabdul)
+![FswPhk3aEAAIwBG](https://github.com/fdciabdul/fdciabdul/assets/31664438/26ab8ff1-a534-4825-99df-43cf2520f85a)
 
 ### now playing 
 
