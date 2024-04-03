@@ -1,6 +1,4 @@
-![FswPhk3aEAAIwBG](https://github.com/fdciabdul/fdciabdul/assets/31664438/26ab8ff1-a534-4825-99df-43cf2520f85a)
 
-### now playing 
 
 <p align="center">
   <a href="https://open.spotify.com/user/31ljmyymhthokwewwcd6dsdmvprm" target="_blank"><img src="https://novatorem-psi-rosy.vercel.app/api/spotify" alt="Spotify Now Playing"/></a>
