@@ -6,11 +6,11 @@ devOps, nodejs dev, backend-dev, frontend (maybe?), software engineer, reverse-e
 <!--START_SECTION:waka-->
 
 ```txt
-TypeScript        11 hrs 33 mins  █████████████▒░░░░░░░░░░░   52.82 %
-PHP               3 hrs 45 mins   ████▒░░░░░░░░░░░░░░░░░░░░   17.19 %
-JavaScript        3 hrs 26 mins   ████░░░░░░░░░░░░░░░░░░░░░   15.77 %
-JSON              48 mins         █░░░░░░░░░░░░░░░░░░░░░░░░   03.72 %
-Bash              43 mins         ▓░░░░░░░░░░░░░░░░░░░░░░░░   03.32 %
+TypeScript        12 hrs 49 mins  ██████████████░░░░░░░░░░░   56.43 %
+JavaScript        3 hrs 48 mins   ████▒░░░░░░░░░░░░░░░░░░░░   16.77 %
+PHP               2 hrs 50 mins   ███░░░░░░░░░░░░░░░░░░░░░░   12.54 %
+JSON              50 mins         █░░░░░░░░░░░░░░░░░░░░░░░░   03.68 %
+Bash              37 mins         ▓░░░░░░░░░░░░░░░░░░░░░░░░   02.77 %
 ```
 
 <!--END_SECTION:waka-->
