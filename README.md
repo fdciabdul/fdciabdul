@@ -17,3 +17,5 @@ HTML                 46 mins         ██▒░░░░░░░░░░░�
 ```
 
 <!--END_SECTION:waka-->
+
+https://github-readme-activity-graph-fjqz177.vercel.app/graph?username=fdciabdul&theme=github-light
