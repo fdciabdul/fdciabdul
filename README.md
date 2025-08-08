@@ -9,10 +9,10 @@ devOps, nodejs dev, backend-dev, frontend (maybe?), software engineer, reverse-e
 <!--START_SECTION:waka-->
 
 ```txt
-JSON        1 hr 9 mins     ███████████████████▒░░░░░   77.25 %
-Text        18 mins         █████░░░░░░░░░░░░░░░░░░░░   19.97 %
-CSV         2 mins          ▓░░░░░░░░░░░░░░░░░░░░░░░░   02.76 %
-Batchfile   0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.02 %
+JSON        25 mins         █████████████▓░░░░░░░░░░░   55.28 %
+Text        18 mins         █████████▓░░░░░░░░░░░░░░░   39.26 %
+CSV         2 mins          █▒░░░░░░░░░░░░░░░░░░░░░░░   05.42 %
+Batchfile   0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.04 %
 ```
 
 <!--END_SECTION:waka-->
