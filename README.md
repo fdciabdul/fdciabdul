@@ -9,11 +9,9 @@ devOps, nodejs dev, backend-dev, frontend (maybe?), software engineer, reverse-e
 <!--START_SECTION:waka-->
 
 ```txt
-Python       3 hrs 22 mins   ████████████████████▒░░░░   80.95 %
-TypeScript   39 mins         ████░░░░░░░░░░░░░░░░░░░░░   15.94 %
-Other        6 mins          ▓░░░░░░░░░░░░░░░░░░░░░░░░   02.46 %
-JavaScript   1 min           ░░░░░░░░░░░░░░░░░░░░░░░░░   00.59 %
-Git          0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.06 %
+Python       3 hrs 22 mins   █████████████████████▓░░░   87.08 %
+TypeScript   23 mins         ██▓░░░░░░░░░░░░░░░░░░░░░░   10.27 %
+Other        6 mins          ▓░░░░░░░░░░░░░░░░░░░░░░░░   02.65 %
 ```
 
 <!--END_SECTION:waka-->
