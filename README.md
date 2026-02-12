@@ -9,11 +9,9 @@ devOps, nodejs dev, backend-dev, frontend (maybe?), software engineer, reverse-e
 <!--START_SECTION:waka-->
 
 ```txt
-Markdown     3 mins          ██████████████▒░░░░░░░░░░   56.93 %
-TypeScript   2 mins          ████████▓░░░░░░░░░░░░░░░░   34.92 %
-Bash         0 secs          ██░░░░░░░░░░░░░░░░░░░░░░░   07.40 %
-JSON         0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.38 %
-CSS          0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.37 %
+Markdown   3 mins          ██████████████████████░░░   87.97 %
+Bash       0 secs          ███░░░░░░░░░░░░░░░░░░░░░░   11.44 %
+JSON       0 secs          ░░░░░░░░░░░░░░░░░░░░░░░░░   00.59 %
 ```
 
 <!--END_SECTION:waka-->
