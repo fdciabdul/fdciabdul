@@ -9,8 +9,7 @@ devOps, nodejs dev, backend-dev, frontend (maybe?), software engineer, reverse-e
 <!--START_SECTION:waka-->
 
 ```txt
-Python   1 hr 19 mins          █████████████░░░░░░░░░░░░   51.51 %
-Text     1 hr 14 mins          ████████████░░░░░░░░░░░░░   48.49 %
+Python   1 hr 9 mins           █████████████████████████   100.00 %
 ```
 
 <!--END_SECTION:waka-->
