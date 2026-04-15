@@ -9,11 +9,11 @@ devOps, nodejs dev, backend-dev, frontend (maybe?), software engineer, reverse-e
 <!--START_SECTION:waka-->
 
 ```txt
-Other             4 hrs 15 mins         █████░░░░░░░░░░░░░░░░░░░░   19.93 %
-Go                3 hrs 20 mins         ████░░░░░░░░░░░░░░░░░░░░░   15.61 %
-Blade Template    3 hrs 6 mins          ███▓░░░░░░░░░░░░░░░░░░░░░   14.56 %
-PHP               1 hr 59 mins          ██▒░░░░░░░░░░░░░░░░░░░░░░   09.30 %
-JSON              1 hr 17 mins          █▓░░░░░░░░░░░░░░░░░░░░░░░   06.04 %
+Other             4 hrs 54 mins         ████▓░░░░░░░░░░░░░░░░░░░░   18.02 %
+Python            3 hrs 44 mins         ███▒░░░░░░░░░░░░░░░░░░░░░   13.77 %
+Go                3 hrs 20 mins         ███░░░░░░░░░░░░░░░░░░░░░░   12.26 %
+Blade Template    3 hrs 7 mins          ███░░░░░░░░░░░░░░░░░░░░░░   11.47 %
+PHP               1 hr 51 mins          █▓░░░░░░░░░░░░░░░░░░░░░░░   06.82 %
 ```
 
 <!--END_SECTION:waka-->
