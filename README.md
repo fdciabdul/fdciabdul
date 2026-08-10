@@ -5,11 +5,11 @@ devOps, nodejs dev, backend-dev, frontend (maybe?), software engineer, reverse-e
 <!--START_SECTION:waka-->
 
 ```txt
-TypeScript   13 hrs 22 mins        ████████████▓░░░░░░░░░░░░   51.07 %
-Markdown     5 hrs 3 mins          ████▓░░░░░░░░░░░░░░░░░░░░   19.30 %
-JSON         2 hrs 22 mins         ██▒░░░░░░░░░░░░░░░░░░░░░░   09.06 %
-Other        2 hrs 20 mins         ██▒░░░░░░░░░░░░░░░░░░░░░░   08.95 %
-Vue          1 hr 17 mins          █▒░░░░░░░░░░░░░░░░░░░░░░░   04.94 %
+TypeScript   15 hrs 48 mins        ██████████████▓░░░░░░░░░░   59.03 %
+Markdown     4 hrs 18 mins         ████░░░░░░░░░░░░░░░░░░░░░   16.10 %
+Vue          2 hrs 49 mins         ██▓░░░░░░░░░░░░░░░░░░░░░░   10.54 %
+Other        2 hrs 4 mins          ██░░░░░░░░░░░░░░░░░░░░░░░   07.75 %
+JSON         52 mins               ▓░░░░░░░░░░░░░░░░░░░░░░░░   03.28 %
 ```
 
 <!--END_SECTION:waka-->
